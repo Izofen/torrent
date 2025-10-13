@@ -1,293 +1,703 @@
-###  Публикация: 1799191   (66503) от 26.05.2025
+###  Публикация: 1728152   (54141) от 06.06.2024
 
-Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
+The Arcane Order - Studio Albums (4 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pyogenesis — немецкая рок-группа, жанрово охватывающая широкий стилевой спектр от дэт-метала до поп-рока.1994 - Sweet X-Rated Nothings
-1995 - Twinaleblood
-1997 - Unpop
-1998 - Mono... Or Will It Ever Be The Way It Used To BeЖанр: Doom/Death Metal, PunkПродолжительность: 08:09:54
+The Arcane Order - датская метал-группа из Колдинга. Первоначально сформирована в 2000 году под названием Scavenger.2006 - The Machinery Of Oblivion
+2008 - In The Wake Of Collisions
+2015 - Cult Of None
+2023 - Distortions From CosmogonyЖанр: Melodic Death/Thrash MetalПродолжительность: 03:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
+magnet:?xt=urn:btih:7404F672808400922D24EFE8BCFD5B94FD99B84D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798792   (66553) от 24.05.2025
+###  Публикация: 1728219   (54145) от 06.06.2024
 
-Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove, Thrash Metal>
+Herb Alpert and The Tijuana Brass - Two Albums: !!Going Places!!/Early Alpert (1965, 1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Blood Fire War Hate
-A2. Unleash
-A3. Paranoia
-B1. Warmageddon(   Читать дальше...   )Жанр: Nu-Metal, Groove, Thrash MetalПродолжительность: 00:57:23
+A1 The Great Manolete (La Virgen De La Macarena)
+(Calero, Montede)
+A2 Spanish Harlem
+(Leiber, Spector)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 01:01:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6BA63258CFA7EEC13DA0FF4E08AC956D1207424
+magnet:?xt=urn:btih:5E59A8B7739AFA6FE44B74958BA9A31E33F60376
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798728   (66590) от 23.05.2025
+###  Публикация: 1642533   (54664) от 01.06.2024
 
-Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
+Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A. The Sword Woman (05:23)
-B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
+Eternal Tears of Sorrow — финская группа, исполняющая музыку в стиле симфонический дэт-метал.1997 - Sinner's Serenade
+1998 - Vilda Mannu
+2000 - Chaotic Beauty
+2001 - A Virgin And A WhoreЖанр: Melodic/Symphonic Death MetalПродолжительность: 05:19:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
+magnet:?xt=urn:btih:481279DD7028C9857300A7DD62000F5BE49EB494
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797918   (66651) от 19.05.2025
+###  Публикация: 1595750   (55449) от 25.05.2024
 
-DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
+Slash (Saul Hudson, Slash's Snakepit, Velvet Revolver) - Studio Albums (10 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock, Glam Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
-2005 - The Fury Of Our Maker's Hand
-2007 - The Last Kind Words
-2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
+Saul Hudson, более известный по сценическому псевдониму Slash (род. 23 июля 1965 года) — американский рок-музыкант британского происхождения. Наиболее известен как гитарист американской хард-рок-группы Guns N’ Roses, с которой он добился всемирного успеха в конце 1980-х и начале 1990-х годов. В поздние годы своего участия в Guns N' Roses сформировал сайд-проект Slash's (   Читать дальше...   )2010 - Slash
+2012 - Apocalyptic Love
+2014 - World On Fire
+2018 - Living The DreamЖанр: Heavy Metal, Hard Rock, Glam MetalПродолжительность: 10:43:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
+magnet:?xt=urn:btih:7EE5A2BCB7155BAAA65E36CEE3460440045CC738
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797823   (66654) от 19.05.2025
+###  Публикация: 1528857   (56279) от 17.05.2024
 
-Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
+Fear Factory - Studio Albums (11 releases) (1992-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Groove/Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dystopia (04:24)
-02. Ascent Of The Blessed (04:10)
-03. Virus (03:55)
-04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
+Fear Factory — американская метал-группа из Лос-Анджелеса.
+Группа сформировалась в 1989 году. За время своей музыкальной карьеры, музыканты сумели выработать собственное оригинальное звучание представляющее собой сочетание индастриал-метала и грув-метала.1992 - Soul Of A New Machine
+1995 - Demanufacture
+1998 - Obsolete
+2001 - Digimortal(   Читать дальше...   )Жанр: Death/Groove/Industrial MetalПродолжительность: 11:14:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
+magnet:?xt=urn:btih:02323E13F89423B9D40860E54EC6708E63CB9801
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797848   (66655) от 19.05.2025
+###  Публикация: 1541970   (56281) от 17.05.2024
 
-Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Adapt or Die (Intro Narrative by Jake Stern, sound FX by Zardonic)
-A2. Hatred Will Prevail (Monolith Remix by Rhys Fulber)
-A3. Disobey (Disruptor Remix by Zardonic)
-A4. I Am The Nightrider (Fuel Injected Suicide Machine Remix by Dualized/Zardonic)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:02:36
+Pain — индастриал-метал проект шведского музыканта, основателя Hypocrisy — Петера Тэгтгрена.1997 - Pain
+2000 - Rebirth
+2002 - Nothing Remains The Same
+2005 - Dancing With The DeadЖанр: Electronic/Industrial MetalПродолжительность: 08:12:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:606BC69336610CF1241D8E5E2924B7227192F44D
+magnet:?xt=urn:btih:67C2E6FFC9F140FBCE4714F4EE16A51294ABB2DC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797927   (66661) от 19.05.2025
+###  Публикация: 1630232   (56341) от 16.05.2024
 
-Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
+Stream of Passion - Studio Albums (6 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1-We Are the Many
-A2-The Bogeyman
-A3-Memorial
-A4-No Tomorrow(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:04
+Stream of Passion — мексикано-нидерландская симфоник-/готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
+2006 - Out in the Real World (EP)
+2009 - The Flame Within
+2011 - Darker DaysЖанр: Progressive/Symphonic MetalПродолжительность: 04:35:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA70B4AC39FB8D2E3FCF2F44C7D27EAEBC61590C
+magnet:?xt=urn:btih:0F22229E4993B3E7DFA444B9CEDEE70F8DDD79C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797966   (66673) от 19.05.2025
+###  Публикация: 1638278   (56449) от 15.05.2024
 
-Manowar - Kings of Metal (1988) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy Metal>
+Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Wheels Of Fire
-A2. Kings Of Metal
-A3. Heart Of Steel
-A4. Sting Of The Bumblebee(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:38
+Freedom Call — немецкая пауэр-метал группа, основанная в 1998 году.1999 - Stairway To Fairyland
+1999 - Taragon (EP)
+2001 - Crystal Empire
+2002 - EternityЖанр: Power MetalПродолжительность: 11:28:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCF917A4B48A2FE7DD100AF9766E85FC2B3E9B06
+magnet:?xt=urn:btih:5B3B1A5274A55E651DDADB5A18900732D8021049
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708248   (91159) от 04.10.2025
+###  Публикация: 1722814   (56694) от 13.05.2024
 
-Ойме (Oyme) - Коллекция (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Traditional Folk, World & Country>
+Pussycat - Wet Day In September (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ойме (в переводе с эрзянского языка, — душа) — музыкальная группа, образована в 2010 году. Творческая деятельность группы посвящена культуре финно-угорских народов России.
-Группа работает по двум направлениям: традиционная программа и world music.2016 - Штатол
-2023 - Mastorava vol. 1
-2023 - Путь одинЖанр: Traditional Folk, World & CountryПродолжительность: 02:12:12
+A1 Wet Day In September
+A2 Hey Joe
+A3 It's The Same Old Song
+A4 Love In September(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: Vinyl, LP, Album, EMI – EMCE 1047, India
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
+magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822026   (94694) от 04.10.2025
+###  Публикация: 1572715   (56903) от 11.05.2024
 
-Skid Row - Studio Albums (8 releases) (1989-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard 'n' Heavy, Glam Metal>
+Unleash the Archers - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Skid Row — американская хэви-метал группа, образованная в 1986 году в Томс-Ривер, штат Нью-Джерси.1989 - Skid Row
-1991 - Slave To The Grind
-1995 - Subhuman Race
-2003 - ThickskinЖанр: Hard 'n' Heavy, Glam MetalПродолжительность: 06:00:07
+Unleash the Archers — канадская метал-группа, основанная в Ванкувере в 2007 году. Группа исполняет смесь традиционного хеви-метала с пауэр-металом и мелодичным дэт-металом.2009 - Behold The Devastation
+2011 - Demons Of The AstroWaste
+2015 - Time Stands Still
+2017 - Apex(   Читать дальше...   )Жанр: Heavy/Power Metal, Melodic Death MetalПродолжительность: 06:44:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
+magnet:?xt=urn:btih:30A5A8B3549B600F63F023156505C7EFB228EF85
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609307   (94726) от 04.10.2025
+###  Публикация: 1721435   (57302) от 07.05.2024
 
-Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Cliff Richard - Rock 'N' Roll Juvenile (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hypocrisy — шведская дэт-метал-группа, образованная в октябре 1991 года в Людвике Петером Тэгтгреном.1992 - Penetralia
-1993 - Osculum Obscenum
-1994 - The Fourth Dimension
-1996 - Abducted(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 17:12:39
+A1 Monday Thru' Friday
+A2 Doing Fine
+A3 Cities May Fall
+A4 You Know That I Love You(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:44:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
+magnet:?xt=urn:btih:98DAAF04C4B084546C2644B32DA3C3CFD3941983
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595019   (58673) от 24.04.2024
+
+Scott Stapp (Creed) - Studio Albums (4 releases) (2005-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Post-Grunge, Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scott Stapp — (урожденный Энтони Скотт Флиппен; 8 августа 1973 г.) — американский певец, наиболее известный как ведущий вокалист и автор текстов рок-группы Creed.
+Он также возглавлял группу Art of Anarchy.
+За свою работу в Creed Стэпп неоднократно награждался, в том числе Грэмми за лучшую рок-песню «With Arms Wide Open»2005 - The Great Divide
+2013 - Proof Of Life
+2019 - The Space Between The Shadows
+2024 - Higher PowerЖанр: Post-Grunge, Hard Rock, Heavy MetalПродолжительность: 02:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E40C39139F5B3CD9B537D75BB206FC49AC94BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595443   (58683) от 24.04.2024
+
+Art Of Anarchy - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art of Anarchy — американская хард-рок супергруппа, образованная в 2011 году. В состав группы входят братья-близнецы Джон и Винс Вотта, басист Disturbed Джон Мойер, бывший гитарист Guns N 'Roses Рон «Бамблфут» Тал в качестве со-гитариста и продюсера, а с 2016 года - Скотт Стэпп, бывший вокалист Creed.
+В первом альбоме группы вокалистом был ныне покойный Скотт Вейланд, (   Читать дальше...   )2015 - Art Of Anarchy
+2017 - The Madness
+2024 - Let There Be AnarchyЖанр: Hard Rock, Post-Grunge, Heavy MetalПродолжительность: 02:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A7F4451CF54FB2D3DB77C7A603D88919FB4430
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647037   (59085) от 20.04.2024
+
+My Dying Bride - Studio Albums (21 releases) (1991-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59085.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Dying Bride — дэт-дум-метал-группа из Англии, основанная в 1990 году.1991 - Symphonaire Infernus Et Spera Empyrium (EP)
+1992 - As The Flower Withers
+1992 - The Thrash Of Naked Limbs (EP)
+1993 - Turn Loose The SwansЖанр: Doom/Death MetalПродолжительность: 20:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847D0567323FD06FB4B96585F1D0A986E59A12B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716321   (59611) от 15.04.2024
+
+Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59611.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I'm In The Mood For Dancing
+A2 Spirit, Body And Soul
+A3 Out Of Love With Love
+A4 Bright Eyes(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EC8D2C89127596138BE1695609EE8CF166CB91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519346   (60091) от 11.04.2024
+
+Five Finger Death Punch (5FDP; FFDP) - Studio Albums (11 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five Finger Death Punch  (с англ. — «Смертельный удар пятью пальцами», сокращённо 5FDP и FFDP) — американская грув-метал-группа, образованная в 2005 году в Лос-Анджелесе, Калифорния, Золтаном Батори, гитаристом венгерского происхождения, в прошлом — басиста U.P.O. Кроме Батори в состав группы входят бывший вокалист2007 - The Way Of The Fist
+2009 - War Is The Answer
+2011 - American Capitalist
+2013 - The Wrong Side of Heaven and The Righteous Side of Hell(   Читать дальше...   )Жанр: Groove metalПродолжительность: 10:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FA8ECD7604578E00BFA8BA1886F0A447926B74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709650   (60368) от 08.04.2024
+
+Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Nu Metal, Funk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guano Apes — альтернативный рок-квартет из Гёттингена, Германия, образованный в 1994 году.1997 - Proud Like A God
+2001 - Don't Give Me Names
+2003 - Walking On A Thin Line
+2004 - Planet Of The ApesЖанр: Alternative Rock, Nu Metal, Funk MetalПродолжительность: 08:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4460A371B31DC2FF4D462F7C943A889DEDF07AE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556221   (60749) от 04.04.2024
+
+Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Djent, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bad Wolves — американская супер-группа, играющая в стиле грув-метал. Группа образована в 2017 году и стала наиболее известна исполнением кавер-версии хита The Cranberries 1994 года «Zombie». По мнению самих участников, их стиль, это рок при пониженном строе гитар с элементами джента.2018 - Disobey
+2019 - N.A.T.I.O.N.
+2021 - Dear Monsters
+2023 - Die About It(   Читать дальше...   )Жанр: Groove Metal, Djent, MetalcoreПродолжительность: 04:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498E04B8F6D9FED231EC3F098F4041C010A18544
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619837   (61093) от 01.04.2024
+
+Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sum 41 — канадская рок-группа из города Эйджакс, Онтарио. Была образована в 1996 году2000 - Half Hour Of Power (EP)
+2001 - All Killer, No Filler
+2002 - Does This Look Infected
+2004 - ChuckЖанр: Punk RockПродолжительность: 07:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAC64F7915A47CE9989B7080A05AD955659E633
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603099   (61626) от 27.03.2024
+
+Гран-КуражЪ - Студийные альбомы (13 изданий) (2006-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-КуражЪ (с 1999 по 2007 «КуражЪ») — российская хеви-пауэр-метал группа, основанная в 1999 году в городе Бронницы Московской области гитаристом Михаилом Бугаевым. Изначально коллектив не имел широкой известности и выступал исключительно в родном городе. Набирать обороты группа стала в 2004 году, когда образовался так называемый «золотой» состав, сохранявшийся (   Читать дальше...   )2006 - Вечная Игра
+2008 - Новой Надежды Свет
+2012 - Сердца В Атлантиде
+2016 - Жить как никто другойЖанр: Heavy/Power MetalПродолжительность: 07:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BF2149C4B1A82CACB8BE44CF7BDC1AF8FF0F34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709617   (61795) от 25.03.2024
+
+Пикник - Иероглиф (1987) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Остров
+02. Иероглиф
+03. Праздник(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C024F4716C42DAA660D4396DD7B863641B3088
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709614   (61799) от 25.03.2024
+
+James Last (Джеймс Ласт) - Большой секрет (1977) [FLAC 24/192|Lossless|tracks] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ликование / Jubilation (P. Anka / J. Harris)
+02. Колыбельная / Summertime (G. Gershwin / D. Heyward)
+03. Я не могу двигать горы / I Can’t Move No Mountain (M. Gately/ R. John)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5141EAF3474509EA5721B0489B5836D9067FC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709678   (61806) от 25.03.2024
+
+VA - Пионерские песни - А. Долуханян (1969) [FLAC 24/192|Lossless|tracks] <Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Если петь нам о Родине (В. Семернин)
+02. Песня о первом пионерском отряде (С. Рунге)
+03. До чего же хорошо кругом (Л. Некрасова)
+04. В добрый путь (В. Харитонов)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FB9A54D834AB8B67BC708814D9E09BDCA6BBBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709696   (61817) от 25.03.2024
+
+VA - Пульс 1 - Музыкальный компьютер. (Серия "Спорт и музыка") (1985) [FLAC 24/192|Lossless|tracks] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+А.Родионов. "Современное пятиборье" (сюита)
+01-Догоняй, компьютер (кросс)
+02-Электронный наездник (скачки)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB504B5680808F2FAAD2A2D0BB3228310996858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709620   (61832) от 25.03.2024
+
+Пикник - Родом ниоткуда (1989) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Я невидим
+02. Интересно
+03. Нет берегов(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD2332778A4AB5E8BD3B0F71CBEAD52FA1C7AA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709398   (61904) от 24.03.2024
+
+Олег Даль - Песни из кинофильмов (1988) [FLAC 24/192|Lossless|tracks] <Pop, Retro, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорожная, из к/ф "Старая, старая сказка" (А.Петров - А.Галич)
+02. Шагал дурачок, из к/ф "Как Иванушка-дурачок за чудом ходил" (М.Вайнберг- М.Вольпин)
+03. Величальная, из к/ф "Как Иванушка-дурачок за чудом ходил" (М.Вайнберг- М.Вольпин)
+04. Балдадама, из т/ф "Расмус-бродяга" (Б.Чайковский - Д.Самойлов)(   Читать дальше...   )Жанр: Pop, Retro, SoundtrackПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF94E3593AFB45B618AE55713D87BFC336B77DD
 ```
 
 

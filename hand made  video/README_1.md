@@ -3,7 +3,7 @@
 Двое: Я и моя тень / It Takes Two (1995) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3224.jpg" />
@@ -28,7 +28,7 @@ magnet:?xt=urn:btih:113C32CAAD7661BBAE6892AEF4641B35B99177CD
 Призраки Марса / Ghosts of Mars (2001) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3371.jpg" />
@@ -52,7 +52,7 @@ magnet:?xt=urn:btih:C1AEC41FD4D7C1066F41E79656408647C136AD95
 Планета Ка-Пэкс / K-PAX (2001) BDRip [H.264/2160p] [4K, SDR] [Hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3620.jpg" />
@@ -76,7 +76,7 @@ magnet:?xt=urn:btih:934F2E1D9ECC2EC4B024959975B29971A967F12C
 Во имя короля: История осады подземелья / In the Name of the King: A Dungeon Siege Tale (2007) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3778.jpg" />
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:D66D430339ECC0D41CABE4C68C7999BB5222D22E
 Трудно быть богом / Es ist nicht leicht, ein Gott zu sein (1989) DVDRip [H.264/2160p] [4K, SDR] [Hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3783.jpg" />
@@ -125,7 +125,7 @@ magnet:?xt=urn:btih:54DA64EF2BD1D79AD287A12D98A86EB15A75785B
 Рокко и его братья / Rocco e i suoi fratelli (1960) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3790.jpg" />
@@ -149,7 +149,7 @@ magnet:?xt=urn:btih:FC191FDDBAC64C3144D4441F08356621886C9E3B
 Плагиатор (2025) WEBRip [AV1/1080p-LQ] [10-bit] [Handmade]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3932.jpg" />
@@ -173,7 +173,7 @@ magnet:?xt=urn:btih:7DB8AF52B138F4690FBFD6DBB4FF351BF1097840
 Нежная мишень / Cible emouvante (1993) DVDRip [AV1/1080p] [Handmade Upscale AI] [MVO]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3944.jpg" />
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:DCDBFC267355594372BF82B4105BB7B9688B363B
 Любовь с уведомлением / Two Weeks Notice (2002) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3945.jpg" />
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:2D8EF4CDA146B42F19888DC8A8CD9F7067AAC172
 Легенда о Нараяме / Narayama bushiko / The Ballad Of Narayama (1983) BDRip [H.264/1080p] [Handmade correction AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4218.jpg" />
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:147F87DF8BA94FFBA59064D6C5AFEC6B966AACC9
 Двухсотлетний человек / Bicentennial Man (1999) WEB-DLRip [H.264/1080p-LQ] [handmade AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4229.jpg" />
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:56A9859B48C3363CB3851F729457828CB5B7BB2B
 Аватар: Путь воды / Avatar: The Way of Water (2022) BDRip 3D [H.265/1080p] [Горизонтальная анаморфная стереопара] [hand made 120 fps]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4299.jpg" />
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:DDFC3452F3FD90B10656371525310461B9D9F865
 Афоня (1975) BDRip [H.264/1080p-LQ] [handmade remastered AI]
 
 >>След.
->>4
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4618.jpg" />
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:A94CC520FFB5940C0D3EEA009897249D7E9156AD
 Астерикс и Обеликс: Миссия Клеопатра / Asterix & Obelix: Mission Cleopatre (2002) DVDRip [H.264/1080p/60fps] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4668.jpg" />
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B82B792B4AD8977441AD9A46504FCF58FD46B860
 Роковое число 23 / The Number 23 (2007) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4714.jpg" />
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:46F45DC51A3BD705FDD0A370B1AD166BA8605D7A
 Стрелец неприкаянный (1993) WEB-DLRip [H.264/1080p] [Handmade upscale AI]
 
 >>След.
->>4
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4739.jpg" />
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:55E78F94F62DE635BD311C303B9C94CCF1FD9E15
 Час расплаты / Paycheck (2003) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4853.jpg" />
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:46BDDDF57D799A6A0258D3989407C09277627170
 Алита: Боевой ангел / Alita: Battle Angel (2019) BDRip 3D [H.265/1080p] [Горизонтальная стереопара] [hand made 120 fps]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4995.jpg" />
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:98FA1E028F155BFC871F21CD2192240BA9F58243
 Остров головорезов / Cutthroat Island (1995) BDRip [H.264/1080p] [handmade AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5034.jpg" />
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:92D8CD890274F5795FDCB5A764DE7B5B21970D98
 Меч короля Артура / King Arthur: Legend of the Sword (2017) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5240.jpg" />
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:C8FFA6B5C57E47E9FDBA12E378515C751ADCF74A
 Настоящая МакКой / The Real McCoy (1993) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5272.jpg" />
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:693CF0546308026151F50541B9967E6F2F155F3B
 Лучший стрелок / Top Gun (1986) WEBRip [H.264/1080p-LQ] [Open Matte] [Handmade]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5383.jpg" />
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:D310B4498EC9D9B2C42BCEBCFCFC064B6AE4E387
 Формула-1 / F1: The Movie (2025) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5438.jpg" />
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:3039B6153B328ADCA4C57E1B992BF67AB0E62A16
 Чужой: Завет / Alien: Covenant (2017) Hybrid [H.264/1080p]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5703.jpg" />
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:D4E1BCE25597B5606A351DCB40E282E44F6D09A1
 Кухня в Париже (2014) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5710.jpg" />
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:4EFDED907CD7B35DCA48562A365A38507702379F
 Центурион / Centurion (2009/2010) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5723.jpg" />

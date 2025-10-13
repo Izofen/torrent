@@ -3,7 +3,7 @@
 Подозрительные лица / The Usual Suspects (1995) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12281.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:1BCDAF420E9694C25DF057739AD590DAB13A392A
 Волк с Уолл-стрит / The Wolf of Wall Street (2013) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12285.jpg" />
@@ -51,7 +51,7 @@ magnet:?xt=urn:btih:BD2F06185B79AEC91D8A7F0D8D7478CF180212F8
 Тутси / Tootsie (1982) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12288.jpg" />
@@ -75,7 +75,7 @@ magnet:?xt=urn:btih:1560A7CA60D3FD3055D2B6AB19C51974650173EC
 Тариф Новогодний (2008) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12310.jpg" />
@@ -99,7 +99,7 @@ magnet:?xt=urn:btih:D7162B17AFF70BC653845EB3C48414CF17EAC2C9
 Дивергент, глава 3: За стеной / Allegiant (2016) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12364.jpg" />
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:A4838893187C067DB6E0FBF7756483FA638FFC4E
 Васаби / Wasabi (2001) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12365.jpg" />
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:4D0F957E6839D49292DE1E32E91AE6A974F92587
 Обитель зла / Resident Evil (2002) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12372.jpg" />
@@ -173,7 +173,7 @@ magnet:?xt=urn:btih:12051CEA915262906FCE497FC9E963DAA3AE973B
 Грязные танцы 2. Гаванские ночи / Dirty Dancing: Havana Nights (2004) BDRip [H.264/2160p] [4K, SDR, 8-bit] [Hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12373.jpg" />
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:BA91050A93D4722DC81E87F7D8B59F0B3E5412E5
 Последнее искушение Христа / The Last Temptation of Christ (1988) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12445.jpg" />
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:5CB16DEDB3EB10D3EA4FF5C2A9A2AEC96D3019C3
 На границе (1938) WEBRip [H.264/1080p] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12446.jpg" />
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:9B3E4557814ABB7F7E659EC84A468811DB4DC451
 Чёрные воды / Black Water (2018) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12463.jpg" />
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:40FAD44B6BE659DF50BADCED54A4BD775A6D31CC
 Подземка / Subway (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12464.jpg" />
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:0A388CFECF6AF228EBA7CABA407D6E655B36369C
 Лукас / Lukas (2018) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12469.jpg" />
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:935125625563BFB268C86B6635C81A2758EF27AE
 Волочаевские дни (1938) WEBRip [H.264/1080p] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12626.jpg" />
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:075E172D52D3F1D67BFA8E49388ECA19590D651B
 Дикие сердцем / Wild at Heart (1990) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12650.jpg" />
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:44A228AC796AB10786124378783DC9CC03A32849
 Перед рассветом (1989) HDTVRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12651.jpg" />
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:8274AB360ACF2A2BD9DF615EF916B8A76ED1E250
 Обитель зла 3 / Resident Evil: Extinction (2007) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12652.jpg" />
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:979B4C9CA8848CDDD65565EF4CEE2E54BB14EEA8
 Аты-баты, шли солдаты... (1976) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12654.jpg" />
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:9C7A63546B65441A0F47A5A68888219BF028706F
 Скайлайн / Skyline (2010) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12682.jpg" />
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:6F7B68ED2A8D6CE5ACA2A9FBFDDCD2D96FF7BB82
 Скайлайн 2 / Beyond Skyline (2017) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12686.jpg" />
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:26EE17F53AE91A54CD2C35FBE8EAA066CEFF7450
 Обитель зла: Возмездие / Resident Evil: Retribution (2012) WEBRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12779.jpg" />
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:08DD174433B92DDA8158381D0DB546B27E52D5E4
 Мой личный штат Айдахо / My Own Private Idaho (1991) BDRip [AV1/2160p] [4K, SDR, 10-bit]  [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12788.jpg" />
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:646E9E6A3D424484E4BB263DF68A3211EE536DB7
 Чужие среди нас / They Live (1988) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12812.jpg" />
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:1C49439A262311037247A61184961EA7F5D36805
 Горячий снег (1972) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12840.jpg" />
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:48F63AF1FC16831A1B82706744409169F57AC2A9
 Они сражались за Родину (1975) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12865.jpg" />
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:1623551A4E57A41AED48BC83A51959755C14AB90
 Визуальная Библия: Деяния святых Апостолов / The Visual Bible: Acts (1994) DVDRip [H.264/1080p] [VO] [handmade upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12869.jpg" />

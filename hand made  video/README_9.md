@@ -3,7 +3,7 @@
 Укрощение строптивых (2009) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13466.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:D47FE847B6C72C5F1226458DF9BA8594652AE750
 Марс атакует! / Mars Attacks! (1996) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13474.jpg" />
@@ -52,7 +52,7 @@ magnet:?xt=urn:btih:68A533D0DA99D454B7A21436D1BCE9E5064F503C
 Прибытие / The Arrival (1996) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13482.jpg" />
@@ -77,7 +77,7 @@ magnet:?xt=urn:btih:8F97F33DD6482290331D209CE2D52F4B9959AB31
 Другой мир 2: Эволюция / Underworld: Evolution (2006) BDRip [H265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13589.jpg" />
@@ -101,7 +101,7 @@ magnet:?xt=urn:btih:E218C9E54081E6A5F3EE1853536498189ABC3945
 Адмирал Ушаков (1953) WEBRip [AV1/2160p] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13594.jpg" />
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:449558CC31718AE6635EAD5290519A4FDC2566E5
 Прометей / Prometheus (2012) BDRip [H265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13639.jpg" />
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:66FB9336F9D7812A7D74A2DFFB8836B206ACB52B
 Охотники за привидениями / Ghostbusters (1984) BDRip [H.264/1080p-LQ] [handmade AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13661.jpg" />
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:82FDBEE6363D2D9E60A4D6072CAEF363F5F20D63
 Бамблби / Bumblebee (2018) BDRip [H.265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13684.jpg" />
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2607A7CB60CA78F9B4690C2EF4299B0DC722A4D6
 Трансформеры: Последний рыцарь / Transformers: The Last Knight (2017) BDRip [H265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13693.jpg" />
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:5943C6BE0D0DF50577C262C9D5805D9ED1C4B032
 Валерий Чкалов (1941) WEBRip [H.264/1080р] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13698.jpg" />
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:2E4B2DEE4994CC216F1CAFBCA8FE46A53742104D
 Безумный Макс / Mad Max (1979) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13713.jpg" />
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:7C755CCA40B1490B3C1DAFCBD7170F9EA1CBC7EB
 Завещание / Testament (1983) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13766.jpg" />
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:9E6EDDAA8AE257F4D1A0CC391B9D6ED0FB0B1FC8
 Трансформеры: Эпоха истребления / Transformers: Age of Extinction (2014) BDRip [H265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13771.jpg" />
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:E22B088E0893610828408BEFED002FC443027FC5
 Робокоп 2 / RoboCop 2 (1990) BDRip [H265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13774.jpg" />
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:1DE55A3B9D164B3C0C4CC6E8DCC8D357D6AF3CC9
 Человек № 217 (1944) WEBRip [H.264/1080р] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13777.jpg" />
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:650CB840B5343FDDE046A970F6C705E3A45F35E0
 Другой мир 2: Эволюция / Underworld: Evolution (2006) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13778.jpg" />
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:3739CAB2FBFF733D31975E85F163A3C6F375813D
 Напролом / Lockout (2012) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13790.jpg" />
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:04F38E6D43C9E5A1715D5CB208B777916F5FFB74
 Области тьмы / Limitless (2011) HybridRip [AV1/2160p] [4K, SDR, 10-bit] [Theatrical Cut] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13792.jpg" />
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:6CDB3CF168AB40EF3FB2E64A160952F41EC92256
 Непримиримые противоречия / Irreconcilable Differences (1984) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13797.jpg" />
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:F86BA3B35ABA985F18F279BDCF40A1B842DF2557
 На крючке! (2011) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13801.jpg" />
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:40FDBD21B8DBCBBEA19C98B8D6B74709A96BBC2E
 Довод / Tenet (2020) BDRip [AV1/2160p] [4K, SDR, 10-bit] [IMAX Edition] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13802.jpg" />
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:D85275EEDB3A3D93FC31C50CE44F292173889613
 Коматозники / Flatliners (1990) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13806.jpg" />
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:A4ECC42F9032F6B758198B91C56BA488AC4E76E3
 Скорая / Ambulance (2022) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13808.jpg" />
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:36D848A1069781F6F5ACE4E1A4E6D3D498C711A4
 Робокоп / RoboCop (1987) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13809.jpg" />
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:DBB4CE81362E7D4E37F2B490BD5C0747E3EAA7A0
 Бессмертный гарнизон (1956) DVDRip [H.264/1080p] [handmade upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13823.jpg" />
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:6A255AF7C4BE7C813A187C21D8C17AFEA42149AC
 Придорожное заведение / Red Rock West (1993) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13895.jpg" />

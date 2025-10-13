@@ -3,7 +3,7 @@
 Seal of Evil (2006) [En] (1.06) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>RPG
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_323.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:8511C3156E84C1AF545C5729CA4D6E39AD36634F
 The Blackwell Unbound (2007) [En] (4.5) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2849.jpg" />
@@ -51,7 +51,7 @@ magnet:?xt=urn:btih:C2A7378ABE23C3DA15BD1F652A6EC86FCB0D41B1
 STORROR Parkour Pro (2025) [En] (0.1 Hotfix) Repack Let'sРlay [Early Access]
 
 >>Win Старые Игры
->>Военное дело
+>>Demo/Beta версии Игр
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3032.jpg" />
@@ -75,7 +75,7 @@ magnet:?xt=urn:btih:A5DE78C86FD6ACCA1892177EDBA752F995C43F05
 PowerSlave (1996) [En] (1.0) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Action (FPS)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4336.jpg" />
@@ -99,7 +99,7 @@ magnet:?xt=urn:btih:7E179E003E0FAB7050A9B8E82D44C30C08ED2252
 A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4685.jpg" />
@@ -123,7 +123,7 @@ magnet:?xt=urn:btih:A0EC8C85ECB84008CA8C9D9EADB7D41E09D70C2A
 Emperor of the Fading Suns / Император Угасающих Звезд (1997) [En] (1.5.2a-p1) License GOG [Enhanced]
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4731.jpg" />
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:079C0852C84086A0D07969E7CEF2AA7767AD5B5B
 Lords of Magic (1998) [En] (1.0) License Sierra
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5024.jpg" />
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:D55B868D257112F38C67F8A175606B068786D7E9
 The Blackwell Legacy (2006) [En] (4.0c) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6212.jpg" />
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:DE2B1B1FCBBBA0DEB4BACECF619B3115745A07F1
 The Blackwell Deception (2011) [En] (3.5) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6218.jpg" />
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:9879DF79EE44E130A257B2BE5010A64BDE2FAB7A
 Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | Pilotus
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy (Manage/Busin)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7006.jpg" />
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:2D66AD1E9A390DF53097F9AA35C708A145B1E161
 Emergency: Fighters for Life (1998) [En] (1.0) License
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy (Manage/Busin)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8133.jpg" />
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:572D4A68458F254768D5EA0C91D65CDC34EB5704
 Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (2005) [Ru] (1.02) Repack Fenixx
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy (Manage/Busin)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8460.jpg" />
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:FDD9FC32FB5B630ADE2746AD341E375F6AC2E33A
 Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (2005) [Ru] (1.02) License Новый Диск
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy (Manage/Busin)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8693.jpg" />
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:079327D0E923949246A18D3DE6232706FF358D59
 OpenSCP (2025) [Ru/En] (01.05) Repack/Mod AndyFox
 
 >>Win Старые Игры
->>Военное дело
+>>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9368.jpg" />
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:B9911DC80D7643453588A03ECD064B1FE07F0B9F
 Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9581.jpg" />
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:9337F34EE5AA75F59B0D9E95C87E98F9C1B7DAD2
 Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9606.jpg" />
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:13ED6691503253054BCA8D661CF3C98CB9C0CE3F
 Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9614.jpg" />
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:984F1F73222BDD951603B2E38482F916AA4C5217
 Mortal Kombat 4 (1997) [En] (2.1) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Arcade
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9794.jpg" />
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:C1BD85849D2F197C5BC67D5C28F5E003DF107155
 X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 
 >>Win Старые Игры
->>Военное дело
+>>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10503.jpg" />
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:4910F5EBDA69CF9C2A23D6A324E314ADEDF78344
 Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 
 >>Win Старые Игры
->>Военное дело
+>>Simulation (Flight/Space)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11011.jpg" />
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:BF1A3B0FAFAB1A7B5B5040816EB996AEFCEA5392
 Провинциальный игрок 2 / Возвращение игрока (2004) [Ru] (1.01) License Акелла [16+]
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11766.jpg" />
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:EB704DA609CD2133A5995F2D1E9D8FE53816A9FF
 Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13155.jpg" />
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:2F1EA50BA19C89AC801975CA58613289C68FC3FB
 Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Action (FPS)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13187.jpg" />
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:E0382F342CB42A1EC75516EF2D4704C3056E2561
 Manhunt (2004) [Ru] (1.1) Repack EXROW
 
 >>Win Старые Игры
->>Военное дело
+>>Action (TPS)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13203.jpg" />
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:98B0B3664E2B5B03D07CEF34C35A350B7B9F9F9D
 Far Cry (2004) [Ru] (1.40) Repack EXROW
 
 >>Win Старые Игры
->>Военное дело
+>>Action (FPS)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13219.jpg" />
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:ABD62E4D44E4320D38EE19AB65C7C31BD3E46D9A
 Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 
 >>Win Старые Игры
->>Военное дело
+>>Action (FPS)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13221.jpg" />

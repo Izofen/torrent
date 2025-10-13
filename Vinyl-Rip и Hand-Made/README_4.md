@@ -539,163 +539,165 @@ magnet:?xt=urn:btih:ADF72316D01E871914967F50E8E39833B6E8F20F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592127   (40997) от 01.10.2025
+###  Публикация: 1794646   (19754) от 30.04.2025
 
-Drowning Pool - Studio Albums (7 releases) (2001-2025) hand made [restored, declipped] [FLAC|44.1/16|tracks +.cue] <Post-Grunge, Nu Metal>
+Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Drowning Pool — американская рок-группа из Далласа (Техас). Образована в 1996 году.2001 - Sinner
-2004 - Desensitized
-2007 - Full Circle
-2010 - Drowning PoolЖанр: Post-Grunge, Nu MetalПродолжительность: 06:28:41
+Eternal Storm - испанская метал-группа, созданная в Мадриде в 2009 году.2013 - From The Ashes (EP)
+2019 - Come The Tide
+2024 - A Giant Bound To FallЖанр: Progressive Melodic Death MetalПродолжительность: 02:39:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4678C39DE13D135B7F6D5CC8E578198CFC092F6
+magnet:?xt=urn:btih:895BA6E788D2DDBF87B0AB5C60B52E5357CC36A8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672010   (40998) от 01.10.2025
+###  Публикация: 1794470   (19838) от 29.04.2025
 
-Bal-Sagoth - Studio Albums (6 releases) (1995-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Epic Black Metal>
+Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Темные Улицы (1982) Balkanton, Bulgaria, Licensed From – EMI [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bal-Sagoth — английская группа, играющая в жанре симфонический блэк-метал, существующая с 1993 года. Как представитель эпик-метала, Bal-Sagoth тяготеют к крупным эпическим формам, создавая сюжетные концептуальные альбомы в жанре фэнтэзи.1995 - A Black Moon Broods over Lemuria
-1996 - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule
-1997 - Battle Magic
-1999 - The Power CosmicЖанр: Symphonic/Epic Black MetalПродолжительность: 05:17:58
+A1 It's Your Life • Твоя Жизнь
+A2 I Can't Stay Here Tonight • Не Могу Остаться Здесь В Этот Вечер
+A3 Sunshine Avenue • Солнечный Бульвар
+A4 Think Of Me • Думай Обо Мне(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:39:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C8936449B0F7493FC1146813EAB6EE5EFE99884
+magnet:?xt=urn:btih:F39CD250A23C420F07AC529951AC06EB5ACFA5E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568153   (52083) от 02.10.2025
+###  Публикация: 1658183   (20048) от 27.04.2025
 
-Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+Orbit Culture - Studio Albums (8 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Within Temptation — нидерландская симфоник-метал-группа. Группа была основана в 1996 году гитаристом Робертом Вестерхольтом и вокалисткой Шарон ден Адель. Музыкальный стиль Within Temptation определяют как симфоник-метал, а на ранних записях — готик-метал. Сама Шарон ден Адель считает, что Within Temptation работают в жанре симфоник-рок с разными влияниями и не являются (   Читать дальше...   )1997 - Enter
-1998 - The Dance (EP)
-2001 - Mother Earth
-2004 - The Silent ForceЖанр: Symphonic MetalПродолжительность: 10:41:53
+Orbit Culture — шведская мелодик-дэт-метал группа из города Эксё, образованная в 2013 году.2013 - Odyssey (EP)
+2014 - In Medias Res
+2016 - Rasen
+2018 - Redfog (EP)Жанр: Melodic Death/Groove MetalПродолжительность: 04:51:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA239E1F5863B411FA77A4621A3C3498E95F03DB
+magnet:?xt=urn:btih:CBEA716A3F1A52AED6BA3DF8A74558AD23FBDE9F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673285   (52084) от 02.10.2025
+###  Публикация: 1745105   (20167) от 26.04.2025
 
-Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Havok — американская трэш-метал группа из Денвера, штат Колорадо. Основана в 2004 году.2009 - Burn
-2011 - Time Is Up
-2013 - Unnatural Selection
-2017 - ConformicideЖанр: Thrash MetalПродолжительность: 04:59:44
+Sacred Steel - немецкая пауэр-метал группа из Людвигсбурга, образованная в 1997 году.1997 - Reborn In Steel
+1999 - Wargods of Metal
+2000 - Bloodlust
+2002 - Slaughter ProphecyЖанр: Epic Power MetalПродолжительность: 08:03:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDC5911D7DEC647FFBAABEF25AFC6494DF00F3F8
+magnet:?xt=urn:btih:090936DC08D192DA7FD5E892279DC877E983A5D1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763031   (63850) от 03.10.2025
+###  Публикация: 1598981   (20179) от 26.04.2025
 
-Bloodred Hourglass (BRHG) - Studio Albums (7 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal; Metalcore>
+H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Arena Rock, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bloodred Hourglass - мелодик-дэт/трэш-метал группа из г. Миккели, Финляндия.2012 - Lifebound
-2015 - Where The Oceans Burn
-2017 - Heal
-2019 - GodsendЖанр: Melodic Death/Thrash Metal; MetalcoreПродолжительность: 05:50:32
+H.E.A.T — шведская рок-группа из Upplands Väsby, играющая в стиле Melodic Rock и AOR.
+Группа возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году был выпущен дебютный альбом H.e.a.t.
+Группа выступала на Melodifestivalen 2009 — шведском этапе Евровидения - но не одержала победу в финале.
+После долгих летних (   Читать дальше...   )2008 - H.E.A.T
+2010 - Freedom Rock
+2012 - Address The Nation
+2014 - Tearing Down The WallsЖанр: Arena Rock, Hard RockПродолжительность: 06:57:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2098A30025A295504E35B673077EC1A650370101
+magnet:?xt=urn:btih:F128002155276B9287FF5E8F65BF4C7B7E90718B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821665   (63877) от 03.10.2025
+###  Публикация: 1609862   (20398) от 24.04.2025
 
-VA - XVI. Album Supraphonu (1977) Compilation, Partially Mixed, Sampler [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 K. Gott, L. Staidl Se Svym Orchestrem - Divkam
-A2 M. Vobornikova A Sbor L. Panka, Tanecni Orchestr Cs. Rozhlasu - Rada Silne Muze Mam
-A3 W. Matuska A O. Blechova, Studiovy Orchestr Mojmir Balling - Kdo Ma Rad
-A4 H. Zagorova, K. Vagner Se Svym Orchestrem - Kdyz Pisne Lzou(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:43
+Nachtblut - немецкая дарк-метал группа, основанная в Оснабрюке в 2005 году.2007 - Das letzte Abendmahl
+2009 - Antik
+2012 - Dogma
+2014 - ChimonasЖанр: Extreme Gothic MetalПродолжительность: 06:13:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11B13E718F16DDE7C1C74DFA46CCFC99FDA4D753
+magnet:?xt=urn:btih:7F777968699ED6F10B36BFFEBB3F57185143D602
 ```
 
 

@@ -170,171 +170,474 @@ magnet:?xt=urn:btih:C1D307011613D2AC0E796E92D8494E97C19CFD20
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821416   (52066) от 02.10.2025
+###  Публикация: 1794601   (19760) от 30.04.2025
 
-Мария Райдер | Как подружиться с ChatGPT (2025) [PDF]
+Yan Jia, Zhaoquan Gu, Aiping Li et al. (eds.) | MDATA Cognitive Model: Theory and Applications (2025) [PDF] [EN]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга станет вашим проводником в мир общения с ChatGPT — одной из наиболее продвинутых нейросетей современности. Автор подробно рассказывает обо всех возможностях платформы, показывает эффективные методы взаимодействия с ней, помогает избежать распространенных ошибок и раскрывает секреты эффективного использования инструмента для решения повседневных задач.Жанр: Компьютерная литература, нейросетиИздательство: КнигиумФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D7D33AB982571E28FBA6AD56F7A6E7D17A0785
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821418   (52067) от 02.10.2025
-
-Лили Мара, Джоэл Холмс | Переход на Rust. Рефакторинг исходного кода с других языков (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас расширять функциональность и повышать производительность приложений за счет поэтапного рефакторинга кодовой базы на язык Rust. Вы узнаете, как использовать Rust для обертывания опасного исходного кода, вызывать стандартные и прикладные библиотеки языка Rust и даже использовать формат байт-кода Wasm для исполнения кода Rust в браузере, а также (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. В. ЛогуновИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821660   (63855) от 03.10.2025
-
-Максим Лабонн, Артем Груздев | Графовые нейронные сети на Python (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Графовые нейронные сети стали одной из самых интересных архитектур в глубоком обучении. Технологические компании теперь пытаются применить их повсюду: в системах рекомендаций еды, видео и поиска романтических партнеров, для выявления фейковых новостей, проектирования микросхем и 3D-реконструкции.
+This book presents the theoretical foundations of the MDATA cognitive model and its applications in the field of cybersecurity. The MDATA model is an innovative analytical tool designed to simulate and improve cognitive processes. It bridges cognitive science and cybersecurity, making it essential for professionals and researchers in these fields.
 
-Прочитав книгу, вы научитесь создавать собственные графовые наборы (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Артем ГруздевИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+The core content (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26D28857C05B49D09F651DD3D0E10E1FD0DE9A7A
+magnet:?xt=urn:btih:FAF4B14E4D154C08EF63C5D7B0155D63148A0DF8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487100   (90326) от 23.04.2012
+###  Публикация: 1794667   (19784) от 30.04.2025
 
-К. Сулейманов, С. Мовшович | Системы баз данных. Реляционные базы данных и работа с ними в среде СУБД MS Access [2010] [PDF]
+Douglas Comer | Operating System Design: The Xinu Approach. 3rd Edition (2025) [EPUB, PDF] [EN]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пособие состоит из шести разделов. В первом разделе приводятся основные понятия реляционной базы данных на примере небольшой реляционной базы данных Поставщики-Детали. Здесь же приводятся определения основных операций реляционной алгебры Кодда: проекция, выборка, экви-соединение, естественное соединение и декартово произведение. Кроме того дается определение левого внешнего и правого внешнего соединений, которые непосредственно поддерживаются в СУБД Access. Во втором разделе описываются основные понятия ER-метода логического проектирования реляционной базы данных (РБД), широко используемого на практике. Третий раздел представляет собой небольшой лабораторный практикум, предназначенный для выработки у студентов практических навыков по созданию реляционной базы данных и работе с ней в среде СУБД Access. В четвертом разделе уточняется понятие межтабличных связей в СУБД Access и представлено обобщенное описание формирования запросов с использованием Конструктора запросов СУБД Access. В пятом разделе пособия приводится (   Читать дальше...   )2010Формат: PDF
+№1 New Release in Computer Operating Systems Theory
+Lauded for avoiding the typical vague, high-level survey approach found in many texts, earlier editions of this bestselling book removed the mystery by explaining the internal structure of an operating system in clear, readable prose. The third edition of Operating System Design: The Xinu Approach expands and extends (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Chapman and Hall/CRC PressФормат: EPUB, PDFКачество: Изначально электронное (ebook), Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49734D207ADA4F1C39B172BFBA3EC30A96AC9117
+magnet:?xt=urn:btih:E0F03FDDCEA668CE2C55AA14FD8352E7526B78B2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487130   (90327) от 23.04.2012
+###  Публикация: 1794333   (19798) от 30.04.2025
 
-Е.М. Карчевский, И.Е. Филиппов | Access 2010 в примерах [2011] [PDF]
+Натан Лифтинг, Брайан ван Бэкел | Zabbix 7: мониторинг ИТ-инфраструктуры (2025) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Access — реляционная СУБД корпорации Microsoft. Имеет широкий спектр функций, включая связанные запросы, связь с внешними таблицами и базами данных. Благодаря встроенному языку VBA, в самом Access можно писать приложения, работающие с базами данных.2011Формат: PDF
+Обновленное третье издание «Zabbix 7: мониторинг ИТ-инфраструктуры» познакомит вас со всеми возможностями Zabbix. Эта книга, включающая различные примеры и описывающая обновленные функциональные возможности Zabbix, охватывает все, что нужно знать для настройки высокой доступности серверов, расширенной аутентификации пользователей с помощью LDAP, реализации низкоуровневого (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED20EEFDD44AF5BAB596AA7CAD488D0165308B37
+magnet:?xt=urn:btih:0821C1FD2DEA24D1C1E6CBC853E37FB4B23603E9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488480   (90932) от 26.04.2012
+###  Публикация: 1794687   (19801) от 30.04.2025
 
-А.С. Кудрявцев | Программирование в Delphi. Учебное пособие [2011] [PDF]
+Nigel Poulton | Quick Start Kubernetes (2025) [PDF, EPUB, MOBI] [EN]
 
 >>Компьютерная литература
->>Программирование
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В пособии рассматриваются общие характеристики и структура программной системы Delphi, графический интерфейс ее среды программирования, основные конструкции используемого языка программирования и технология программирования.2011Формат: PDF
+Quick Start Kubernetes by best-selling author Nigel Poulton is the ultimate beginner's guide to Kubernetes - the revolutionary technology driving the future of modern applications and infrastructure.
+Whether you're a newcomer or looking to expand your expertise, this concise hands-on book will take you from zero to Kubernetes-ready in just 100 pages - no prior experience (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
+magnet:?xt=urn:btih:9631F196DC93856ADC142B4514BC9E58CF809A2E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821884   (91188) от 04.10.2025
+###  Публикация: 1794550   (19837) от 29.04.2025
 
-Анхель Сола Орбайсета | Создание фронтенд-фреймворка с нуля (2025) [PDF]
+Andrew Freed, Eniko Rozsa, Cari Jacobs | Effective Conversational AI: Chatbots that work (2025) [PDF, EPUB, MOBI] [EN]
 
 >>Компьютерная литература
->>Программирование
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы используем фронтенд-фреймворки каждый день, но вряд ли действительно понимаем, что происходит там, под капотом. Создание своего фреймворка – отличный способ узнать, как он работает с DOM, генерирует представления страниц, передает данные между компонентами и взаимодействует с операционной системой. Шаг за шагом мы будем создавать собственный фреймворк на JavaScript (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е.А. МатвеевИздательство: ПитерФормат: PDFКачество: Обработанный скан
+Effective Conversational AI: Chatbots that work
+Create and improve conversational AI with the latest patterns, best practices, and tools, including generative AI models.
+Effective Conversational AI teaches you how to build great chatbots that perform reliably even at enterprise scale. In it, you’ll learn how to clarify user intent using LLMs, respond accurately to (   Читать дальше...   )Жанр: Искусственный интеллект. Нейронные сетиЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA8EADFFF99D8A34E51C662981311A8857D063C2
+magnet:?xt=urn:btih:B2C83143DFCF161688D3A4E13189D78ED60E5CDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794375   (19897) от 29.04.2025
+
+Ge Cheng | ChatGPT: Principles and Architecture (2025) [PDF, EPUB, MOBI] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19897.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChatGPT: Principles and Architecture bridges the knowledge gap between theoretical AI concepts and their practical applications. It equips industry professionals and researchers with a deeper understanding of large language models, enabling them to effectively leverage these technologies in their respective fields. In addition, it tackles the complexity of understanding (   Читать дальше...   )Жанр: Искусственный интеллект. Нейронные сетиЯзык: АнглийскийИздательство: ElsevierФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D125F8121B6A7BA65CD7FF1527EB26431C43B6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794525   (19919) от 29.04.2025
+
+С.П. Зоткин | Программирование на языке высокого уровня C/C++: конспект лекций. 4-е издание (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены основные элементы языков программирования C/C++: типы данных, операторы и операции, структура программы, работа с файлами, основы численных методов решения инженерных задач, организация данных в виде стека, очереди, списка и дерева. Пособие предназначено для обучающихся по направлению подготовки «Информатика и вычислительная техника» а также другим категориям (   Читать дальше...   )Жанр: учебное пособиеИздательство: МИСИ – МГСУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E3B29CB5B3843F694F3A100A7211251359E503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793685   (20308) от 25.04.2025
+
+Matt St. Onge | The Embedded Linux Security Handbook (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20308.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Справочник, написанный экспертом по Linux и открытому исходному коду Мэттом Сент-Онжем, это полное руководство, которое поможет вам создать и защитить устройства на базе Linux, способные противостоять новейшим киберугрозам.
+Book Description
+As embedded Linux systems power countless devices in our daily lives, they’ve become prime targets for cyberattacks. In this (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278AA5E498FB0EB3C283020FC2BEB969AE560731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793386   (20432) от 24.04.2025
+
+Трей Грейнджер, Дуг Тернбулл, Макс Ирвин | Поиск на основе искусственного интеллекта (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные поисковые системы выходят далеко за рамки простого сопоставления поисковых запросов с базой данных. Прочитав эту книгу, вы получите знания и навыки, необходимые для разработки продвинутых поисковых приложений на основе ИИ, способных автоматически обучаться на основе каждого обновления контента и взаимодействия с пользователем. Ключевые понятия и методы (   Читать дальше...   )Жанр: ПрограммированиеИздательство: БХВ-ПетербурrФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD15098988A502CB55F0F71B9E0B71725EB8A18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793302   (20512) от 23.04.2025
+
+Williams Asiedu | Mastering Python (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20512.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book is carefully crafted for both beginners and aspiring developers who want to build real-world skills and apply Python in modern technological fields.
+What makes Mastering Python unique is its hands-on approach to teaching through modules that reflect real-world needs.
+Beyond the modules, Mastering Python prepares readers for broader opportunities. Whether (   Читать дальше...   )Жанр: Программирование. Учебное пособиеЯзык: АнглийскийИздательство: Ouereila Publishing HouseФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01061A4C6F339E78548037FCBE292BF620936628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793132   (20517) от 23.04.2025
+
+Joseph Babcock, Raghav Bali | Generative AI with Python and PyTorch: Navigating the AI frontier with LLMs, Stable Diffusion, and next-gen AI applications. Second Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Become an expert in Generative AI through immersive, hands-on projects that leverage today’s most powerful models for Natural Language Processing (NLP) and computer vision.
+Through business-tested approaches, this book simplifies complex GenAI concepts, making learning both accessible and immediately applicable.
+Key Features
+Implement real-world applications of LLMs (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5955F4F72D443514972BFB8651B54E1AA0830D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793245   (20545) от 23.04.2025
+
+Дэвид Дрисдейл | Эффективный Rust [2 книги] (2024, 2025) [PDF, EPUB] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярность Rust растет, отчасти благодаря таким функциям, как безопасность памяти, безопасность типов и безопасность потоков. Но эти, же элементы также могут сделать изучение Rust сложной задачей даже для опытных программистов. Это практическое руководство поможет вам перейти к написанию идиоматического Rust, при этом в полной мере используя систему типов Rust, (   Читать дальше...   )Жанр: Компьютерная литература. Программирование. Интернет и технологииПеревод: Д. БрайтЯзык: Русский, английскийИздательство: O'Reilly Media, Спринт БукФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473EB23F839FD36B7E151F25EE212F55DF15AACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738195   (49280) от 21.07.2024
+
+S.L. Nita, M.J. Mihailescu | Cryptography and Cryptanalysis in Java. Second edition (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cryptography and Cryptanalysis in Java: Creating and Programming Advanced Algorithms with Java SE 21 LTS and Jakarta EE 11.
+Here is your in-depth guide to cryptography and cryptanalysis in Java. This book includes challenging cryptographic solutions that are implemented in Java 21 and Jakarta EE 11. It provides a robust introduction to Java 21's new features and (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2657BB6B0AED36C5A1D06E542405BD6E804A44DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738185   (49287) от 21.07.2024
+
+T. Edet | Database Fundamentals (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49287.jpg" />
+</div>
+
+
+###  Подробнее
+
+In "Database Fundamentals: Strategies for Efficient Access to Information and Enhanced Decision Making," you’ll explore the historical evolution of databases, understand their critical importance in decision-making, and gain an in-depth understanding of various database models including hierarchical, network, relational, and object-oriented models. The (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CompreQuest BooksФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABFAD543054E35C2CDDFFD6FC5F763239507242
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738203   (49302) от 21.07.2024
+
+21 Draw | Character Designer. Дизайнер персонажей (2019) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство по дизайну персонажей, в котором своими знаниями и опытом делятся легенды индустрии, которые работали с Disney, Marvel, DC, Dreamworks, Pixar и другими студиями.Жанр: 2D графика, рисованиеПеревод: КсенияЯзык: русскийИздательство: Самиздат (21 Draw)Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D7A596422361ED19B118CA6FB390C569BEEF8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738227   (49332) от 21.07.2024
+
+21 Draw | Illustrator's Guidebook. Руководство иллюстратора. Т.1-2 [2 книги] (2016, 2021) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перевод 2-х первых книг "Руководство иллюстратора" от 21 Draw. Пособия по рисунку анатомии и пропорции, созданию персонажей и пейзажей (в том числе городских), работе с линией и цветом и многим другим аспектам!
+Если вы начинающий художник или иллюстратор, вам как никогда необходима эта книга - с ее помощью вы отточите свои навыки. В создании руководства (   Читать дальше...   )Жанр: 2D графика, рисованиеПеревод: клуб Перевод всемЯзык: русскийИздательство: Самиздат (21 Draw)Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB8CD00A0FD80F3DAAD213B8162E778E7B6B0CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737446   (49737) от 17.07.2024
+
+Neil Smyth | SwiftUI Essentials- iOS 15 Edition: Learn to Develop iOS Apps Using SwiftUI, Swift 5.5 and Xcode 13 (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49737.jpg" />
+</div>
+
+
+###  Подробнее
+
+The goal of this book is to teach the skills necessary to build iOS 15 applications using SwiftUI, Xcode 13 and the Swift 5.5 programming language.
+Beginning with the basics, this book provides an outline of the steps necessary to set up an iOS development environment together with an introduction to the use of Swift Playgrounds to learn and experiment with Swift. (   Читать дальше...   )Жанр: Программирование, язык программирования Swift, программирование для AppleЯзык: АнглийскийИздательство: Payload MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE054CAC89C4B16AF6D69A87BCCDF65D9A40ECB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737119   (49956) от 15.07.2024
+
+Nimish Sanghi | Deep Reinforcement Learning with Python: RLHF for Chatbots and Large Language Models. Second edition (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gain a theoretical understanding to the most popular libraries in deep reinforcement learning (deep RL). This new edition focuses on the latest advances in deep RL using a learn-by-coding approach, allowing readers to assimilate and replicate the latest research in this field.
+New agent environments ranging from games, and robotics to finance are explained to help (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Apress Media LLCФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736935   (49968) от 15.07.2024
+
+Е. Ю. Хрусталева | «1С:Предприятие.Элемент». Возможности встроенного языка (2023) [PDF, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга адресована специалистам, разрабатывающим прикладные решения на платформе «1С:Предприятие 8». Она содержит сжатое описание особенностей нового языка разработки, который используется в технологии «1С:Предприятие.Элемент». Основная цель издания – помочь максимально быстро начать разработку на новом языке, овладев новыми возможностями, подходами и не упустив (   Читать дальше...   )Жанр: 1С:Предприятие, программирование 1С, продукты 1СИздательство: 1С-ПаблишингФормат: PDF, EPUBКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
 ```
 
 

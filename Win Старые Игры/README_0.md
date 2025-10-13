@@ -3,7 +3,7 @@
 Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13410.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:91689FE556B59F95794CCA156D322EAA9EAD67AF
 Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13520.jpg" />
@@ -51,7 +51,7 @@ magnet:?xt=urn:btih:C344B5F28E6216060712649D0E73E131567437B6
 VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Arcade
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13528.jpg" />
@@ -75,7 +75,7 @@ magnet:?xt=urn:btih:7AAC84F235F696E7B849E0A9797B7C3C9F18ADBA
 Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13614.jpg" />
@@ -99,7 +99,7 @@ magnet:?xt=urn:btih:7F1AADB44E34DB594075920C7F0CE744FC38BC2F
 BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 
 >>Win Старые Игры
->>Военное дело
+>>Action (FPS)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13637.jpg" />
@@ -123,7 +123,7 @@ magnet:?xt=urn:btih:AD60B18C768A46C929DFA483861456CCDACC467C
 Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13874.jpg" />
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:8013ECEEB0A740CC90371D15FEC2A0C1E507342C
 Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14347.jpg" />
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:E811A1EBE14E7B3527518403D2C9ECDD3AA6A1BC
 Warhammer 40,000: Rites of War (1999) [En] (1.1) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14532.jpg" />
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:9EEDC1659ED9263EBC8E1BE15381D2E4146A3252
 Creatures: Village (2004) [En] (1.11) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Arcade
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14676.jpg" />
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
 I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License Акелла
 
 >>Win Старые Игры
->>Военное дело
+>>Arcade
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14783.jpg" />
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
 День рождения Алисы (2009) [Ru] (1.0) License Акелла
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15176.jpg" />
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 RollerCoaster Tycoon 3 (2006) [Ru/Multi] (1.0) License GOG [Complete Edition]
 
 >>Win Старые Игры
->>Военное дело
+>>Simulation (Other)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15246.jpg" />
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:F4C2AD6EDBA5585ED775A7160411A0B664ED3465
 Hitman 2: Silent Assassin (2002) [En] (1.01) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Action (TPS)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15510.jpg" />
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:178A692A28EB1EAA5DEDF08EAFC99B882BF497E7
 Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 
 >>Win Старые Игры
->>Военное дело
+>>RPG
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18945.jpg" />
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:E4953FCDD4E1BF274E37525F0E63B7A9B08E3950
 Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19408.jpg" />
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:59F9CE9EE962DBDE1BEA35E14D663E9B439A09E7
 Cannon Fodder (1993) [En] (1.01) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Arcade
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19589.jpg" />
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:3081BEFF15C1EFF3B28A9C5235182E529A12850E
 Cannon Fodder 2 (1994) [En] (1.01) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Arcade
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19621.jpg" />
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:0B39E3F79053D3A25817804312997505A3224DA6
 The Elder Scrolls IV: Oblivion (2007) [Ru/En] (1.2.0416cs/dlc) Repack dixen18 [Game of the Year Edition]
 
 >>Win Старые Игры
->>Военное дело
+>>RPG
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19645.jpg" />
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:8B94FB189FD927913B5D7E70675E51604FECB890
 Сталинские соколы (2009) [Ru] (1.0) Unofficial
 
 >>Win Старые Игры
->>Военное дело
+>>Arcade
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19678.jpg" />
@@ -454,171 +454,169 @@ magnet:?xt=urn:btih:F412A20B53B3FD1CA85F326849A4F236D0344CB6
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804412   (65662) от 29.06.2025
+###  Публикация: 1787763   (19718) от 01.05.2025
 
-Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
+Garry's Mod (2006) [Ru/Multi] (2025.04.30) Repack Pioneer
 
 >>Win Старые Игры
->>Военное дело
+>>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наш герой – канонический частный сыщик сороковых годов XXI века – в бизнесе добрый десяток лет. Из окна его конторы открывается вид на Чандлер Авеню, на облике которой, как и на всём Сан-Франциско, сказалась минувшая война, по улицам ходят как обычные люди, так и мутанты, обезображенные радиацией. Но от этого дел у рядового частного детектива становится не меньше.Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключенческие игрыЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+Garry's Mod - физическая песочница. В отличие от обычных игр, здесь не существует каких-либо определённых целей или задач. Мы даём вам инструменты и оставляем вас играть. Вы создаете объекты и соединяете их вместе для создания ваших собственных конструкций - машина ли это, ракета, катапульта или нечто пока без названия - это зависит от вас. Если с конструированием (   Читать дальше...   )Тип издания: RepackРазработчик: Facepunch StudiosЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B97966C8E16FB10E2C11D11F6BF220FE7DEE7516
+magnet:?xt=urn:btih:E7903F367D82DB6E78D675BA1A552A1AAECD97B4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804456   (65664) от 29.06.2025
+###  Публикация: 1205760   (20041) от 28.04.2025
 
-Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
+Robin Hood: The Legend of Sherwood / Робин Гуд. Легенда Шервуда (2002) [En] (1.1 HotFix 2) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20041.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Игрок врывается в жизнь бывшего частного детектива Текса Мёрфи. На дворе 2042 год, последствия Третьей мировой войны, полуразрушенный город Сан-Франциско, радиация, мутанты, бомжи и мертвенно-бледная луна. Жизнь частного детектива мало похожа на жизнь счастливого человека: любовь отвернулась от нашего героя, работы нет, а бурбон стал его единственным другом. И, как (   Читать дальше...   )Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+Англия, 1190 год. Ричард Львиное сердце находится в плену, в то время как его брат, принц Иоанн Безземельный, жестоко правит королевством, притесняя народ. Силой оружия тиран заставил население подчиняться своей воле. И только один человек с группой лихих сподвижников оказался достаточно смел, чтобы бросить вызов сатрапу. Имя ему Робин Гуд. Играйте за легендарного (   Читать дальше...   )Тип издания: LicenseРазработчик: Spellbound StudiosЖанр: Strategy (Real-time, Tactical), Arcade, IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BEE977EA12231AB6669AB85AF755E65EE02BB7B
+magnet:?xt=urn:btih:91DA7567182C7BC64359DE9304C5F440020FF5A0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803747   (65795) от 25.06.2025
+###  Публикация: 1635730   (20414) от 24.04.2025
 
-Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
+The Blackwell Convergence (2009) [En] (3.1c) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Star Trek: Judgment Rites, продолжение игры Star Trek: 25th Anniversary, состоит из восьми новых захватывающих эпизодов, действие которых происходит после окончания пятилетней миссии. Вы - капитан Джеймс Т. Кирк, и вместе со своей командой вы посетите загадочные миры и встретите странных противников в обстоятельствах, неподвластных логике. Неужели это древний триплан (   Читать дальше...   )Тип издания: LicenseРазработчик: Interplay Entertainment Corp.Жанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Black Convergence - третья часть известной приключенческой серии игр. Как и в первом эпизоде («Наследие Блэквелла»), геймплей позволяет сыграть роль Розангелы Блэквелл - медиума, журналиста и писателя, обладающего паранормальными способностями. Действие происходит в Нью-Йорке, через несколько месяцев после расследования серии загадочных самоубийств. Розангела снова (   Читать дальше...   )Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Adventure, Quest, Detective, MysteryЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABCB36DFC2A225E59EF0F440CA767C41184C9241
+magnet:?xt=urn:btih:420714B27D4E23DE768179EB8F6DEE13DBB1036B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803857   (65796) от 25.06.2025
+###  Публикация: 1635980   (20427) от 24.04.2025
 
-Questron II (1988) [En] (1.2) License GOG
+Resonance (2012) [En] (3.1c) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение классической игры Questron от SSI для Apple II и духовный родственник Legacy of the Ancients от EA, Questron II продолжает историю спустя годы после окончания предыдущей игры. На этот раз Mesron the Great Wizard отправляет вас в путешествие в прошлое, чтобы помешать Безумным Колдунам создать Книгу Злой Магии. Отличный сюжет, головоломки и множество приятных (   Читать дальше...   )Тип издания: LicenseРазработчик: SSIЖанр: Ролевые игры, ФентезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+После загадочной смерти ученого-физика начинается настоящая охота за его последним, зловещим изобретением, все записи о котором хранятся в секретной подземной лаборатории. Игроку будет доступно четыре персонажа, чьи судьбы переплетутся во время погони за секретами исследователя. Героям придется научиться доверять друг другу и работать сообща – чтобы преодолеть все (   Читать дальше...   )Тип издания: LicenseРазработчик: xii games, Wadjet Eye GamesЖанр: Приключение, Квест, ДeтективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
+magnet:?xt=urn:btih:9733F735DF814ADB90ACC12E4189F7EB1BC6C792
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803705   (65800) от 25.06.2025
+###  Публикация: 1635974   (20439) от 24.04.2025
 
-Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
+The Blackwell Epiphany (2014) [En] (3.3c) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Warhammer 40,000: Dawn of War - Soulstorm - самостоятельное дополнение для популярной космической стратегии Warhammer 40,000: Dawn of War. Вместе с дополнением вам откроются две новые расы: Сестры Битвы и Темные Эльдары, а общее количество доступных армий увеличиться до девяти. Теперь вы сможете полностью окунуться в увлекательные сражения межпланетного масштаба (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: Стратегии в реальном времениЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+Blackwell Epiphany - заключительная часть серии поинт-н-клик приключений, в которой Роза Блэквелл берется за таинственное дело. Сэм Дуркин подкидывает девушке новое задание, связанное с одним заброшенным домом. Во главе этой истории стоит призрак, но добраться до него не так просто. Дело в том, что у героини есть призрак-напарник по имени Джои Мэллоун. Они не могут (   Читать дальше...   )Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Приключение, Квест, ДетeктивЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CF4CA4D223ACBE10A6DFB1E38676340BE599A9C
+magnet:?xt=urn:btih:1B943C68FB2D28B548A715880BBDB13FBE1BAD3B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485969   (89925) от 21.04.2012
+###  Публикация: 1793328   (20497) от 23.04.2025
 
-Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
+The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 
 >>Win Старые Игры
->>Военное дело
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уже долгое время продолжается конфликт между официальными властями Индонезии, которых поддерживает США и повстанцами Восточного Тимора, возглавляемых жестоким Сухади Садано. Опасающийся покушений на свою жизнь, Садано предпринял превентивные меры – повсему миру отправлены верные ему люди, зараженные оспой и готовые в случае его смерти вызвать эпидемии этой болезни в крупнейших городах. В роли Сэма Фишера, героя игры «Tom Clancy's Splinter Cell: Pandora Tomorrow» и оперативника Агентства Национальной Безопасности вам предстоит отыскать всех людей Садано, а когда угроза биологической атаки будет нейтрализована – уничтожить главу повстанцев.Тип издания: RePackЖанр: Трехмерный стелс от третьего лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
+Пятый чародей - приключенческая игра с ролевыми элементами. Десять лет. Долгих десять лет прошло с тех пор, как шестеро отважных воинов уничтожили первого из демонов Ада, вернув в родные земли жизнь и радость. Увы, возвратиться живыми в свои владения удалось не всем доблестным героям.Тип издания: LicenseРазработчик: Napoleon GamesЖанр: Adventure, RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CB90409C79D1A350F50B41B9B7B7EBA65FB4A034
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486797   (90305) от 23.04.2012
+###  Публикация: 1792704   (20632) от 22.04.2025
 
-SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Альфа Ромео [Ru] (P) 2005
+O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
 
 >>Win Старые Игры
->>Военное дело
+>>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20632.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Побеждает темперамент!
-По трассам солнечной Италии проносятся лучшие автомобили концерна Alfa Romeo. В напряженной борьбе пытаясь вырвать лидерство, гонщики готовы выложиться на полную, используя все свои силы и хитрые уловки.
-Инновационный подход к развитию характеристик водителя, возможность использовать во время гонки специальные способности, получать очки опыта и выигрывать аксессуары выделяют игру среди других гоночных игр и делают ее весьма привлекательной для любителей необычных гонок.Тип издания: ПираткаЖанр: Racing (Cars) / Arcade / 3DЯзык озвучки: n/a (отстутствует)Язык интерфейса: Русский
+Погрузитесь в атмосферу таинственности, магии и хаоса. Сражайтесь в невероятных многоуровневых 3D-мирах в поисках волшебной зеленой жемчужины, которая поможет спасти миллионы людей от уничтожения. С рукопашным боем, разрушительной силой оружия и удивительными магическими заклинаниями, O.D.T. ведет вас вглубь таинственной башни, полной ужасных врагов и скрытых опасностей (   Читать дальше...   )Тип издания: LicenseРазработчик: Psygnosis LimitedЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B66FEE2ADD826DED3F324F13E2F6B0D8DEF6B9CF
+magnet:?xt=urn:btih:635317622734E4DE0BF784410C03EF57E24F5AB0
 ```
 
 

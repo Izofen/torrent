@@ -3,7 +3,7 @@
 Иоганн Вольфганг Гёте | Фауст (Переводчик Николай Холодковский) (2008) [MP3, Илья Прудовский]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4877.jpg" />
@@ -29,7 +29,7 @@ magnet:?xt=urn:btih:C0DAB0CE8FD0A98097B03DECE18F604661969354
 Иоганн Вольфганг Гёте | Страдания юного Вертера (2005) [MP3, Кирилл Гребенщиков]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4878.jpg" />
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:90519EFF652F553008CC4EE6B82ED1D155BD3CE9
 Владимир Клавдиевич Арсеньев | Встречи в тайге (2015) [MP3, Станислав Федосов]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5121.jpg" />
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C4C4FA7C85EF29EC03B46889617D803BC993C7C6
 Исаак Бабель | Беня Крик (2017) [MP3, Игорь Тарадайкин]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6251.jpg" />
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:999F03BD208357104255892125DC0A6F2963714A
 Исаак Бабель | Как это делалось в Одессе (2008) [MP3, Олег Фёдоров]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6263.jpg" />
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:F75E5422CF0DD65EC7027FFD25D95237C32988D7
 Николай Гоголь | Тарас Бульба (2007) [MP3, Дмитрий Писаренко]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6269.jpg" />
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:7F6C9011D970E0A97CE3F791FAC4240ED0B865B4
 Исаак Бабель | Я задним стоял (2025) [MP3, Иван Забелин]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6272.jpg" />
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:4C823C84DF3F72BC1459F102D9EEA1904700F07E
 Исаак Бабель | «У нас в Одессе…» (2016) [MP3, Иван Литвинов]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6276.jpg" />
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:AA322856D46BC52DDB30E7C7E553049417CABEE7
 Исаак Бабель | Одесские рассказы (2006) [MP3, Владимир Самойлов]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6287.jpg" />
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:02E5BA6A94602D1271AFFD96DEDEF42563E91C05
 Исаак Бабель | Как это делалось в Одессе (Радиоспектакль) (2006) [MP3, Евгений Князев, Лев Дуров и др.]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6290.jpg" />
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:E16C6D8B70F0A7A65B79346C042A08523CE22545
 Александр Дюма (сын) | Дама с камелиями (2020) [MP3, Никита Петров (Петроник)]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6398.jpg" />
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:5D9F15CE6770582A81FA4AA77BFBF8D397EA6979
 Михаил Лермонтов | Герой нашего времени (2022) [MP3, Алексей Агранович]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6403.jpg" />
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:2F62D284A617821583A0452806170FA127D79F5A
 Борис Пастернак | Стихотворения и поэмы (1998) [MP3, Вячеслав Герасимов]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6405.jpg" />
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:A564E31AE1735D812469AC8D1BBDF5D51C98CA6F
 А.С. Грибоедов | Горе от ума (2006) [MP3, Александр Клюквин]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6565.jpg" />
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:F183C844CA333E2D40C02454CD08EBDAE5209B29
 Редьярд Киплинг | Самая чудная история в мире. (Сборник). (2024) [MP3, Валерий Толков]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6736.jpg" />
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:047BEA660E71A565B30498F8203A5F64DB3FD260
 Александр Дюма | Графиня Солсбери (2025) [MP3, Наталья Домерецкая]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6741.jpg" />
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:01DDFCE3BD49C0441B46171E1F6A324063B168A1
 Сомерсет Моэм | Малый уголок (2025) [MP3, Филипп Матвеев-Витовский]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6742.jpg" />
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:32D5669300AE56003015421943D5802A2F717C83
 Жюль Верн | Шанселлор (2025) [MP3, Иван Забелин]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6759.jpg" />
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:06344450EFE96838DCB83551AB479B96C74495F2
 Джон Голсуорси | Мёртвая хватка (Радиоспектакль) (2013) [MP3, Александра Климова, Олег Шкапский и др.]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7020.jpg" />
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:38C7F50AB75D8E4F059D3CCE9315764734222CC3
 Джон Голсуорси | Патриций (2024) [MP3, Илья Акинтьев]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7041.jpg" />
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:BD9B00688CD31C7951FC71A247D1C0FBD7EEE512
 Джон Голсуорси | Человек из Девона. Рассказы (2025) [MP3, Илья Акинтьев]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7051.jpg" />
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:0FF8DDD3E2264CB241867EE46C25649236338D47
 Джон Голсуорси | Сага о Форсайтах. Современная комедия. (Книга 3). Лебединая песня (2013) [MP3, Вероника Язькова]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7052.jpg" />
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:BF835FC44FF025C86A52D997CD1AB5EB0466A862
 Джон Голсуорси | Сага о Форсайтах. Конец главы 3. На другой берег (2024) [MP3, Илья Акинтьев]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7055.jpg" />
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:C00D3691ADC26E0A293E67FC7A0ED530A4D78D91
 Джон Голсуорси | Усадьба (2008) [MP3, Наталия Литвинова]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7117.jpg" />
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:EDB70AEA540E7B3334DC6A102B6BD4E9C5A82394
 Джон Голсуорси | Фарисеи. Остров фарисеев (2021) [MP3, Ольга Андреева]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7183.jpg" />
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:A736C66E0F4822C58FEF41052D98079F75F0AFA4
 Джон Голсуорси | Сага о Форсайтах (Книга 1). Собственник. Последнее лето Форсайта (2005) [MP3, Станислав Федосов]
 
 >>Художественные аудиокниги и публицистика
->>Отечественная Классика (HD, FHD, UHD)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7224.jpg" />

@@ -1,696 +1,649 @@
-###  Публикация: 1802896   (65956) от 20.06.2025
+###  Публикация: 1737226   (49803) от 16.07.2024
 
-VA - Armin van Buuren - A State Of Trance 1230 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Как выйти замуж за француза (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромный экскурсовод Даша соглашается на неожиданное предложение бывшей однокурсницы Алисы. Девушка выступает риелтором на одной из сделок, выдавая себя за нее. Потенциальный покупатель, француз Пьер Сабуров, очарован Алисой. Он приезжает в Россию, чтобы подписать договор и ближе с ней познакомиться. Однако вместо француза Пьера Даша видит перед собой друга детства (   Читать дальше...   )Производство: Россия | ООО «СИГМА»Жанр: МелодрамаРежиссер: Карен ЗахаровАктеры: Евдокия Лаврухина, Стефан Де Дюрфор, Кристина Шелобкова, Джульетта Геринг, Сергей Подольный, Дарья Эгерман, Анастасия Теплинская, Сергей Иванюк, Евгений Крылов, Филипп АндрейчиковПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9558439A4087FC8D0C59B01FE26F1116C0B9A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737115   (49804) от 16.07.2024
+
+VA - A State Of Trance Radio Top 50 - 2024, Vol. 2 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Matt Fax – To The Ground (Matt Fax Doppelgänger Mix)
-02. ILLENIUM & HAYLA – In My Arms (KREAM Remix)
-03. Weekend Players – Into The Sun (Progressive Pick)
-04. Rivo & North – Stay Here (Leblanc Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:18
+01. Armin van Buuren feat. Anne Gudrun - High On Love (Extended Mix) [6:08]
+02. Ferry Corsten feat. Chris Howard - Where The Mountains Grow (Extended Mix) [6:30]
+03. Gareth Emery & Giuseppe Ottaviani feat. Sarah De Warren - Carry On (Original Mix) [3:08]
+04. Cosmic Gate & Christian Burns - Brave (Extended Mix) [7:25](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:50:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B361D814E8B75C3763A2018032C9D881A612DA30
+magnet:?xt=urn:btih:2990B60AE938C2347C80E7EEFD07857E4B27344E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802922   (65957) от 20.06.2025
+###  Публикация: 1737258   (49805) от 16.07.2024
 
-Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+VA - 100 hits just classics (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Gone
-02 – All over me
-03 – Relationships
-04 – Down to be wrong(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:52:55
+001. Ed Sheeran, Justin Bieber - I Don't Care
+002. Fleetwood Mac - Dreams (2018 Remaster)
+003. Alphaville - Forever Young
+004. Dua Lipa, DaBaby - Levitating (feat. DaBaby)(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 06:23:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB4E7AD9A58E34DA3D3847841EFFA6F8CC401115
+magnet:?xt=urn:btih:3801F5415F169810073A07CA4306B288D17C1913
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802949   (65958) от 20.06.2025
+###  Публикация: 1737289   (49806) от 16.07.2024
 
-Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
+Кожа красавицы / Красивая кожа / Meiren pi / The Beauty Skin (2020) HDRip [H.264/1080p] [DVO]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Memorabilia (The Hacker 808 Remix) [00:06:39]
-02. A Man Could Get Lost (Jon Pleased Wimmin Remix) [00:05:48]
-03. Torch (MHC 2001 Remix) [00:08:42]
-04. Insecure Me (Hifi Sean Remix) [00:06:17](   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 01:19:53
+В глуши есть уединенный постоялый двор. Там было найдено несколько иссушенных трупов мужчин, и было установлено, что они принадлежат жителям города Цзиньнин. Ходили слухи, что это дело рук женщины-демона. Ловец демонов Гу Ши Цзе отправляется на поиски истинного виновника.
+В городе Цзиньнин в семье чиновника Ши две одинаково красивые дочери. У Лянь Чэн и её двоюродной (   Читать дальше...   )Производство: Китай / Oriental FeiyunЖанр: фэнтези, мелодрамаРежиссер: Мак Кунь-ЧиАктеры: Хань Дун, Чжан Юйси, Кэрри ВанПеревод: Двуголосый любительский ("East Dream")Язык озвучки: русский, китайский (мандаринский)Субтитры: русские (forced, full), английские, китайские (hardsub)Продолжительность: 01:36:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9AF2EADF2995779240C3824FE9E5D92979E3CBA
+magnet:?xt=urn:btih:577B3C5C9A3F4C36B2C4D1CECF255475BDDFAEEE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802931   (65959) от 20.06.2025
+###  Публикация: 1737125   (49807) от 16.07.2024
 
-Aesthetic Perfection - Closer to Human (2025) Limited Edition [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
+В твоих руках / Спасите меня / I dina hander / Deliver Me (2024) WEBRip (сезон 1, серии 1-5 из 5) ViruseProject [AD]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Human
-02 – Belong
-03 – Beautiful
-04 – Surface(   Читать дальше...   )Жанр: Dark-Electro, EBM, FuturepopПродолжительность: 01:39:18
+После того, как 14-летний подросток совершает ужасное преступление, встает вопрос о том, кто несет ответственность.
+Шведский драматический телевизионный мини-сериал, основанный на одноименном романе Малин Перссон Джолито.Производство: Швеция / Asp VarhosЖанр: триллер, драма, детективРежиссер: Анна ЗакриссонАктеры: Olle Strand, Yasir Hassan, Юсра Варсама, Mohamed Abdirahman Koje, Solomon Njie, Ардалан Эсмаили, Ане Даль Торп, Маттиас Нордквист, Beri Gerwise, Tyrone Michele и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:35:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:117C539968455639542B4D9B8D7E7AC2E86803AE
+magnet:?xt=urn:btih:CBF4E0C1925F825ED7ECA52F653922208A2DEBCB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802871   (65960) от 20.06.2025
+###  Публикация: 1737266   (49808) от 16.07.2024
 
-Фоны - kaleriia - Envato - Blond Hair Backgrounds - M9GVLMT [JPG]
+WinTools.net Premium 24.7.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 фонов со светлыми волосами.Формат: JPGРазрешение файлов: 5000 x 3333
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19582F5835AD5726B2EB76A97F9E622FE42B06F8
+magnet:?xt=urn:btih:21EA3C90DB679D4E907E1B8FDCC3891B4747760D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802980   (65961) от 20.06.2025
+###  Публикация: 1737204   (49809) от 16.07.2024
 
-Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Modal>
+DigiKam 8.4.0 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. So What    [0:09:25.32]
-02. Freddie Freeloader    [0:09:49.05]
-03. Blue in Green    [0:05:37.43]
-04. All Blues    [0:11:35.57](   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:25
+digiKam — фото-менеджер для Windows — программа для обработки и организации цифровых фотографий. Программа поддерживает импорт фотографий, RAW-файлов и видео напрямую с фотоаппарата, внешних устройств (SD карт, USB носителей и так далее). Позволяет настраивать и выполнять автоматическую каталогизацию во время импорта файлов. Например распределять файлы по альбомам, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAC7B638F85B5A13EE1523A846803DADA7C31A28
+magnet:?xt=urn:btih:1D88AC24779EAB1B09B11F3476F8DD277945D06D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802830   (65962) от 20.06.2025
+###  Публикация: 1737234   (49810) от 16.07.2024
 
-Gotham - Pictures (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Миша Гулько - Синее небо России: Лучшие песни (1995) 2CD [FLAC|Lossless|tracks + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Есть только миг
+02. Москва златоглавая
+03. Пиши, мой друг
+04. Цыганский костер(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA63235CA086C189F2D8D2B98110D349F3D73B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737246   (49811) от 16.07.2024
+
+Исчезновение в Лёренскуге / Forsvinningen - Lorenskog 31. oktober 2018 / The Lorenskog Disappearance (2022) WEBRip (сезон 1, серии 1-5 из 5) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу основано на реальных событиях. В октябре 2018 года исчезновение 68-летней жены миллиардера Энн-Элизабет Хаген потрясло всю Норвегию. Сериал рассказывает о следователях, журналистах и адвокатах, которые пытаются разобраться в том, что же на самом деле случилось с женщиной. Но они попадают в водоворот теорий, домыслов и слухов, неизбежно появляющийся, когда правда (   Читать дальше...   )Производство: Норвегия / Monster Scripted ASЖанр: драма, криминалРежиссер: Gjyljeta Berisha, Эрик ШёлдбьергАктеры: Yngvild Støen Grotmol, Kidane Gjølme Dalva, Кристиан Рубек, Виктория Осэ, Хенрик Рафаелсен, Терье Стрёмдаль, Хелен Бьорнебю, Роар Хьёльв Енссен, Гленн Андре Каада, Мари Нордберг и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB857534276D04FA808C8DCD3BC50A4187CF21B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737281   (49812) от 16.07.2024
+
+EssentialPIM Pro 12.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и функциональный почтовый клиент и органайзер, который предлагает интеграцию со всеми основными онлайн-сервисами.
+EssentialPIM - это отмеченное различными наградами решение для всех ваших потребностей в производительности. Поддерживаемая большим сообществом пользователей, приложение получило широкое признание как самый мощный, интуитивно понятный и персонализируемый (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775333DF41546D4F57B51F7254166A0808E919C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736840   (49813) от 16.07.2024
+
+VA - Compilation  part 96 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kasimoff - Alone
+02. Akmalov - Beautiful Things
+03. Dndm - Angels Are Crying
+04. Isskoy - Like a Dream(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D690876D00748E0841EA0EFC33A7BF734BDCF9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737229   (49814) от 16.07.2024
+
+Сплин - Вира и майна (2020) [FLAC|Lossless|tracks + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prelude [00:02:04]
-02. Dirty Love [00:03:31]
-03. Let It Go (Extended Mix) [00:04:46]
-04. Pictures [00:04:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:45
+01. Призрак
+02. За семью печатями
+03. Беги, моя жизнь
+04. Джин(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69AB3D41484B8EBBE0D8A5569A564E2C5A844B80
+magnet:?xt=urn:btih:FC402C2263F407644923CFBF3028D58F8FFEA9C7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802905   (65963) от 20.06.2025
+###  Публикация: 1737123   (49815) от 16.07.2024
 
-Count Basie - The Standards (1989) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Jazz, Blues>
+В твоих руках / Спасите меня / I dina hander / Deliver Me (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-5 из 5) ViruseProject [AD]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chicago    [0:02:50.00]
-02. The Lady Is a Tramp    [0:02:56.00]
-03. Day In Day Out    [0:02:39.00]
-04. I Didn't Know What Time It Was    [0:02:14.00](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:52:32
+После того, как 14-летний подросток совершает ужасное преступление, встает вопрос о том, кто несет ответственность.
+Шведский драматический телевизионный мини-сериал, основанный на одноименном романе Малин Перссон Джолито.Производство: Швеция / Asp VarhosЖанр: триллер, драма, детективРежиссер: Анна ЗакриссонАктеры: Olle Strand, Yasir Hassan, Юсра Варсама, Mohamed Abdirahman Koje, Solomon Njie, Ардалан Эсмаили, Ане Даль Торп, Маттиас Нордквист, Beri Gerwise, Tyrone Michele и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:35:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D064E95EDE322F3393512637E0DBA131EB675273
+magnet:?xt=urn:btih:4E5D362EBF3309EA07F342F50A7006EA8D5844B5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803019   (65964) от 20.06.2025
+###  Публикация: 1737219   (49816) от 16.07.2024
 
-Bambii - Infinity Club II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic>
+Aiseesoft Video Converter Ultimate 10.8.52 Portable by 7997 [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. INFINITY CLUB II [00:00:24]
-02. Remember (feat. Ravyn Lenae & Scrufizzer) [00:02:45]
-03. Blue Sky (feat. LYZZA & SadBoi) [00:02:22]
-04. Mirror (feat. Jessy Lanza & Yaeji) [00:02:48](   Читать дальше...   )Жанр: Drum & Bass, ElectronicПродолжительность: 00:24:34
+Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5F54DDB58781953FD2116C1F50F07C8119B1F4E
+magnet:?xt=urn:btih:9ADF8E5A041D746EF3450BF4600F51B548851ABE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802782   (65965) от 20.06.2025
+###  Публикация: 1737214   (49817) от 16.07.2024
 
-SanMinor - Дивный Новый Мир (2024) [MP3|320 Kbps] <Rap, Hip-Hop, Psychedelic>
+Лифт на эшафот / Ascenseur pour l echafaud (1958) BDRip [H.264]
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Быть человеком
-02.Мир
-03.Любовь обесценили
-04.Дивный новый мирЖанр: Rap, Hip-Hop, PsychedelicПродолжительность: 00:10:24
+Фильм по мотивам одноимённого романа Ноэля Калефа... Жена с любовником планируют и осуществляют убийство мужа. Но «идеального» преступления не получается. Он забывает на балконе верёвку, возвращается за ней и застревает в лифте...Производство: Франция / Nouvelles Editions de FilmsЖанр: нуар, драма, криминал, триллерРежиссер: Луи МалльАктеры: Жанна Моро, Морис Роне, Лино Вентура, Шарль Деннер, Жерар Дарьё, Юбер Дешам, Жорж Пужули, Йори Бертен, Жан Уолл, Эльга Андерсен, Жизель Гранпре, Жаклин СтоПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, французскийСубтитры: русские (Cinema Prestige; leburs), английские, французскиеПродолжительность: 01:31:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A4ADE4F68FADFCF5EC0C5B267217514267A1CE7
+magnet:?xt=urn:btih:6C7AA4EB752F1776CE78110E1EC74F96D25C6686
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802924   (65966) от 20.06.2025
+###  Публикация: 1737242   (49818) от 16.07.2024
 
-Eliane Elias - So Far So Close (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+Opera One 112.0.5197.25 + Portable [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. At First Sight [4:53]
-02. Bluestone [5:33]
-03. Barefoot [4:40]
-04. Nightimer [6:10](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:41:35
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C81368F6742641EACC855C992868EBC0C2C38B9
+magnet:?xt=urn:btih:7B45A35AD53408B8B8359C3765B2B66075AF69B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802909   (65967) от 20.06.2025
+###  Публикация: 1736438   (49819) от 16.07.2024
 
-Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Metal, Progressive Metal, Metalcore>
+4K Video Downloader + 1.7.3 [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Letters From The Colony - метал-группа из Бурленге, Швеция. Основана в 2010 году.2011 - Letters From The Colony
-2014 - Galax (EP)
-2018 - VignetteЖанр: Post-Metal, Progressive Metal, MetalcoreПродолжительность: 01:46:16
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.07.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:336F322A182CBC9AE5FEA5FF47B910EAB0FFB082
+magnet:?xt=urn:btih:D5772DCE7575E4B3243ACE5D09B14A0468853583
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802953   (65968) от 20.06.2025
+###  Публикация: 1737179   (49820) от 16.07.2024
 
-DannyLux - Leyenda (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin America Pop>
+112dB - Mikron Bundle 1.1.1 VST 3, AAX (x64) [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. TRISTEZA DE LUX [00:02:48]
-02. DIME BB [00:02:40]
-03. MELANCOLÍA [00:03:49]
-04. SIRENA [00:04:13](   Читать дальше...   )Жанр: Latin America PopПродолжительность: 01:03:38
+Серия 112dB Mikron - это простота. Мы считаем, что слишком много функций может помешать творческому процессу. Проще говоря: больше функций также означает больше настроек и необходимость вникать во всевозможные технические детали. И это часто отвлекает вас от того, о чем идет речь: создание музыки. Вам действительно не нужно столько регуляторов, чтобы получить отличный (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:768F353FE2C43C033F264877F686060810A46EFB
+magnet:?xt=urn:btih:933C8C3A527DA287FB5856131E8E5C366D2A229D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802838   (65969) от 19.06.2025
+###  Публикация: 1737169   (49821) от 16.07.2024
 
-VA - Sunny Day Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Пол Дж. Миллс | Наука, бытие и становление духовная жизнь ученых (2024) [MP3, Дмитрий Сталешников]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Peter De Girolamo - Sunny (3:48)
-02.  Lo Greco Bros Quartet - Naima (4:40)
-03.  Domenico Sanna - Fly Me to the Moon (4:18)
-04.  P. A. Jeron - Hiems (4:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:31:25
+Лауреат книжной премии «Золотой наутилус» 2023 года! Духовность – последний рубеж науки Вопреки распространенному мнению, не все ученые – материалисты, яро отвергающие духовное. Журнал «Наука, бытие и становление» делится интервью с некоторыми из ведущих ученых мира, которые рассказывают о своих трансперсональных, метафизических и мистических переживаниях и о том, (   Читать дальше...   )Жанр: Народная и нетрадиционная медицинаИздательство: ИГ "Весь"Продолжительность: 09:43:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE19089B5D67E76A8BC6FF25F0FE212156B1ED8C
+magnet:?xt=urn:btih:0FEF0CFDA9B3BA9EAE2F530F20B7F2BE2094FF11
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802861   (65970) от 19.06.2025
+###  Публикация: 1737245   (49822) от 16.07.2024
 
-Allegaeon - The Ossuary Lens (2025) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Technical Death Metal>
+Исчезновение в Лёренскуге / Forsvinningen - Lorenskog 31. oktober 2018 / The Lorenskog Disappearance (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-5 из 5) ViruseProject [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Refraction (00:58)
-02. Chaos Theory (04:32)
-03. Driftwood (04:28)
-04. Dies Irae (03:47)(   Читать дальше...   )Жанр: Melodic Death Metal, Technical Death MetalПродолжительность: 00:44:49
+Шоу основано на реальных событиях. В октябре 2018 года исчезновение 68-летней жены миллиардера Энн-Элизабет Хаген потрясло всю Норвегию. Сериал рассказывает о следователях, журналистах и адвокатах, которые пытаются разобраться в том, что же на самом деле случилось с женщиной. Но они попадают в водоворот теорий, домыслов и слухов, неизбежно появляющийся, когда правда (   Читать дальше...   )Производство: Норвегия / Monster Scripted ASЖанр: драма, криминалРежиссер: Gjyljeta Berisha, Эрик ШёлдбьергАктеры: Yngvild Støen Grotmol, Kidane Gjølme Dalva, Кристиан Рубек, Виктория Осэ, Хенрик Рафаелсен, Терье Стрёмдаль, Хелен Бьорнебю, Роар Хьёльв Енссен, Гленн Андре Каада, Мари Нордберг и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A504608C847E758F7B00E2F749E7E957162F55B6
+magnet:?xt=urn:btih:2377C5C62876589A8983441601D0014F43C23392
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802777   (65971) от 19.06.2025
+###  Публикация: 1737223   (49823) от 16.07.2024
 
-Eliane Elias - Dance Of Time (2017) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
+Лифт на эшафот / Ascenseur pour l echafaud (1958) BDRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. O Pato [4:19]
-02. You're Getting to Be a Habit with Me [3:52]
-03. Copacabana [5:22]
-04. Coisa Feita [5:02](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:56:41
+Фильм по мотивам одноимённого романа Ноэля Калефа... Жена с любовником планируют и осуществляют убийство мужа. Но «идеального» преступления не получается. Он забывает на балконе верёвку, возвращается за ней и застревает в лифте...Производство: Франция / Nouvelles Editions de FilmsЖанр: нуар, драма, криминал, триллерРежиссер: Луи МалльАктеры: Жанна Моро, Морис Роне, Лино Вентура, Шарль Деннер, Жерар Дарьё, Юбер Дешам, Жорж Пужули, Йори Бертен, Жан Уолл, Эльга Андерсен, Жизель Гранпре, Жаклин СтоПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, французскийСубтитры: русские (Cinema Prestige; leburs), английские, французскиеПродолжительность: 01:31:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23F7BF5AB6F0104AD914DECB6006C0E7264EBDAE
+magnet:?xt=urn:btih:2993D9CA8B29DB895B684C12596B4EE8DBD86AA7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802759   (65972) от 19.06.2025
+###  Публикация: 1737287   (49824) от 16.07.2024
 
-Eluveitie - Anv (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emerge 01:10
-02. Taranoías 03:25
-03. The Prodigal Ones 03:44
-04. Ànv 02:32(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7758789FD0D3D3F9654EFC90C9EFAB2AF3D7EF45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802865   (65973) от 19.06.2025
-
-Rivers Of Nihil - Rivers Of Nihil (2025) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sub-Orbital Blues (04:18)
-02. Dustman (04:33)
-03. Criminals (04:32)
-04. Despair Church (06:30)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive MetalПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D86C248326DD6A803EF83EC1382090CBF24D4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802796   (65974) от 19.06.2025
-
-Around The World in 80 Days - Euphoria (2014) [MP3|320 Kbps] <Post-Rock, Ambient, Space-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Last War [5:40]
-02 - Shock [3:15]
-03 - Gravity [5:40]
-04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F5C99149C1B78C0CD449FD2E21C45D596823B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802708   (65975) от 19.06.2025
-
-Samsara Blues Experiment - 3 Albums (2011-2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Birth [00:10:58]
-02. Massive Passive [00:06:00]
-03. Southern Sunset [00:06:46]
-04. End of Forever [00:07:55](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner MetalПродолжительность: 3 CD, 02:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A4E3FA8F8CBAE8D2FCCEB46F5D1E80A19A4518
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802843   (65976) от 19.06.2025
-
-War Of Ages - Eternal (2010) 15th Anniversary Rerecorded Version, 2025, Facedown Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore, Heavy Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collapse (Rerecorded) [00:04:05]
-02. Desire (Rerecorded) [00:02:55]
-03. Failure (Rerecorded) [00:04:31]
-04. My Resting Place (Rerecorded) [00:03:03](   Читать дальше...   )Жанр: Hardcore, Heavy Metal, MetalcoreПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B046F3CB540A5DB48963625125A77FF403DC8004
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802846   (65977) от 19.06.2025
-
-Tardigrade Inferno - Made in Hell (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Einzug Der Gladiatoren (Live) [00:02:29]
-02. All Tardigrades Go to Hell (Live) [00:02:53]
-03. Hypnosis (Live) [00:05:34]
-04. Ringmaster Has to Die (Live) [00:04:40](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1481E46F931D336D60065FDD0549364339377520
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802702   (65978) от 19.06.2025
-
-Waltari - Nations' Neurosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+Amorphis - Tales From The Thousand Lakes: Live At Tavastia(2021) (2024) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, Folk Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nature Rules [00:04:29]
-02. Open the Gate [00:03:25]
-03. Do You Accept? [00:03:26]
-04. Breakfast in Eiffel Tower [00:04:12](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:52
+01. Thousand Lakes 01:54
+02. Into Hiding 04:11
+03. The Castaway 05:34
+04. First Doom 03:49(   Читать дальше...   )Жанр: Death Metal, Doom Metal, Folk MetalПродолжительность: 00:54:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CAFA4B2C2DDEEA220EE11BC0D703D62FBDDFD7E
+magnet:?xt=urn:btih:5912B948B0C6B00B3B113C456C8329BBED76C454
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802854   (65979) от 19.06.2025
+###  Публикация: 1737213   (49825) от 16.07.2024
 
-John Surman, Karin Krog - Electric Element (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Extraordinary electronic vocal jazz experimental>
+Adobe InCopy 2024 19.5.0.84 (x64) Portable by 7997 [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Мультимедиа и Графика
+>>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mutual Capacitance [00:05:36]
-02. R (2) [00:01:31]
-03. Electrostatic Coupling [00:06:04]
-04. R (1) [00:01:52](   Читать дальше...   )Жанр: Extraordinary electronic vocal jazz experimentalПродолжительность: 00:42:31
+Adobe InCopy - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
+Adobe InCopy позволяет авторам и редакторам текстов (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F1DE8B97CEB527F694931F1B6A1B77674DE5D25
+magnet:?xt=urn:btih:4DB6CE01261E1C1819C92F3B64A48D8CF9EFB938
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802707   (65980) от 19.06.2025
+###  Публикация: 1737170   (49826) от 16.07.2024
 
-Marturos - Messages to the Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+Таня Молодцова | О, Швейцария! ПутЁвые заметки (2023) [MP3, Вадим Балашов]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Particles [00:00:45]
-02. Bury Me for Life [00:04:42]
-03. Boca do Inferno [00:05:19]
-04. Made of Pain [00:04:59](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:28
+Травелог о Швейцарии – стране, где все виды сказочные. Прогресс и традиции здесь работают, как слаженный механизм часов, придавая зрелищность и особый шарм путешествию. Читатель узнает, как высоко можно подняться в горы на поезде; чем пахнут луга в мае; почему плавленый сыр не запивают водой и как магически вылечить больное горло. И, конечно, много шоколада, тающего (   Читать дальше...   )Жанр: Современная русская литератураИздательство: ЛитРес: чтецПродолжительность: 02:31:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C1B9486358FD5594D98EA28276F599B4BCC223B
+magnet:?xt=urn:btih:D7B74D475F8983745FEF3B71E4BAE7E574BA5A5A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802829   (65981) от 19.06.2025
+###  Публикация: 542454   (49827) от 16.07.2024
 
-Electric Church - Used and Abused (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
+Супруги Каренины (2010) TVRip
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Театр и Музыкальное видео
+>>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Superstar (5:30)
-02.  On the Run (3:29)
-03.  Devil's Creek (4:52)
-04.  Lovin' Man (3:59)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 01:01:27
+Спектакль по мотивам романа Л.Н. Толстого "Анна Каренина".
+Исключительно тонкая история, рассказывающая о непростых отношениях супругов Карениных. Cпектакль был поставлен вне стен БДТ в 1994 году по инсценировке Розы Абрамовны Сироты, которая долгие годы была помощницей Г.А.Товстоногова. Её замечательная трактовка толстовской "Анны Карениной" (   Читать дальше...   )Жанр: Спектакль, драмаРежиссер: Роза СиротаАктеры: Людмила Чурсина, Изиль ЗаблудовскийПродолжительность: 01:30:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9371E5D9F85E2406F2DB16C13C7A6767006F57D
+magnet:?xt=urn:btih:2772A161C199C39BD666D8B61F5B12A453578BF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736350   (49828) от 16.07.2024
+
+VA - Instrumental guitar (2024) [MP3|320 Kbps] <Rock, Instrumental, Flamenco>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jay Price - Shooting Star [02:08]
+002. Guitar Instrumentals - Back in Black (as made famous by AC/DC) [04:21]
+003. Flamenco Guitar Masters - Song For A Guy [05:19]
+004. Guitar Instrumentals - Sin City (as made famous by AC/DC) [04:46](   Читать дальше...   )Жанр: Rock, Instrumental, FlamencoПродолжительность: 08:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FD9A26BA597CA463A8661C4A6AB6429AE152CF
 ```
 
 

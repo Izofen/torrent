@@ -3,7 +3,7 @@
 В. Надеждина (сост.) | 1000 произведений искусства, которые необходимо увидеть, прежде чем умрешь (2010) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8804.jpg" />
@@ -28,7 +28,7 @@ magnet:?xt=urn:btih:47119CB58DE8B0B8BDA8B210A859D405EAEB260D
 С. Лойд | Энциклопедия головоломок Сэма Лойда (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Энциклопедии и словари
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8879.jpg" />
@@ -52,7 +52,7 @@ magnet:?xt=urn:btih:F50A72BFAAA9E86BD86B011BB4A3BAFC19703FFC
 В.Н. Русак | Математическая физика (1998) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8895.jpg" />
@@ -76,7 +76,7 @@ magnet:?xt=urn:btih:6E828776992196B940FEA5BD943F2B6C7BCBE56E
 А.В. Потишко, Д.П. Крушевская | Справочник по инженерной графике (1983) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Техническая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8910.jpg" />
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:A87F831F8A7BA6BE1551490CF684716D279BD4F0
 В.И. Смирнов | Курс высшей математики для техников и физиков [3 тома] (1931 - 1933) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8923.jpg" />
@@ -125,7 +125,7 @@ magnet:?xt=urn:btih:8B9278F10324F731F1103050E9650BF7C9DC429D
 В.Н. Сингаевский | 100 мест в России, которые надо увидеть, прежде чем умереть (2010) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Энциклопедии и словари
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8946.jpg" />
@@ -149,7 +149,7 @@ magnet:?xt=urn:btih:5F69F5D046D716ECB4C570263450C633128905D3
 Е.А. Дунаев, В.Ф. Орлова | Земноводные и пресмыкающиеся России. Атлас-определитель (2017) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Энциклопедии и словари
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9011.jpg" />
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:BC6EF2F49FC0604FBA203FFFFD9F9977B71476E8
 Ирина Рогозина, Андрей Рогозин | Первая помощь раненым и пострадавшим (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9015.jpg" />
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7B1078A789698528BEC49141BEB21EE554A7A556
 Р. Хартсхорн | Алгебраическая геометрия (1981) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9232.jpg" />
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:EEA704424C2E37AF669146401969D9C931169E1D
 В. Ходж, Д. Пидо | Методы алгебраической геометрии [3 тома] (1954 - 1955) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9240.jpg" />
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:30EF223A895EE8F2954BCA0961B77512335AB1BD
 Дж. Л. Келли | Общая топология (1981) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9241.jpg" />
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:4D977B00ED50B2E4A2BF9E9BB8F0B15D50E1A28C
 Хэнк Теймс, Игорь Клейнер | Сюрпризы в теории вероятностей (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Научно-популярная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9244.jpg" />
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3084778ED837094D53F612E2DD268E1F272F0003
 Олег Ивик | Что и как ели люди в Древнем мире (2024) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Научно-популярная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9247.jpg" />
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:DA87CBE785679B5D0FE4A20429FE12B2C3BF0511
 J. Stewart | Calculus, 8th edition (2016) [PDF] [En]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9304.jpg" />
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:33E2A372D9BDFBBDCE90287B31F40DA2E4F65D44
 A.H. Robbins, W.C. Miller | Circuit Analysis: Theory and Practice (2012) [PDF] [En]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9308.jpg" />
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:43069B4A4E55EB7A6BCF93382107E63A43EC795B
 Ю.В. Пухначёв | Семь семинаров по математическому анализу (2005) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9311.jpg" />
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5401E6E152847C8233DD07B16F17F4A8E826A135
 В.А. Топоногов | Дифференциальная геометрия кривых и поверхностей (2012) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9314.jpg" />
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:0A0DD08B7968FBF72810A0F68A1C9411DCDDF954
 J. Stewart, L. Redlin, S. Watson | Algebra and Trigonometry, 4th edition (2016) [PDF] [En]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9315.jpg" />
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:113BF2278034796D3C7FA09CB13018BFC39C4923
 Манфредо П. до Кармо | Дифференциальная геометрия кривых и поверхностей (2013) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9316.jpg" />
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:5591B8823699745B0B167B5D733CAB7F3C09104A
 В.В. Прасолов | Дифференциальная геометрия (2017) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9318.jpg" />
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C280E7356C12B08006BAC2DBEF752F87C7B3C1B9
 О.С. Смыслов | 100 великих загадок Великой Отечественной войны (2024) [FB2]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Историческая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9330.jpg" />
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:236286337A6A6C633A97458335E397057A5FC280
 Ю.Н. Лубченков | 100 великих сражений Второй мировой (2025) [FB2]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9336.jpg" />
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6D2D2186B85BAD4121AA5955BBD24B388917F875
 Э. Хайрер, Г. Ваннер | Математический анализ в свете его истории (2008) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9340.jpg" />
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:095A687E2C03947D60F9C628CA6BCEA051F921AC
 Э.Г. Позняк, Е.В. Шикин | Дифференциальная геометрия. Первое знакомство (1990) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9345.jpg" />
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:49DE4945DB211847099EF99ABC3BC1BA88BDEFC7
 Ю.Н. Лубченков | 100 великих полководцев Российской империи (2024) [FB2]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Историческая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9346.jpg" />
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:CD476BD2D4D078BB6C84D9447D7EB053348AC2DC
 Ю.В. Пухначёв, Ю.П. Попов | Математика без формул [3 выпуска] (1977 - 1979) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9356.jpg" />

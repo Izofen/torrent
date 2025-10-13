@@ -3,7 +3,7 @@
 Полицейская история 2 / Ging chaat goo si juk jaap / Police Story 2 (1988) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8546.jpg" />
@@ -29,7 +29,7 @@ magnet:?xt=urn:btih:08CB46A1CB25AA3FCFCEC64EA31AA3F85E3B968A
 Проект А: Часть 2 / «A» gai wak 2 / Project A 2 (1987) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8547.jpg" />
@@ -53,7 +53,7 @@ magnet:?xt=urn:btih:8A5C0088846B3C8B11534EEC5EC421AB62B1700B
 Полицейская история / Ging chaat goo si / Police Story (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8548.jpg" />
@@ -77,7 +77,7 @@ magnet:?xt=urn:btih:242F604E3BE50CF266257B841463FC243B6B0A42
 Доспехи Бога / Lung hing foo dai / Armour of God (1986) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8549.jpg" />
@@ -101,7 +101,7 @@ magnet:?xt=urn:btih:FD171183D98C2715EDABDBD1DED83428C492B17F
 Сердце дракона / Long de xin / Heart of Dragon (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8551.jpg" />
@@ -125,7 +125,7 @@ magnet:?xt=urn:btih:42B620FC63AFF7AD74C83CCFE2C86E6C78B5D854
 Мои счастливые звезды / Fuk sing go jiu / My Lucky Stars (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8552.jpg" />
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0336F951C819DE6552FB96BB60F79C74DB7A46E5
 Мои счастливые звезды 2 / Xia ri fu xing / Twinkle Twinkle Lucky Stars (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8553.jpg" />
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1FC4D7FC3B418221E73C9A5BB74580FF0E88D271
 Закусочная на колесах / Kuai can che / Wheels on Meals (1984) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8628.jpg" />
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:83D6D5105AA40B14305F3E1F9B2ECE7658A0CF23
 Покровитель / The Protector / Wei long meng tan (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8629.jpg" />
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:D935FF5CB7BA696C97EA13E0C04796B8CD4C8F84
 Гонки «Пушечное ядро» 2 / Cannonball Run II / Pao dan fei che 2 (1984) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8631.jpg" />
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:7AA0D51611E36EDBBBFCB93AF6FBAB93CAD91B3B
 Проект А / «A» gai waak / Project A (1983) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8634.jpg" />
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:4F1B423B44DFC712E48ED6172CA224554D692E81
 Особое задание / Mi ni te gong dui / Fantasy Mission Force (1983) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8635.jpg" />
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:3C790A15CF34D3CC425BCFB98699DCC1A5D00F30
 Гонки «Пушечное ядро» / The Cannonball Run / Pao dan fei che (1981) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8636.jpg" />
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:16238BDF0A7E25B034A9E8483EB7E2B71964C75F
 Драка в Бэттл-Крик / Большая драка / Battle Creek Brawl / The Big Brawl / Sha Shou Hao (1980) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8638.jpg" />
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:E2EE1C06ECE7348ECD9FA03C7394B6078588AC56
 Разборка в Бронксе / Hong faan kui / Rumble in the Bronx (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8643.jpg" />
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:FD991857E6563277BBBD5DABAAA86267A7E48528
 Книга джунглей / The Jungle Book (2016) BDRip [H.264/2160p] [4K, SDR, 8-bit] [handmade Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8709.jpg" />
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:70720C218FB9ADB70F4821EBCD9F8595CD8405F7
 Мстители: Война бесконечности / Avengers: Infinity War (2018) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8714.jpg" />
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:FFC0B90A8483F1963B399D8D5B310AE1EC8E6AEF
 Мстители: Финал / Avengers: Endgame (2019) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8715.jpg" />
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:2A56C3432604AF22CB289FD15648A0668883792F
 Молодой мастер / Shi di chu ma / The Young Master (1980) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8805.jpg" />
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:E4841D4689847399D1D7D81D346164ABAB690FE3
 Мстители: Эра Альтрона / Avengers: Age of Ultron (2015) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8817.jpg" />
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:7A057F040BC79BE9928455C7F483551C22C0C40A
 Лорд Дракон / Lung siu yeh / Dragon Lord (1982) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8831.jpg" />
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:0487115E4A80CE8150197F8A85283A405FE2E5B0
 Победители и грешники / Qi mou miao ji: Wu fu xing / Winners & Sinners (1983) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8859.jpg" />
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:30132F16F3D185D0B2D207E8EBC9150D24C5F8B8
 Ультиматум Борна / The Bourne Ultimatum (2007) HybridRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8929.jpg" />
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:14C384EF7AC1909AAC5C9EE4B0BC58244F06C5CE
 Обсуждению не подлежит / Undisputed (2002) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8930.jpg" />
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:9EA73CB73EAEF96993EF59C2BDC8D1DF92FC39D1
 Гран туризмо / Gran Turismo (2023) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8940.jpg" />
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:6F1EFC580F805DF5865E636EDD7FF24BD4FC1457
 Превосходство Борна / The Bourne Supremacy (2004) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8942.jpg" />

@@ -3,7 +3,7 @@
 Безумный Макс 3: Под куполом грома / Mad Max Beyond Thunderdome (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13896.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:7E026C72EF126123AA4C9AB0040BB81A2170501B
 Пять невест (2011) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13897.jpg" />
@@ -51,7 +51,7 @@ magnet:?xt=urn:btih:0ECE510658C95E831A38545A002E091C037A7E72
 Время первых (2017) BDRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13904.jpg" />
@@ -75,7 +75,7 @@ magnet:?xt=urn:btih:3EAD90E4B1A30722943BE1C5C9B749487B57A3A9
 В тылу врага / Behind Enemy Lines (2001) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13924.jpg" />
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:B3FCF7B2D8805AC8A3C1F41953EF404289787AC3
 Безумный Макс 2: Воин дороги / Mad Max 2: The Road Warrior (1981) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13928.jpg" />
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:1BB0091DE7D190A6D4817989C5096B24A0C1A967
 Уроки французского (1978) SATRip [H.264/720p] [Handmade Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13952.jpg" />
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:FB81DD61FC2BD9DB4042CC9B169E52E7F70FB642
 Трудно быть богом / Es ist nicht leicht ein Gott zu sein (1989) DVDRip [H.264/1080p] [Handmade Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13963.jpg" />
@@ -173,7 +173,7 @@ magnet:?xt=urn:btih:C3FC819A4263861B922DBC053177156B4189120A
 Рядовой Александр Матросов (1947) WEBRip [H.264/1080р] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13978.jpg" />
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C575D4495E3308009791353B0BAA5D6CE24A3053
 Начало / Inception (2010) BDRip [H.265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
 
 >>След.
->>4
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14022.jpg" />
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:4AEC4B493B15A1EAA1FEE739AB90C8B2ED2A8D14
 Во имя Родины (1943) WEBRip [H.264/1080p] [handmade upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14038.jpg" />
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:BB6DE8A528653553B0F7506B43AE53954B1652F9
 Скалолаз / Cliffhanger (1993) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14107.jpg" />
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:450D0780F2CD35355B23D944FE81893CFDDE51BF
 Робокоп / RoboCop (1987) BDRip [H265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14109.jpg" />
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:45E90B3ADFE2F5D6C33BBCC06E651E60C53B69EA
 Управление гневом / Anger Management (2003) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14113.jpg" />
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:AE827733D017DA0B0AFD4EDAA7F5E617D6F2C9AA
 Последний рубеж / Homefront (2013) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14212.jpg" />
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:3E2F7C53CF53AFA813C27229A9FC51DFE5FA40B7
 Небывальщина (1983) DVDRip [H.264/1080p] [Handmade Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14264.jpg" />
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:0856F16CFD5C63EE7AD65D9F91125DD10954EFCE
 Месть ниндзя / Revenge of the Ninja (1983) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14345.jpg" />
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:B4275FADAEB8683AD8A550C45C7F63E6DCB47DF3
 1492: Завоевание рая / 1492: Conquest of Paradise (1992) BDRip [AV1/2160p] [4K, SDR, 10-bit] [AI Remaster]
 
 >>След.
->>4
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14458.jpg" />
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:52F92698C25686EDE1F9BA8BBA8C39E45A0F3460
 Юнона и Авось (2004) DVDRip [H.264/1080p] [handmade upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14459.jpg" />
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:E8D030493B842039C9ED8B524BB09AE8D4EF4922
 Выкрутасы (2011) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14474.jpg" />
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:11C16FE8926244360A8DBCFC155838BC23E5230D
 Старые песни о главном 1 от ALEXnROCK (1996) DVDRip [H.264/720p-LQ]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14486.jpg" />
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:8F248281D5C4A48E2D46741C4B8917F694469C6A
 С новым годом, мамы! (2012) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14520.jpg" />
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:90A68EA361A33845753A9FD0DDD4382D65A74DD7
 Хоббит: Битва пяти воинств / Hobbit: The Battle of the Five Armies (2014) BDRip [H265/2160p] [4K, SDR, 10-bit] [Extended Edition] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14524.jpg" />
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:9244161665F79F3BF7C874239EF9ADA8E88CD460
 Хоббит: Нежданное путешествие / Hobbit: An Unexpected Journey (2012) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Extended Edition] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14526.jpg" />
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:E8F3C7AAA2E5F3104314A6F61FC64911C8B10833
 Властелин колец: Возвращение Короля / The Lord of the Rings: The Return of the King (2003) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Extended Edition] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14528.jpg" />
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:4C92BC81756906A22590E6BCCC6C5604743B46EA
 Властелин колец: Две крепости / The Lord of the Rings: The Two Towers (2002) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Extended Edition] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14530.jpg" />
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:BAEAFBA531632D8D3D081C31D341083A8854FE8E
 Хоббит: Пустошь Смауга / The Hobbit: The Desolation of Smaug (2013) BDRip [H265/2160p] [4K, SDR, 10-bit] [Extended Edition] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14533.jpg" />

@@ -3,7 +3,7 @@
 Немного кунг-фу / Yi zhao ban shi chuang jiang hu / Half a Loaf of Kung Fu (1978) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:777F3458188CA4A44BABF4A242932B44B373C72B
 Змея в тени орла / Se ying diu sau / Snake in the Eagle's Shadow (1978) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48.jpg" />
@@ -53,7 +53,7 @@ magnet:?xt=urn:btih:F2460DEB814CF32BF026ADB8AEC23B06E1929975
 Последнее испытание Шаолиня / Shao Lin mu ren xiang / Shaolin Wooden Men (1976) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49.jpg" />
@@ -77,7 +77,7 @@ magnet:?xt=urn:btih:440A441E824BD5E0D6D20FCBEE58B1CA3D55C7F7
 Великолепные телохранители / Fei du juan yun shan / Magnificent Bodyguards (1978) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50.jpg" />
@@ -101,7 +101,7 @@ magnet:?xt=urn:btih:55DA52C744ADAC2DD76DD5FCCB09D70463E17D2C
 Мастер со сломанными пальцами / Diao shou guai zhao / Master with Cracked Fingers (1973) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51.jpg" />
@@ -125,7 +125,7 @@ magnet:?xt=urn:btih:342FA3926E6047F3B093F685A63459DE523969A2
 Искусство Шаолиня – змея и журавль / She he ba bu / Snake and Crane Arts of Shaolin (1978) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52.jpg" />
@@ -149,7 +149,7 @@ magnet:?xt=urn:btih:D4F50533B762E283E241FB9CA6E4A4EED26AB0A0
 Убить с интригой / Jian hua yan yu jiang nan / To Kill with Intrigue (1977) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55.jpg" />
@@ -173,7 +173,7 @@ magnet:?xt=urn:btih:35231F8E4EF8C0C0E81BADA250F4C95776174007
 Метеор – убийца / Feng yu shuang liu xing / The Killer Meteors (1976) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56.jpg" />
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:6F9348A9AD093B75ADDA1527F646B77528728C91
 Новый кулак ярости / Xin jing wu men / New Fist Of Fury (1976) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61.jpg" />
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:3A3FCAD58144B892AD24780CA0540609B29B6833
 Рука смерти / Shao Lin men / The Hand of Death (1976) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62.jpg" />
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:7F17125E15B52151DB40156697F469C77D942ECA
 Астральное кунг-фу / Quan jing / Spiritual Kung Fu (1978) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73.jpg" />
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:A75E19D6232E416990E665D0CAFDF14334B00083
 Покровитель / The Protector (1985) BDRip [AV1/1080p-LQ] [10-bit] [MVO] [Handmade AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_369.jpg" />
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F462D34111CF33EBD6E733FB1F303FD4E8E076AE
 Ёлки-палки!.. (1988) DVDRip [H.264/720p] [Handmade upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_593.jpg" />
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:B5B0C463742A4FB0440F3F3E64B2C30A51BE4070
 Зеленый фургон (1983) DVDRip [H.264/2160p] [4K, SDR] [Hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_635.jpg" />
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:712319643F2546155EB680797A482C1A060BECEB
 Формула 51 / The 51st State (2001) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_667.jpg" />
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:48F46C7137549C704F47AB101BA6D01BE6CB3CEE
 Три дня Кондора / Three Days of the Condor (1975) BDRip [H.264/1080p] [Handmade correction]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_893.jpg" />
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:6347FDFA7AFA790E9450267A002FAFA37706F41B
 Фонтан (1988) DVDRip [H.264/1080p] [Hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1023.jpg" />
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:3D6CF71D856A92A03C474B17E6DB3CD1215FEE76
 Лучший стрелок / Top Gun (1986) WEBRip [AV1/1080p-LQ] [10-bit] [Open Matte] [Handmade]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1034.jpg" />
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:8CB60CAA029FC63746DAAA5FF3E9A3E3BAD18945
 Патриотическая комедия (1992) DVDRip [H.264/2160p] [4K, SDR] [Hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1050.jpg" />
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:94D5C44C9D5CE6B7E86BD198F89106DE0D5D0654
 Пьяный мастер / Jui kuen / Drunken Master (1978) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1069.jpg" />
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:0D98AA8B144A902E1672FCA778DC2CDD8221F018
 Пробуждение / Awakenings (1990) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1475.jpg" />
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:D3C01540148B471BD91A680A9285FC4A9AB4CFDA
 Драконы навсегда / Fei lung mang jeung / Dragons Forever (1988) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1505.jpg" />
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:356C81DFA5D092B3D22B6A4F3CFD5C3274B816CD
 Виселица / Hangman (2017) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1697.jpg" />
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:E18E5BB4C949161CC66F9991B7995EA8C07E2248
 Человек, который знал всё (2009) DVDRip [H.264/1080p] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1702.jpg" />
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:B7594C2989112AEC717EAA188DD60E8014E25DF2
 Собачье сердце (1988) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1742.jpg" />
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B92837B7C55ABC49C5181DD5CD4154700CC7775B
 Гленгарри Глен Росс (Американцы) / Glengarry Glen Ross (1992) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1865.jpg" />

@@ -3,7 +3,7 @@
 Гланц С. | Медико-биологическая статистика [1999] [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13657.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:E882B7D5B5348E6EB324FEA1E351ABE5EAFA6292
 Л.А. Альсевич, Л.П. Черенков | Практикум по дифференциальным уравнениям (1990) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13697.jpg" />
@@ -52,7 +52,7 @@ magnet:?xt=urn:btih:FFAE82E404F9CC913173D93E203327389FB38158
 Книжная серия | Библиотечка физико-математической школы [37 книг из 50] (1964 - 1990) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13740.jpg" />
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AEFAE270F51A29DCC28822024E1877881157C418
 Ф.Х. Клейн | Элементарная математика с точки зрения высшей [2 тома] (1987) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13773.jpg" />
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E68304157B296D26D6CE24B6B9DF28B03F5B127B
 В.В. Бешанов | Брестская крепость [2005] [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13824.jpg" />
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9FF9E4452F174DD4D500B377260B227716D5D2F6
 В. Россов | Еврейский вопрос (1906) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Историческая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14082.jpg" />
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:84BDC5329AE5330E8C468B97191E7CD2573C784F
 Книжная серия | Библиотека повара [11 книг из 12] (1957 - 1971) [PDF, DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Техническая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14214.jpg" />
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:B957A12A3F44A3C47B92FEA85E8A9762A7A789F1
 Кристофер Харт | Учимся рисовать героев аниме в движении (2024) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14217.jpg" />
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:3E0FE37B7872A7A20EA6F691924DAC2865379574
 Тимофей Медведев | Истребительные батальоны НКВД в период Великой Отечественной войны (2025) [FB2]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14225.jpg" />
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:E5F67158979EB6E856BBA8F3068A38CBEEBD0AAA
 А.Б. Василевский | Устные упражнения по геометрии (1983) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14325.jpg" />
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A4D9FF47793862CE6760FF7B2A65799B1BC586BD
 В.Д. Горев, Н.А. Поздняков, Н.Е. Голёнко  и др. | Справочник по блоку НАТО и вооружённым силам стран - членов НАТО (2017) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14327.jpg" />
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:ED1150167BE0FA8FFD9AA07121191204981C767C
 Константин Крулёв | Под давлением. Ответы кардиолога на самые частые вопросы о гипертонии (2025) [PDF, FB2, EPUB]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14441.jpg" />
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:38537A3C6BAA81C2ED2BB9FB0134BD20665E3661
 Дэвид МакКлелланд | Мотивация человека (2025) [PDF, EPUB]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Научно-популярная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14475.jpg" />
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:794A210A7CCA0D2E8529F80B9AEAACB862B1E095
 И.Э. Бородина, М.В. Кочергина, А.В. Виноградов | Ожирение (основные положения): клинико-организационный алгоритм (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14604.jpg" />
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:14236C3132D54F56823F2772E3B31533AF7EB4C6
 B.C. Вернодубенко, А.С. Новосёлов | Выживание лесовода в таёжных условиях (2015) [PDF, DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14637.jpg" />
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:61E938DFC4EEB01865AD9BFB674D433402FC414A
 Виктор Ковалев | 1000 советов опытного доктора. Как помочь себе и близким в экстремальных ситуациях (2010) [PDF, FB2, EPUB]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14639.jpg" />
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:EAC9D7E99140D9070A254823751E54156BF57CCE
 Ю.Г. Драгунов, А.С. Зубченко, М.М. Колосков и др. | Марочник сталей и сплавов. Четвертое издание (2014) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Техническая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14641.jpg" />
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:99BCEBCD4325BA73F2E0E73A813F15AFE3CD1225
 А.А. Шамышев, М.Я. Афанасьев, А.А. Крылова и др. | Программирование на Python [2 книги] (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14994.jpg" />
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:F05F9156DF1D3332BAF114DB8994250FB54F015B
 Е.В. Синицын, В.Е. Синицын | Введение в интеллектуальный анализ данных с использованием Excel и Python (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15001.jpg" />
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:D7B0C397017D199125E06366C573ED7BBC0571F2
 Поль Уайт | Ключи к диагностике и лечению болезней сердца (2021) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15238.jpg" />
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:6AC14136536E31B03DCF14483E316D81B4D77A85
 Э.В. Безчеревных | От мысли к действию (1964) [DJVU, PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15340.jpg" />
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:5FDD5ECA1BB90E36C8544AE7AAC70A01D14B49A9
 М. Адлер | Марксизм как пролетарское мировоззрение (1923) [DJVU, PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15347.jpg" />
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:0E2F7B3FA5BC5EDAFF183960CAC9C7D57C04827E
 Ф.Н. Грецкий (сост.) | Вопросы лекционной пропаганды [Выпуск 9] (1985) [DJVU, PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15351.jpg" />
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:5FBBBD555EE790998433BDD740EBF2BC0D6AD77A
 Валентин Бережков | Рядом со Сталиным (1998) [PDF, DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Историческая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15369.jpg" />
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:3E63179E9FB06E9E755DBE3B51754B5D79310520
 В.П. Пикулин, С.И. Похожаев | Практический курс по уравнениям математической физики (2004) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15377.jpg" />
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:72CD98C910E37DB41740B28A23C777268FF44083
 Адриенна Мэйор | Когти грифона и летающие змеи. Древние мифы, исторические диковинки и научные курьезы (2025) [FB2, EPUB]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Историческая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15476.jpg" />

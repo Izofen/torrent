@@ -3,7 +3,7 @@
 Пудра / Powder (1995) WEBRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5920.jpg" />
@@ -28,7 +28,7 @@ magnet:?xt=urn:btih:8B9DB52B9B020A3FB92528F9AC5418E33E51B81F
 Соловей против Муромца (2025) WEBRip [AV1/1080p] [10-bit] [Handmade AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6033.jpg" />
@@ -52,7 +52,7 @@ magnet:?xt=urn:btih:34C8C771E6491F374B4631DF9186C1C7298E50CC
 Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.264/1080p-LQ] [hand made 16:9]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6065.jpg" />
@@ -76,7 +76,7 @@ magnet:?xt=urn:btih:428DDA39BFF091007801D2E51AE102E25433DB3A
 Запах женщины / Scent of a Woman  (1992) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6204.jpg" />
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:AB515CEB3CD6F543DE11932E05304459835FDBEB
 Шалун / Little Man (2006) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6313.jpg" />
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:E7C9B8AC9128720C5535ACCA6144BDC0555F409F
 Без чувств / Senseless (1998) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6337.jpg" />
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:DA1905C6BFFA4D6E102595725CC514506DC34D01
 Белые цыпочки / White Chicks (2004) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6345.jpg" />
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:7EEBAE910812106A547A020967A55DF77FC3FDEB
 Быстрые перемены / Quick Change (1990) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6370.jpg" />
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:6D26EAFBAD78C1E70ACF6C3DA92AA4A90A3A8F0F
 Зорро / Zorro (1975) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6509.jpg" />
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:B9560D0ECD022D339C3ED4DD5829D193EDD2B39F
 Супермен / Superman (2025) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Handmade]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6510.jpg" />
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:852FE119D3BC7EC8C7191C0B77CADAAE4EC5868C
 Район №9 / District 9 (2009) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Локализованная версия] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6701.jpg" />
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:802E668E33E64FCF3A5269B3BE278F3734C6E83E
 Аполлон 13 / Apollo 13 (1995) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6707.jpg" />
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:75FF8BD95C36CE414D52C0277C806735FB30570E
 Ворон / The Crow (1994) BDRip [H.264/1080p-LQ] [US Transfer Lionsgate] [Handmade]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6828.jpg" />
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:B774F94DD054ADDCF359349AE641B12665FC56FE
 Двухсотлетний человек / Bicentennial Man (1999) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>След.
->>4
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6860.jpg" />
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:ED10D9DF564A6EBDE4D195B561A615A9748DBA42
 На ярком солнце / Plein Soleil (1960) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6970.jpg" />
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:1DF2D62C8DD1543F0A93CBFFFCCAE68AD4F82561
 Хладнокровный Люк / Cool Hand Luke (1967) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6973.jpg" />
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:D4FDCF693D65DCBD35066060C5D715EAA158916D
 Черный тюльпан / La tulipe noire (1964) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7144.jpg" />
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:482285F1A174447B782F5054F0ABC6CE24B299E0
 Холодное лето пятьдесят третьего... (1987) WEB-DL [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7366.jpg" />
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:AF7C52B47168775C16D94E39B14757C53C2EA2BB
 Ущелье / The Gorge (2025) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [handmade] [MVO]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7532.jpg" />
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:09078CC6F33EE267C90A100862E1C7D7FEB44A28
 Бесстрашная гиена / Xiao quan guai zhao / The Fearless Hyena (1979) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7538.jpg" />
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F0F11F4DB46BF5DE83033AAFCCC94D8ACDC30099
 Чудо-женщина: 1984 / Wonder Woman 1984 (2020) BDRip [H.264/1080p-LQ] [IMAX Edition] [handmade AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7901.jpg" />
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:A2D49564F215DEFCB40A8D78E676BC06C59C6AB3
 Шрек / Shrek (2001) BDRip [H.264/2160p] [4K, SDR, 8-bit] [handmade Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7925.jpg" />
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:ECD0A1096B993F8026BA5FEDB79D61966DEB7182
 Полёт навигатора / Flight of the Navigator (1986) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>След.
->>4
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7963.jpg" />
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:BE85D39ACF0C54B1A3CABAD1ABA3AE48DB5A860E
 Сканеры / Scanners (1980) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8290.jpg" />
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:3E3D2EF24791B6398B518783AA56937911CBD3AB
 Левиафан / Leviathan (1989) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8338.jpg" />
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:50B39A7E5A3F6107411D59900D16742AA9225D5C
 Чудеса / Kei zik / Mr. Canton and Lady Rose / Miracles: The Canton Godfather (1989) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
->>Классика (аудиокниги)
+>>hand made * video
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8545.jpg" />

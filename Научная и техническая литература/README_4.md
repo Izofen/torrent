@@ -3,7 +3,7 @@
 Дарина Новикова | Английский без скучных правил. Как выучить 800+ слов, полюбить язык и не сойти с ума (2025) [PDF, FB2, RTF, EPUB, MOBI]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10825.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:65CBAD7704EF5E832D7AED7807EEA72EAF9C2DF7
 Анатолий Баранов, Дмитрий Добровольский | Запретные слова. Заметки лингвистов о русском мате (2025) [FB2, EPUB, MOBI]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10829.jpg" />
@@ -53,7 +53,7 @@ magnet:?xt=urn:btih:DA8B80AAEB62535BBD739B278B73D8CB87C1F9BD
 Ю.Ю. Елисеев (ред.) | Большая медицинская энциклопедия. Актуализированное издание бестселлера (дополненное) (2024) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Энциклопедии и словари
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10847.jpg" />
@@ -77,7 +77,7 @@ magnet:?xt=urn:btih:5C9BD320DD50609E22700E793F0A9BB979578802
 Э.М. Пройдаков (сост.) | Страницы истории отечественных ИТ [3 книги] (2015 - 2017) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Техническая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10887.jpg" />
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:46E73911C2A182BEDB2C4C03D53D1630A628CECC
 Блэр Бернетт | Руководство по интуитивному питанию (2025) [FB2, DOCX]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10977.jpg" />
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C74FAF6DF87EF9495A71B3A2B7AACC925DCC8229
 Н.С. Денисова | Геометрия треугольника, тетраэдра, симплекса (2016) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11514.jpg" />
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:EBEA6E606F0C151CEF60699CF1D14592E3E3591C
 Мария Полевая | Зверобой и крапива - природная сила! (2017) [PDF, FB2, EPUB]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11587.jpg" />
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4CC484406F89A18A41E7FE5685AD2882D891FD5F
 А.И. Врублевский | Химия элементов. Книга тестов. Второе издание (2023) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11588.jpg" />
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:2EE1F27A59A4F336D28F8D9F4E46C6F397CE850F
 Р. Шольц, В. Рёссиг | Таиланд. Путеводитель + мини-разговорник (2024) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Энциклопедии и словари
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11618.jpg" />
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:30A398010597C7839B6ADE31CABA8AC4AE1B8E4B
 Е.М. Кугач, Е.В. Денисова, Т.П. Котлярчук и др. | Живопись (2024) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11620.jpg" />
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A555CDA1C0DF3516C273D8D12A11E86B60753F1C
 Г.Ф. Сухорученкова, А.П. Бирюкова (глав. ред.) | Энциклопедия по безопасности и гигиене труда [5 книг] (1985-1988) [PDF, DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Энциклопедии и словари
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11728.jpg" />
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:FEA912669818F01D8326BF8EA47363EFD02A487E
 James Manning | How to Draw Koalas Step by Step (2020) [EPUB] [EN]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11815.jpg" />
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:6A5C33612461278EE2330EF70396F6E4BDF49FA9
 Olive Yong | Kawaii Kitties - Learn How to Draw 75 Cats in All Their Glory (Volume 6) (Kawaii Doodle, 6) (2021) [EPUB] [EN]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11836.jpg" />
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:F6B645DE9DF9D5B4E3F9E4127AD4E3E6695B3810
 Кирилл Шатилов | Английский на разные случаи жизни. В типичных фразах и диалогах (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12079.jpg" />
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:0178EF26EA9F9A89EEE13E37E50B75DB04943835
 М.Н. Протасевич | Практикум по дифференциальным уравнениям (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12348.jpg" />
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:3048087256F65608619C64AC540978335293B4E8
 С.Б. Кузнецова | Выбираю молодость. Гимнастика для преждевременно стареющих лица и шеи (1998) [PDF, DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12457.jpg" />
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:B86DECAFEB3A81A714B853D859C5B2698BC82E86
 Г.Д. Гачев | Сборник произведений [19 книг] (1988, 1993, 1995, 1997-1999, 2002-2004, 2007, 2008, 2019, 2020) [PDF, DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12649.jpg" />
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:8E9D36C0B1656FD4CC82F9312C8BE60D0FD4584B
 Библиотека Математика и Физика Поля (Векторы, матрицы, интегралы, аналитическая и дифференциальная геометрия. Теоретическая механика, теория упругости, сплошная среда, электродинамика) [3126 шт]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12859.jpg" />
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:5ADA581AEB29F59503E568715C2820C8FD704000
 Г.Д. Гачев | Ментальности народов мира (2024) [FB2, EPUB]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12987.jpg" />
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:563A43C2EE858B3FE8D0377914F7C7F86FED9FFE
 Павел Киселев | 100 важных английских фраз, которые спасут в любой ситуации (2025) [PDF, EPUB, MOBI]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13004.jpg" />
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:EE4F665A2F59146135032261076B12EDD3E29611
 С.Э. Зверев | Русский мат, бессмысленный и беспощадный, на войне и военной службе (2022) [PDF, EPUB]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13006.jpg" />
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:1E7CE541614947EE0C1F56E9C09B5B753B64772A
 Обновления № 2 текстовых баз каталога всех действующих в РФ ГОСТов на 01.12.2024 [51148 (с учетом обновлений № 1 и № 2 и основной базы)] (2024) [PDF, HTML, GIF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Нормативная документация
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13066.jpg" />
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:FAE75E4AC755F0863D44F09AF2D6E84F7210DD89
 Книжная серия | Современная алгебра [18 книг] (1968 - 1990) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13073.jpg" />
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:00157F192E9210745D9E01A4744467B0E5D68D84
 О.Ю. Пленков | Третий Рейх. Война. [2 книги] (2005) [PDF, DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13174.jpg" />
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:70A2652C4641C936639F349C7C691339A7622DD0
 М.В. Шамардина, И.А. Ральникова, О.А. Орлова | Методы и приемы психологической помощи участникам боевых действий (2023) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13301.jpg" />
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:C39E5534EF9CB2730C9F550FFA346F89E1985FB8
 Дэвис Вильям | Суперкишечник! 4-недельный план перепрограммирования микробиома, восстановления здоровья и потери веса (2024) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13455.jpg" />

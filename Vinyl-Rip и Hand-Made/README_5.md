@@ -1,692 +1,697 @@
-###  Публикация: 1810070   (64614) от 02.08.2025
+###  Публикация: 1688359   (20404) от 24.04.2025
 
-The Alan Parsons Project - Collection (1976-1987) [DSD 128|tracks|Vinyl-Rip] <Rock>
+Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Alan Parsons Project — рок-группа из Великобритании, творившая с 1975 по 1990 годы в стилях арт-рок, симфонический рок и прогрессивный рок. Основана Аланом Парсонсом (Alan Parsons) и Эриком Вульфсоном (Eric Woolfson). После 1990 года группа официально не существует, но Алан Парсонс и Эрик Вульфсон продолжали выпускать сольные альбомы, близкие к творчеству группы. (   Читать дальше...   )1976 Tales Of Mystery And Imagination (UK, Charisma – CDS 4003 LP)
-1977 - I Robot (Japan, Arista – IES-80885 LP)
-1978 Pyramid (UK, Arista – SPART 1054 LP)
-1979 - Eve (Japan, Arista – 20RS-36 LP)Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:39:45
+Bleed from Within — шотландская металкор-группа из Глазго, образованная в 2005 году.2008 - Welcome to the Plague Year (EP)
+2009 - Humanity
+2010 - Empire
+2013 - UprisingЖанр: Metalcore, Melodic Death Metal, Groove MetalПродолжительность: 06:28:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C8FA323DC7C23C2EDFA43C9EF2A7C3FF27ABCC4
+magnet:?xt=urn:btih:6CA595DF7531FC36F0B9B16F8D7B9B0CFC471E7A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809797   (64655) от 01.08.2025
+###  Публикация: 1535212   (20431) от 24.04.2025
 
-Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, New Wave, City Pop>
+Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Groove/Thrash Metal, Nu-Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-A1 Body To Body
-A2 Lonely Night
-A3 I'm In Love(   Читать дальше...   )Жанр: Electronic, New Wave, City PopПродолжительность: 00:45:57
+Machine Head — американская грув-метал-группа, образованная гитаристом и вокалистом Роббом Флинном 12 октября 1991 года в Окленде, Калифорния1994 - Burn My Eyes
+1997 - The More Things Change
+1999 - The Burning Red
+2001 - SuperchargerЖанр: Thrash/Groove Metal, Nu-MetalПродолжительность: 18:18:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2127C96833163B25D9A419C8EF12198A11B1ADD
+magnet:?xt=urn:btih:B0C40BFEAF2C79B77DD98732F7E83D1A8B3D2C8F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809037   (64770) от 28.07.2025
+###  Публикация: 1603407   (20464) от 24.04.2025
 
-Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) (2021) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop, Synthwave>
+Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-A1 Deja Vu (Night Tempo Showa Groove Mix)
-A2 Nice-catch! (Night Tempo Showa Groove Mix)
-A3 淋しい熱帯魚 - Glowing tropical fish (Night Tempo Showa Groove Mix)(   Читать дальше...   )Жанр: Electronic, Synth-pop, SynthwaveПродолжительность: 00:45:34
+Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала.1994 - The Principle Of Evil Made Flesh
+1996 - Dusk And Her Embrace
+1998 - Cruelty And The Beast
+2000 - MidianЖанр: Death Metal, Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 33:53:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
+magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808052   (65031) от 22.07.2025
+###  Публикация: 1592127   (40997) от 01.10.2025
 
-Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+Drowning Pool - Studio Albums (7 releases) (2001-2025) hand made [restored, declipped] [FLAC|44.1/16|tracks +.cue] <Post-Grunge, Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Wild One
-A2. Born On The Sun
-A3. Hey Angel
-B1. Between Two Hearts(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:08
+Drowning Pool — американская рок-группа из Далласа (Техас). Образована в 1996 году.2001 - Sinner
+2004 - Desensitized
+2007 - Full Circle
+2010 - Drowning PoolЖанр: Post-Grunge, Nu MetalПродолжительность: 06:28:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1714BC883CFB7745D916978CBB72608436C162E6
+magnet:?xt=urn:btih:D4678C39DE13D135B7F6D5CC8E578198CFC092F6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808074   (65035) от 22.07.2025
+###  Публикация: 1672010   (40998) от 01.10.2025
 
-VA - 4-й Альбом Супрафона 2 (1966) Partially Mixed, Sampler [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening, Jazz, Pop>
+Bal-Sagoth - Studio Albums (6 releases) (1995-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Epic Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Rudolf Cortés - Tiše Den Zhasíná
-A2 Jana Beláková - Lampy Už Dávno Zhasly
-A3 Jiří Popper - Bílou Tmou
-A4 Yvonne Přenosilová - Mě Se Líbí Bob(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 00:28:5
+Bal-Sagoth — английская группа, играющая в жанре симфонический блэк-метал, существующая с 1993 года. Как представитель эпик-метала, Bal-Sagoth тяготеют к крупным эпическим формам, создавая сюжетные концептуальные альбомы в жанре фэнтэзи.1995 - A Black Moon Broods over Lemuria
+1996 - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule
+1997 - Battle Magic
+1999 - The Power CosmicЖанр: Symphonic/Epic Black MetalПродолжительность: 05:17:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6867976673CE29AEC16CC887766E8F41E3CBD73
+magnet:?xt=urn:btih:3C8936449B0F7493FC1146813EAB6EE5EFE99884
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807957   (65088) от 21.07.2025
+###  Публикация: 1548750   (49139) от 23.07.2024
 
-Паранойя (Paranoia) - Месть Зла (Evil's Revenge) (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Power, Speed Metal>
+Deep Purple - Studio Albums (13 releases) (1984-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Повелитель Снов
-A2 - Месть Зла
-A3 - Слуги Дьявола
-A4 - Мертвый Марш(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:37:01
+Deep Purple — британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в хард-роке 1970-х годов. Музыкальные критики считают Deep Purple одними из основателей хард-рока и высоко оценивают их вклад в его развитие.1984 - Perfect Strangers
+1987 - The House of Blue Light
+1990 - Slaves and Masters
+1993 - The Battle Rages On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 12:31:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6054A0F427B01883500A2D9777DDE5F2496DFD71
+magnet:?xt=urn:btih:87CC58E5ED6B97AF7519F75D3798FD6D805E6255
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807928   (65089) от 21.07.2025
+###  Публикация: 1736660   (50117) от 13.07.2024
 
-Magneton - Jo Fiu Leszek [Magneton 2] (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Jo Fiu Leszek
-A2 Blues
-A3 Szerelem
-A4 Szomoru Dal(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:05
+[3:06] 01. Вступление + Золотые Купола (Techno Vers)
+[2:32] 02. Белый теплоход (Rock vers)
+[2:53] 03. Владимирский Централ (Vers.1)
+[4:28] 04. Баллада об уходе в рай(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 01:16:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:832F053FF7AA0A1FD77AA61D8B7289042E12D0B3
+magnet:?xt=urn:btih:3EE97F3F685851DE59B6D454C05F27F51CE848B4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807906   (65091) от 21.07.2025
+###  Публикация: 1736369   (50260) от 12.07.2024
 
-Grand Alchemist - Studio Albums (2 releases) (2003; 2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
+Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Pop Rock, Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Grand Alchemist - метал-группа из города Холмэстранд, Норвегия.2003 - Intervening Coma Celebration
-2012 - Disgusting HedonismЖанр: Symphonic Black MetalПродолжительность: 01:34:24
+Жанр: Pop, Pop Rock, DiscoПродолжительность: 02:36:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:611AC3F9BD47C43F5EC663AAAB2AF11C07824863
+magnet:?xt=urn:btih:F367F64B06BAB6FB44ED0DDF90950454BF3DEF6E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807303   (65272) от 18.07.2025
+###  Публикация: 1731477   (51396) от 01.07.2024
 
-Annisokay - Studio Albums (9 releases) (2010-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-hardcore, Metalcore>
+The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <Pop Rock, Psychedelic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Annisokay — немецкая металкор-группа из Галле, Саксония-Анхальт.2010 - You, Always (EP)
-2014 - The Lucid Dream(er)
-2015 - Enigmatic Smile
-2016 - Annie Are You Okay (EP)Жанр: Post-hardcore, MetalcoreПродолжительность: 05:32:08
+A1 Lovin' Things
+A2 The River Is Wide
+A3 (You Gotta) Live For Love
+A4 City Women(   Читать дальше...   )Жанр: Pop Rock, Psychedelic RockПродолжительность: 00:31:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA331C6AA37AFF91FC4BE0DE2FADBADDC509C7DF
+magnet:?xt=urn:btih:B69EB5B3C2953CBC93ED2F4B3A7183171E275644
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807134   (65302) от 17.07.2025
+###  Публикация: 1733609   (51584) от 29.06.2024
 
-Super Grup Electrecord - Slagare, Slagare, Slagare (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Bad Blood (Prost Obicei)
-A2 Harmour Love (Dragoste Fericita)
-A3 Arms Of Mary (Bratele Lui Mary)
-A4 Walk Away From Love (Voi Fugi De Dragoste)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:27
+A1 Hotel California
+A2 Heartache Tonight
+A3 I Can't Tell You Why
+B1 The Long Run(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57460D1C2CDFC5F091DE31390E5A4F8FE44129C0
+magnet:?xt=urn:btih:FFDFCB3500B775B96DEBCA2DC7834BA606444094
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806873   (65320) от 15.07.2025
+###  Публикация: 1733489   (51618) от 29.06.2024
 
-Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Steel Rhino - рок-группа из Швеции, основана в 2021 году2021 - Steel Rhino
-2023 - In Rhino We TrustЖанр: Heavy MetalПродолжительность: 01:28:25
+Rhapsody или Rhapsody of Fire — итальянская метал-группа, исполняющая музыку в стиле симфонический пауэр-метал. Коллектив был основан под названием Thundercross, но с 1995 года назывался Rhapsody и под таким названием стал широко известен. В 2006 году из-за проблем с правами группа дополнила название словами «of Fire».1997 - Legendary Tales
+1998 - Symphony Of Enchanted Lands
+2000 - Dawn Of Victory
+2001 - Rain Of A Thousand FlamesЖанр: Symphonic Power MetalПродолжительность: 17:23:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A9E275C5729BECC5355594EF5EC8B69B5E845F3
+magnet:?xt=urn:btih:3C2C65835422E1FA7AFAA26ED403B9992AAA2D57
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805972   (65426) от 09.07.2025
+###  Публикация: 1590988   (51693) от 28.06.2024
 
-DGM - Life (2023) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
+Lamb of God (ex-Burn The Priest) - Studio Albums (12 releases) (1999-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Unravel The Sorrow
-A2. To The Core
-B1. The Calling
-B2. Second Chance(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:26
+Lamb of God — американская грув-метал-группа, образовавшаяся в 1994 году в Ричмонде, штат Вирджиния, изначально известная как Burn the Priest, но изменившая название после выпуска дебютного альбома в 1999 году. Коллектив считается лидером новой волны американского хэви-метала.1999 - Burn The Priest
+2000 - New American Gospel
+2003 - As The Palaces Burn
+2004 - Ashes of the WakeЖанр: Groove Metal/MetalcoreПродолжительность: 10:16:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34D7F0E29F9D40AFEFE5D0A059600288E8D94BE0
+magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805935   (65427) от 09.07.2025
+###  Публикация: 1732015   (51921) от 26.06.2024
 
-DGM - Endless (2024) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
+Любовь Орлова - Актёр и Песня (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Soundtrack>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Promises
-A2. The Great Unknown
-B3. The Wake
-B4. Solitude(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:23
+Сторона А:
+01. Песня Анюты из к/ф ''Веселые ребята''
+02. Марш веселых ребят из к/ф ''Веселые ребята''
+03. Сердце из к/ф ''Веселые ребята''(   Читать дальше...   )Жанр: Pop, SoundtrackПродолжительность: 00:39:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEB3673CE45CC421835DAB2973AE5A594119B0EB
+magnet:?xt=urn:btih:0E3A3510C47386AE919C71AB09C915C8164A07AD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805171   (65469) от 05.07.2025
+###  Публикация: 1568153   (52083) от 02.10.2025
 
-Alkonost - Дар Саламандры (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Pagan, Folk Metal>
+Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1-Искра
-A2-Разожги Огонь
-A3-Саламандра
-A4-Оберег(   Читать дальше...   )Жанр: Pagan, Folk MetalПродолжительность: 00:37:56
+Within Temptation — нидерландская симфоник-метал-группа. Группа была основана в 1996 году гитаристом Робертом Вестерхольтом и вокалисткой Шарон ден Адель. Музыкальный стиль Within Temptation определяют как симфоник-метал, а на ранних записях — готик-метал. Сама Шарон ден Адель считает, что Within Temptation работают в жанре симфоник-рок с разными влияниями и не являются (   Читать дальше...   )1997 - Enter
+1998 - The Dance (EP)
+2001 - Mother Earth
+2004 - The Silent ForceЖанр: Symphonic MetalПродолжительность: 10:41:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C20A9B4E4E7092AB3BEE62DFCF87C588D62167BB
+magnet:?xt=urn:btih:FA239E1F5863B411FA77A4621A3C3498E95F03DB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804694   (65558) от 01.07.2025
+###  Публикация: 1673285   (52084) от 02.10.2025
 
-The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Death Metal>
+Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Conspire To Deceive
-A2 - Detonate
-A3 - Our Channel To The Darkness
-A4 - Cruel Perception(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:01
+Havok — американская трэш-метал группа из Денвера, штат Колорадо. Основана в 2004 году.2009 - Burn
+2011 - Time Is Up
+2013 - Unnatural Selection
+2017 - ConformicideЖанр: Thrash MetalПродолжительность: 04:59:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FD292E51446BC457B6406BE58E909B68EBD66DA
+magnet:?xt=urn:btih:DDC5911D7DEC647FFBAABEF25AFC6494DF00F3F8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803933   (65746) от 26.06.2025
+###  Публикация: 1582250   (52614) от 21.06.2024
 
-Manowar - The Triumph of Steel (1992) Released, 2011, Back On Black [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Power Metal>
+Anthrax - Studio Albums (12 releases) (1983-2016) hand made [restored, declipped] <Thrash/Groove Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Achilles, Agony And Ecstasy In Eight Parts
-02. Metal Warriors
-03. Ride The Dragon
-04. Spirit Horse Of The Cherokee(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:09:38
+Anthrax — американская метал-группа, играющая трэш-метал, спид-метал, а также грув-метал (позднее творчество). Основана в 1981 году в Нью-Йорке. Вместе с такими группами, как Slayer, Metallica и Megadeth, Anthrax входит в «большую четвёрку трэш-метала».1983 - Fistful Of Metal
+1985 - Spreading The Disease
+1987 - Among The Living
+1988 - State Of EuphoriaЖанр: Thrash/Groove MetalПродолжительность: 13:02:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47C87BE451132D4C81AC6EB64C87F99CBFDC7461
+magnet:?xt=urn:btih:66C8D96A2A4136E21CFCA3EB687AF621513C0360
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803620   (65813) от 24.06.2025
+###  Публикация: 845272   (52732) от 20.06.2024
 
-Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal with Doom influences>
+Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24/192|image+.cue|Vinyl Rip]<Pop, Sound-Alike>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Veil Of Conspiracy - итальянская метал-группа из Рима, основана в 2011 году как Astral Domine и сменившая имя на Veil Of Conspiracy в 2016 году.2014 - Arcanum Gloriae (as Astral Domine)
-2019 - Me, Us And Them
-2021 - Echoes of Winter
-2025 - Shape of GriefЖанр: Progressive Metal with Doom influencesПродолжительность: 03:33:01
+A1	Surrender
+A2	Johnny Reggae
+A3	Look Around (And You'll Find Me There)
+A4	Jeepster(   Читать дальше...   )Жанр: Pop/Pop-RockПродолжительность: 00:38:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62B1D04C4450CF5E167EDCF642FEFDF4D38795B1
+magnet:?xt=urn:btih:B4E52343C307AF1F76EAF557F0D0A7B729BA2A1B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803622   (65814) от 24.06.2025
+###  Публикация: 1730867   (52920) от 18.06.2024
 
-Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, Death Metal>
+VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Bloodshed
-A2 Cannibal Holocaust
-A3 Fallen
-B1 Ayatollah Of Rock ‘N’ Rolla(   Читать дальше...   )Жанр: Groove, Thrash, Death MetalПродолжительность: 01:09:45
+Сторона А:
+01. Красные маки - Скажи мне правду
+02. Синяя птица - Клён
+03. Пламя - Снег кружится(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
+magnet:?xt=urn:btih:13C2317F97E53DA0E87C14AF53A851A6A6D6D4EF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803178   (65904) от 21.06.2025
+###  Публикация: 1730670   (53004) от 17.06.2024
 
-Thenighttimeproject - Studio Albums (2 releases) (2016-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+Звёздный Ансамбль Бардов России - Песни Нашего Века. Части I - III (1998 - 2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Chanson>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thenighttimeproject - шведский рок-проект, основанный Фредриком Норрманом в 2010 году после ухода из Katatonia.2016 - Thenighttimeproject
-2019 - Pale SeasonЖанр: Progressive RockПродолжительность: 01:34:54
+Жанр: ChansonПродолжительность: 02:28:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7C6CC951258E8DC036D47787F3A7A877157E13D
+magnet:?xt=urn:btih:6CDB51CE020A0A9C1B548DE2E7148EDC658A2C47
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802929   (65950) от 20.06.2025
+###  Публикация: 1659088   (53554) от 12.06.2024
 
-Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Power Metal>
+Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Glam Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - ...Of Silence
-02 - Weballergy
-03 - False News Travel Fast
-04 - The End Of This Chapter(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:16
+Bon Jovi — американская рок-группа из Нью-Джерси, образованная в 1983 году в Сейревилле, штат Нью-Джерси.
+После того, как одно из первых демо Джона Бонджови, «Runaway», стало хитом на радио Джерси, молодой музыкант в 1983 году сформировал группу Bon Jovi. Группа впоследствии стала одной из самых успешных рок-групп десятилетия, заработав огромное количество поклонников (   Читать дальше...   )1984 - Bon Jovi
+1985 - 7800° Fahrenheit
+1986 - Slippery When Wet
+1988 - New JerseyЖанр: Glam Metal, Hard RockПродолжительность: 29:04:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1091AB78D33067BE80935D751FA5CEB8A6DC7C8F
+magnet:?xt=urn:btih:F3A801F54B7F65AE6063232A073EE2C9295F3481
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802909   (65967) от 20.06.2025
+###  Публикация: 1729372   (53614) от 11.06.2024
 
-Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Metal, Progressive Metal, Metalcore>
+Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Letters From The Colony - метал-группа из Бурленге, Швеция. Основана в 2010 году.2011 - Letters From The Colony
-2014 - Galax (EP)
-2018 - VignetteЖанр: Post-Metal, Progressive Metal, MetalcoreПродолжительность: 01:46:16
+Ablaze My Sorrow — мелодик-дэт-метал группа из Фалькенберга, Швеция. Группа образовалась в 1993 году, выпустила три полноформатных альбома после нескольких смен состава и получила широкую известность в металлической прессе, прежде чем распалась в августе 2006 года.
+В январе 2013 года группа воссоединилась.1996 - If Emotions Still Burns
+1998 - The Plague
+2002 - Anger, Hate And Fury
+2016 - Black(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 04:10:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:336F322A182CBC9AE5FEA5FF47B910EAB0FFB082
+magnet:?xt=urn:btih:F59AA77849FFF45C7283D0505CBB9C992CFFF1D3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802469   (66045) от 17.06.2025
+###  Публикация: 1729153   (53723) от 10.06.2024
 
-Phlebotomized - Studio Albums (3 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive, Death/Doom Metal>
+Dying Fetus - Reign Supreme (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Brutal Death Metal, Grindcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Phlebotomized - метал-группа из Нидерландов, Розенбург, Южная Голландия. Сформирована под названием Bacterial Disease в 1989 году, затем сменила название на Phlebotomized в 1990 году.2019 - Deformation Of Humanity
-2021 - Pain, Resistance, Suffering
-2023 - Clouds of ConfusionЖанр: Progressive, Death/Doom MetalПродолжительность: 02:02:26
+A1 Invert The Idols
+A2 Subjected To A Beating
+A3 Second Skin
+A4 From Womb To Waste(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:38:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDA5FE06C063E578DA1B9B41E30EF13C5A331D8D
+magnet:?xt=urn:btih:5A05C117D3C3086A4E3F4E531719CFF8481F4461
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802146   (66105) от 15.06.2025
+###  Публикация: 845295   (53891) от 09.06.2024
 
-Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
+Pickwick Top Of The Poppers - Discoteque Hits (1975) [FLAC 2.0|24/192 (Vinyl Rip)]<Pop (Sound-Alike)>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Midnight
-A2 Carribean Holiday
-A3 How Do You Know
-A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:19
+01. I'm Not In Love
+Gouldman - Stewart
+02. Sailing
+Sutherland(   Читать дальше...   )Жанр: Pop (Sound-Alike)Продолжительность: 00:47:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFD6879355900328F545240D5BB62A58F03502B0
+magnet:?xt=urn:btih:5665089D88FE813DF5D0F2F029F397A72983C990
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800581   (66280) от 04.06.2025
+###  Публикация: 1529435   (54075) от 07.06.2024
 
-The Duskfall - Studio Albums (5 releases) (2002-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Evergrey - Studio Albums (14 releases) (1998-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Duskfall — шведская метал-группа из Лулео, образованная в 1999 году.2002 - Frailty
-2003 - Source
-2005 - Lifetime Supply Of Guilt
-2007 - The Dying Wonders Of The World(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 03:21:54
+Evergrey — шведская прогрессив-метал-группа, созданная в 1995 году в городе Гётеборг.1998 - The Dark Discovery
+1999 - Solitude • Dominance • Tragedy
+2001 - In Search of Truth
+2003 - Recreation DayЖанр: Progressive/Power MetalПродолжительность: 14:00:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F906BF469317365DF56F49634C6531B5C7416A1
+magnet:?xt=urn:btih:4048EDFED7983F3696888FFFD7F38C4842B70DA6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800028   (66342) от 31.05.2025
+###  Публикация: 1584439   (54090) от 07.06.2024
 
-VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europop>
+Oasis & Projects (Liam Gallagher; Noel Gallagher's High Flying Birds; Beady Eye) - Studio Albums (28 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Rock, ...
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Strana A:
-A1 K. Gott - Ma Prvni Laska Se Dnes Vdava
-A2 H. Zagorova - Bludicka Julie
-A3 V. Neckar - Kdyz Ti Nejsem Hezkej(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:44:32
+Oasis — британская рок-группа. Одна из самых влиятельных и коммерчески успешных групп 90-х. Группа входит в «большую четвёрку» брит-попа вместе с Blur, Suede и Pulp.
+Группа основана в 1991 году в Манчестере братьями Ноэлом и Лиамом Галлахерами. Ноэл — гитарист, вокалист, автор песен, продюсер и идеолог группы. Его младший брат Лиам — основной вокалист и автор нескольких (   Читать дальше...   )1994 - Definitely Maybe
+1995 - (What's The Story) Morning Glory
+1997 - Be Here Now
+1998 - Masterplan (Compilation album)Жанр: Rock, BritpopПродолжительность: 27:35:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78179059599895D004686FC802C19D04CDB126A0
+magnet:?xt=urn:btih:2CA0CDB3EAFB95DAB16F84DC6E0006B623C1BEEF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799851   (66355) от 30.05.2025
+###  Публикация: 1558264   (54117) от 07.06.2024
 
-Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+Godsmack (& Sully Erna) - Studio Albums (11 releases) (1998 - 2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, hard rock, nu metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Any Given Day - немецкая металкор-группа, образованная в 2012 году в городе Гельзенкирхен.2014 - My Longest Way Home
-2016 - Everlasting
-2019 - Overpower
-2024 - LimitlessЖанр: MetalcoreПродолжительность: 03:14:16
+Godsmack — американская рок-группа, образованная в 1995 году в городе Лоуренс (Массачусетс). В состав группы входят вокалист и гитарист Салли Эрна, гитарист Тони Ромбола, бас-гитарист Робби Меррилл и барабанщик Шеннон Ларкин.1998 - Godsmack
+2000 - Awake
+2003 - Faceless
+2006 - IVЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 09:17:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
+magnet:?xt=urn:btih:530EACE44110B1C828F8491AE2D00E902917651B
 ```
 
 

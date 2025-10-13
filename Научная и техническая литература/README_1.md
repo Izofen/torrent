@@ -3,7 +3,7 @@
 В.В. Ликсо | Танки и бронетехника Великой Отечественной войны (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6491.jpg" />
@@ -27,7 +27,7 @@ magnet:?xt=urn:btih:3D81434D102AA032FC1C508BA2502E4BB0B4CA40
 Ева Марковна Пятигорская (лит. зап.) | Нас вдохновляла революция (1978) [PDF, DJVU] [Издание второе]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6619.jpg" />
@@ -52,7 +52,7 @@ magnet:?xt=urn:btih:B0A3E47290B834B07D7D272004BC7ABBF99EEB6E
 Сергей Цветков | Русское тысячелетие [39 книг] (2022) [FB2]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Историческая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6659.jpg" />
@@ -76,7 +76,7 @@ magnet:?xt=urn:btih:F8EC02E11C53F6707E6B20E796AB43D924C112BD
 И.С. Пигулевская | Тренируем иммунитет (2025) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Здоровье и медицина
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6946.jpg" />
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:740BCE0554EBC4F857CD43B0045C1887E2A2A1ED
 Ч. Дарвин | Происхождение человека и половой подбор (1896) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7476.jpg" />
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:F7DE071440EE5994303125CF88C2D5631D6C6E0E
 Н.И. Польский | О различных геометриях (1962) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7505.jpg" />
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:D0A94250BF30F2C7203E5EBA627260AB4604C5CF
 А.А. Потапов | Искусство снайпера (2009) [FB2]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7520.jpg" />
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:E7EC13FC8220CDAFCB9856480C36CB3A598E2283
 С.И. Ожегов (сост.) | Словарь русского языка (1949) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Энциклопедии и словари
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7742.jpg" />
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6A81D400D8FC4FCAFAE57F07F3EB23C7281532C3
 Я.Л. Трайнин | Основания геометрии (1961) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7873.jpg" />
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:B61DD6919E797F59B2264BAC501F23A90104FADA
 В.И. Костин | Основания геометрии (1948) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7909.jpg" />
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:EDBD31CB4533F98C04C65644E8BFC7B1F3068FF3
 Алексей Исаев, Артём Драбкин | Великая Отечественная война 1941–1945 гг. Самая полная иллюстрированная энциклопедия (2023) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Историческая литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7924.jpg" />
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:2427A0F04F871F6AAB5684C22A9661F3AD67E1F6
 Владимир Кантор | Россия как судьба (2023) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8098.jpg" />
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:63DE54DF41DAA70D98F839DFFA4B4D356043D4D4
 Г.С. Каретников, Н.А. Козырева, И.В. Кудряшов | Практикум по физической химии (1986) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8107.jpg" />
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:962039FFF6A64C77BAB275ABDC18D406EB7DFC5A
 В.П. Васильев | Практикум по аналитической химии (2000) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8255.jpg" />
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:2D8527D40A8D72160EF9288647C92001A6C9E2F9
 И.В. Кудряшов, Г.С. Каретников | Сборник примеров и задач по физической химии (1991) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8256.jpg" />
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:2CDA0F274EAA524EDDB632F53197FF03D6872CD8
 В.П. Васильев | Сборник вопросов и задач по аналитической химии (1976) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8257.jpg" />
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A00F67B33CF4672BF053D20123C3FAE98DA964FB
 В.П. Васильев | Аналитическая химия [2 книги] (2004 - 2009) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8270.jpg" />
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:596DED3BFF2E760F13F136F20BC6CC1383BC441A
 Л.Б. Шнейдер | Семейная психология. Антология. (2020) [PDF] [5-е издание]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8279.jpg" />
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:E0ADBC51CD8E3173456B04C31713DC32A0F9671D
 Д. Скуг, Д. Уэст | Основы аналитической химии [2 книги] (1979) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8430.jpg" />
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:13CEB7BA92D8BEFA9B13376DE4EA3D05283B3C7D
 В.С. Реутовский | Поиски и разведки на золото (1899) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8456.jpg" />
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:CA8D6F1492B7FADA6BBD0832E5E5FF6B787EB061
 С.В. Савельев | Возникновение мозга человека. (Том 1) (2020) [PDF] [Третье издание]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Точные и естественные науки
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8458.jpg" />
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:23F23D04EBE98FD58DE477C9638B0D1875D718B5
 М. Доброва (сост.) | Словарь геймерского сленга русского языка (2024) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Энциклопедии и словари
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8478.jpg" />
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:4AA0FF6D12F496266950E48067E7F7ABF7109416
 Л.И. Турчак, П.В. Плотников | Основы численных методов (2003) [DJVU]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Учебники
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8521.jpg" />
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:CB186E6AFF4B19E59813E30BA27335D9D43D677C
 Виктор Травин | Поворот на право. Популярная юридическая энциклопедия для автовладельцев в вопросах и ответах (2024) [PDF, FB2, EPUB, MOBI]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Энциклопедии и словари
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8703.jpg" />
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:27E69B7AA0371418DA34C7541F3616454B4839FF
 В.Н. Дик | Взрывчатые вещества, пороха и боеприпасы отечественного производства в двух частях [2 книги] (2009) [PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Военная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8706.jpg" />
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:07FA2C5298F4C0131166AE31492E515FC58DDAD1
 Г. Бонди | Относительность и здравый смысл (1967) [DJVU, PDF]
 
 >>Научная и техническая литература
->>Прочие обучающие аудиоматериалы
+>>Научно-популярная литература
 
 <div id="header" align="center">
   <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8779.jpg" />
