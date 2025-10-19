@@ -1,677 +1,666 @@
-###  Публикация: 1701774   (116160) от 22.02.2024
+###  Публикация: 1791139   (67857) от 13.04.2025
 
-Людмила Мартова | Каждому по заслугам (2024) [MP3, Елена Дельвер]
+Paul van Dyk - This World Is Ours (2025) [FLAC|Lossless|WEB-DL|tracks] <Trancecore, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительноcть: 01:15:23
+
+01. Paul Van Dyk, Christian Schottstaedt - Let Go And Listen (PvD's Fav Timeless Mix) (7:22)
+02. Paul Van Dyk, Amos & Riot Night, Matt Noland - SHINE TOGETHER NOW (SHINE IBIZA ANTHEM 2024) (2:41)(   Читать дальше...   )Жанр: Trancecore, ElectronicПродолжительность: 2CD, 02:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B6B416859E741854D2C5D505DE199F388CDD7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791358   (67858) от 13.04.2025
+
+VA - 12.04, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space - Magic Fly (2009 Remaster) (4:23)
+02. Angelo Taylor - Planet System 2 (3:21)
+03. Олег Гуртовой и группа Vega - Maximum Boost (4:14)
+04. LX imaginary band - Chase in Space (4:22)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, SynthwaveПродолжительность: 01:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336C80F02F397D15018AEFE8F145386359BE753A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791232   (67859) от 13.04.2025
+
+Темная страна / Morkeland / Not Rated (2024) [H.264/1080p] [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ульрик Торп, когда-то бесстрашный журналист-расследователь, после долгого периода бездеятельности устраивается на стажировку на свое прежнее место, в газету Dagbladet. Его старый коллега и нынешний главный редактор Хенрик Молл поручает ему написать статью про убийство молодого клерка, работающего в Министерстве внутренних дел. Неожиданно Торп оказывается втянут в (   Читать дальше...   )Производство: Дания, Швеция / Meta Film, Meta Film Stockholm, Film i VästЖанр: триллер, драмаРежиссер: Миккел СерупАктеры: Андерс В. Бертельсен, Сара Фанта Траоре, Mohamed Djeziri, Jan Tjerrild, Томас Гулдберг Мадсен, Cecilie Beck, Лене Мария Кристенсен, Шарлотта Мунк, Patrick A. Hansen, Mathilde Fock и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:09Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BEA7F940F470CE18598BD90E1CF7DBE1808512
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791293   (67860) от 13.04.2025
+
+Текстуры - Creative Store - Creative Fabrica - Chambray Fabric Texture Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой ткани шамбре.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B85D5626CE68FAFC7361F981ED13C126DFF2D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791290   (67861) от 13.04.2025
+
+Фоны - STCrafts - Creative Fabrica - Majestic Mandala Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Величественные Мандалайские цифровые бумажные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A085717A4E87041A2DB83BF3AEE61A73D6696E8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791252   (67862) от 13.04.2025
+
+Человек без прошлого / Man with No Past (2025) WEBRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влиятельный застройщик намеревается снести старые кварталы родного города, чтобы воплотить в жизнь свой грандиозный проект. Его терзают сомнения морального плана — ведь жители обречённых кварталов рискуют стать бомжами. Однако ближайшие помощники миллиардера не только убеждают его в правильности такого развития событий, но и подталкивают к совершению тяжёлого преступления, (   Читать дальше...   )Производство: Болгария, США / SP Media GroupЖанр: боевик, драмаРежиссер: Джеймс БэмфордАктеры: Джон Войт, Adam Woodward, Мартон Чокаш, Шарлотта Вега, Филип Уинчестер, Шарлотта Уэстон, Джефф Александр, Небли Басани, Todor Todorov, Judith Chandler и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:47:37Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800A3BA5857D4141E76C0F8A49D6205E6953C86E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791436   (67863) от 13.04.2025
+
+Офис / The Office (2011-2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] (сезон 8, серии 1-24 из 24) kubik&ko [hand made Upscale AI]
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67863.jpg" />
+</div>
+
+
+###  Подробнее
+
+В восьмом сезоне в центре внимания Энди Бернард - его восхождение на пост регионального менеджера, а также выходки Роберта Калифорния, нового генерального директора Sabre, типографской компании, которой принадлежит Dunder Mifflin.Производство: США / Reveille Productions, NBC Universal Television, 3 Arts EntertainmentЖанр: комедияРежиссер: Пол Фиг, Рэндолл Айнхорн, Кен КуописАктеры: Стив Карелл, Рэйн Уилсон, Джон Красински, Дженна Фишер, Эд Хелмс, Анджела Кинси, Минди Кейлинг, Б.Дж. Новак, Крэйг Робинсон, Элли КемперПеревод: Многоголосый профессиональный (kubik&ko)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42939B4AD6D62985FBDE50012478274EF1DFBC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791322   (67864) от 13.04.2025
+
+Алексей Зорин | Выжить любой ценой. Психологический триллер, Поиск Анны (2025) [MP3, Екатерина Трофимова]
 
 >>Художественные аудиокниги и публицистика
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В спокойном и уютном городе происходят необычные события. Ночью в сквере был найден молодой человек, лишенный крови, а утром неподалеку от этого места была обнаружена украденная много лет назад картина известного художника. Однако это только начало. Что же на самом деле произошло? Следователю Михаилу Зимину и фотографу Анне Бесединой предстоит разобраться в этой (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 10:41:25
+Дождливой ночью в лес вошла девушка с грудным ребенком на руках – и исчезла. На ее поиски отправляется волонтер поисковой организации Анна Смолина – женщина с тяжелым прошлым, в одиночку воспитывающая приемную дочь.
+Анна не подозревает, что, сделав шаг в мрачный лес, она запустит череду страшных событий, которые поставят под угрозу жизнь ее дочери, а также жизни (   Читать дальше...   )Жанр: Детективное расследованиеИздательство: ЭксмоПродолжительность: 16:41:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91987D4EC9162E37BC4AACDDC2492808CCF83DCC
+magnet:?xt=urn:btih:1E976AA65243CFDEB54EA9A31913C384FC6F6237
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701857   (116161) от 22.02.2024
+###  Публикация: 1791275   (67865) от 13.04.2025
 
-Dust Bolt - Sound & Fury (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave Nothing Behind
-02. I Witness
-03. I Am The One
-04. New Flame(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655514BA0DEAE3A421792408E2FAC23BDE84DB74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701810   (116162) от 22.02.2024
-
-Вирджинец / The Virginian (1914) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вестерн, он и есть вестерн. Бравый ковбой, любовь ковбоя. Кто бы вы думали? Конечно же учительница. Уже в нескольких фильмах замечал - очень уж ковбои падки на училок. Не знаю почему. А уж если это учительница музыки, это совсем страшной силы любовь. Ну, и конечно же еще шайка злодеев, как же без нее.
-Ну, а вообще, этот фильм считается классикой вестерна в немом (   Читать дальше...   )Производство: США, Jesse L. Lasky Feature Play CompanyЖанр: вестерн, немое киноРежиссер: Сесил Б. ДеМилльАктеры: Дастин Фарнум, Джек В. Джонстон, Сидни Дин, Уильям Элмер, Винифред Кингстон, Джеймс Грисволд, Хорас Б. Карпентер, Текс Дрисколл, Сесилия Де Милле, Анита КингПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E3032EB9F2AF3A613F36987C1F7D429F255665
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701702   (116163) от 22.02.2024
-
-Stefan Karlsson - Below Zero (1993) Justice Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Scott Bradlee's Postmodern Jukebox - Puttin' On The Rizz (2024) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ack Varmland du skona [4:30]
-02. All You Were to Us [5:44]
-03. El Ontono [5:58]
-04. In Love in Vain [6:25](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:36
+01 - Pour Some Sugar on Me [4:21]
+02 - 50 Ways to Leave Your Lover [3:35]
+03 - Say You'll Be There [3:22]
+04 - One Week [2:41](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:56:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FFC31F2D2ED05C1FF40584A372BB8E226F416BF
+magnet:?xt=urn:btih:FE53329A5F37BAD0110773CF1A91AC84E8F9C549
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701698   (116164) от 22.02.2024
+###  Публикация: 1791393   (67866) от 13.04.2025
 
-Joe Pass - Resonance (1974) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+LANDR - Synth X 1.0.38 VSTi 3 (x64) RePack by R2R [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It Could Happen to You [5:26]
-02. Corcovado [5:31]
-03. Too Late Now [4:30]
-04. How Deep Is the Ocean? [7:11](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 01:01:30
+Откройте для себя мир творческой свободы и выразительных звуков с помощью современного таблично-волнового синтезатора для музыкальных продюсеров и звукорежиссёров.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B1A94D8F4D3DB623DA69C08A403640CEB9F0BCF
+magnet:?xt=urn:btih:AF37B25982517FDA07DE2F58DC73317837949B25
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701756   (116165) от 22.02.2024
+###  Публикация: 1791303   (67867) от 13.04.2025
 
-Hipshack - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkalo (4:30)
-02. Scribbles & Grits (3:55)
-03. Generation Dongle (4:12)
-04. 2024 (1:12)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DCAE55D1B08038A93B9CB7B801B3AE12D35220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701724   (116166) от 22.02.2024
-
-Blue Mitchell - Blue's Moods (1958 - 1960) 2011, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Close My Eyes [5:56]
-02. Avars [4:08]
-03. Scrapple from the Apple [4:00]
-04. Kinda Vague [6:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF2337C78B013E9C7B4C31B6B226689B1766C20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701755   (116167) от 22.02.2024
-
-Drew Davidsen - Power Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Spice Music - Power Trip (4:01)
-02. On Repeat (4:13)
-03. Exit Strategy (3:44)
-04. Aquatic Journey (4:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0011C5E859651CAC52F42C82905A051A628AB1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701745   (116168) от 22.02.2024
-
-Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Smith/Kotzen - Black Light / White Noise (2025) SHM-CD, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Take Me High (3:55)
-02. Stop in the Middle (5:29)
-03. Bad Boy (3:58)
-04. Diamond (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:52
+01. Muddy Water
+02. White Noise
+03. Black Light
+04. Darkside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E165C7D004345272E8DEC5A4287AE9BA374486ED
+magnet:?xt=urn:btih:C111FF40D1C55EDF7E5FA10A8A7719C398546A71
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701600   (116169) от 22.02.2024
+###  Публикация: 1791375   (67868) от 13.04.2025
 
-Ataraxy - The Last Mirror (2022) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Presages (02:07)
-02. The Bell That Constantly Sounds (08:31)
-03. Decline (05:44)
-04. Visions of Absence (05:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5707D27AB74BEF85C5E737354E80A8C0B611132
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701478   (116170) от 22.02.2024
-
-Donald Byrd Sextet - Getting Down To Business (1990) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Jeff Rymes - Zodiac Shuffle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Theme for Malcolm [7:42]
-02. That's All There Is to Love [5:45]
-03. Pomponio [10:21]
-04. I Got It Bad and That Ain't Good [8:31](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:43
+01. Way Down Luziana (3:36)
+02. Freddy Lee (3:01)
+03. Lowdown Blues (3:49)
+04. The Tale of the Runaway Train (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62787124E03F96FA83D9ED8121247763B89E0003
+magnet:?xt=urn:btih:05A128713242738054A256C77C6283CD5172E70E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701688   (116171) от 22.02.2024
+###  Публикация: 1791116   (67869) от 12.04.2025
 
-Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+Within Destruction - Animetal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Metalcore, Electronic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Animetal (00:03:53)
+02 - Demon Child (00:02:55)
+03 - Kanashibari (00:03:30)
+04 - Bitter Embrace (00:03:34)(   Читать дальше...   )Жанр: Nu Metal, Metalcore, Electronic RockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F9F30CE99E0F9945AE9D55B60A9B1AB26F2AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791185   (67870) от 12.04.2025
+
+Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Veil Of Maya (05:22)
-02. Celestial Voyage (03:40)
-03. The Eagle Nature (03:30)
-04. Sentiment (05:30)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:37:02
+01. Mechanize
+02. Industrial Discipline
+03. Fear Campaign
+04. Powershifter(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D821868A0E39D6D9847307B1BB561FC1A30E2BDD
+magnet:?xt=urn:btih:D5C8B00C61D0D2D06DFC19C06398EE8B4230F979
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701752   (116172) от 22.02.2024
+###  Публикация: 1791154   (67871) от 12.04.2025
 
-Donald James Duncan - The Great Mystery (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+НХЛ 2024-2025. Питтсбург Пингвинз - Нью-Джерси Дэвилз (11.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Surfside Run (3:30)
-02. Irie Sunrise (4:17)
-03. A New Dawn (4:23)
-04. Words Don't Convey (3:23)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:27
+12 апреля 2025, суббота. 02:00 МСК. Стадион: Пруденшиал-центр (Ньюарк, США), 16 514 зрителей (94% при вместимости 17 625)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Брэндон Грилло (США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:36:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3FFE140E006EF6244038B7241D1BA4B29F3C672
+magnet:?xt=urn:btih:CD3486B0C6B70189612D8EFD29F034675E2E81A6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701476   (116173) от 22.02.2024
+###  Публикация: 1791234   (67872) от 12.04.2025
 
-Marian McPartland - Plays The Music of Mary Lou Williams (1994) Concord Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+Роберт Силверберг | Одного поля ягоды (2021) [MP3, Puffin Сafe]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scratchin' in the Gravel [4:36]
-02. Lonely Moments [2:52]
-03. What's Your Story, Morning Glory? [4:27]
-04. Easy Blues [3:07](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:12
+С недавнего времени Земля оказалась закрытой для инопланетных существ зоной. И когда ворота захлопнулись, инопланетянам осталась только одна возможность попасть на Солнце-3 — в качестве образца научной коллекции. А если точнее, экспоната зоопарка. Но зоопарку нужен директор. Так после долгих лет прозябания в качестве хозяина балагана в системе, мистер Корриган превратился (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:34:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15E41675BFB0DDCF39AFD2DFF307E9485637E629
+magnet:?xt=urn:btih:730D03DB5FEDDA5811ABF5AA2DFBE9358591742F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701871   (116174) от 22.02.2024
+###  Публикация: 1791178   (67873) от 12.04.2025
 
-Keep It 2.4.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Арабский и Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87939C8032B1FA7779902E2AF1EBC6CEE560A584
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701728   (116175) от 22.02.2024
-
-The Marian McPartland Trio - Personal Choice (1983) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hear a Rhapsody [3:56]
-02. Meditation [3:55]
-03. In Your Own Sweet Way [4:08]
-04. A Sleepin' Bee [5:58](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CC1E8C7B99FAC125FFB11292C6A37FFAB0A30F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701747   (116176) от 22.02.2024
-
-Журнал | ТЕХСОВЕТ премиум №1-2 (223) (январь-февраль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116176.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ТЕХСОВЕТ премиум»— путеводитель по эффективным техническим решениям. Широкий спектр производственно-технических публикаций по актуальной тематике: нефтегазовый комплекс, энергохозяйство предприятия, энерго- и ресурсосбережение, технологии металлообработки, импортозамещение, логистика и складское оборудование, информационные технологии и связь.Жанр: Информационно-рекламное изданиеИздательство: ИП  Гайдукова  Н.А.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E8EEF5A929A063A4A09ABE68AE40379B095D2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701723   (116177) от 22.02.2024
-
-Secret Rule - 10 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116177.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 Transposed Emotions
-2016 Machination
-2017 The Key to the World
-2019 The 7 EndlessЖанр: Symphonic MetalПродолжительность: 07:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BFB2589A0C1FE360727FB28DC835AC08F7A21D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701738   (116178) от 22.02.2024
-
-Мадам де… / Madame de... (1953) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе 1951 года Луизы Левек де Вильморен... Действие происходит в Париже в 1933 году. Графиня Луиза де… наделала долгов, и ей срочно понадобились наличные деньги. Она решила продать семейному ювелиру серьги - подарок мужа, и они становятся виновниками драматических событий, переходя из рук в руки, меняя хозяев и объединяя их в сюжете. (   Читать дальше...   )Производство: Франция, Италия / Franco London Films, Indusfilms, Rizzoli Film S.p.a.Жанр: драма, мелодрамаРежиссер: Макс ОфюльсАктеры: Шарль Буайе, Даниэль Даррьё, Витторио Де Сика, Жан Дебюкур, Жан Галлан, Мирей Перри, Поль Азаис, Жосслен, Юбер Ноэль, Лия Ди Лео, Мадлен Барбюле, Шарль БайярПеревод: авторскийЯзык озвучки: русский, французскийСубтитры: русские (два варианта), английскиеПродолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A70030E38B3D7DD4055F2E5B86679F74C33DCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701870   (116179) от 22.02.2024
-
-Acorn 7 v.7.4.4 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждому нужно редактировать изображения в определенный момент, но не у всех есть на это время. Именно поэтому Вам необходима программа Acorn которая сэкономит Ваше время для качественного редактирования фотографий. С помощью Acorn Вы сможете добавить текст или фигуру к фотографии, объединить изображения вместе с другой фотографией, работать со слоями и т.д.
-Acorn (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © Flying Meat IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CEAEB7D81D17FA0C50BE39595D9AAF85CD901C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701713   (116180) от 22.02.2024
-
-Мадам де… / Madame de... (1953) BDRip [H.264] [AVO]
+Полночный джаз (Около полуночи / Вокруг полуночи) / 'Round Midnight (1986) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм основан на одноимённом романе 1951 года Луизы Левек де Вильморен... Действие происходит в Париже в 1933 году. Графиня Луиза де… наделала долгов, и ей срочно понадобились наличные деньги. Она решила продать семейному ювелиру серьги - подарок мужа, и они становятся виновниками драматических событий, переходя из рук в руки, меняя хозяев и объединяя их в сюжете. (   Читать дальше...   )Производство: Франция, Италия / Franco London Films, Indusfilms, Rizzoli Film S.p.a.Жанр: драма, мелодрамаРежиссер: Макс ОфюльсАктеры: Шарль Буайе, Даниэль Даррьё, Витторио Де Сика, Жан Дебюкур, Жан Галлан, Мирей Перри, Поль Азаис, Жосслен, Юбер Ноэль, Лия Ди Лео, Мадлен Барбюле, Шарль БайярПеревод: авторскийЯзык озвучки: русский, французскийСубтитры: русские (два варианта), английскиеПродолжительность: 01:40:27
+Дейл Тернер, пожилой гениальный саксофонист, композитор, импровизатор, посвящает все свои силы музыке, которая спасает его от жестокости жизни. Из-за того, что Дейл афроамериканец, ему приходится постоянно защищать своё достоинство в мире шоу-бизнеса и в обществе. В погоне за ускользающей популярностью Дейл оказывается в Париже, где у него происходит случайная встреча (   Читать дальше...   )Производство: США, Франция / Little Bear, PECFЖанр: драма, музыкаРежиссер: Бертран ТаверньеВ ролях: Декстер Гордон, Франсуа Клюзе, Габриэлль Хакер, Сандра Ривз-Филлипс, Лонетт МакКи, Кристин Паскаль, Херби Хэнкок, Бобби Хатчерсон, Пьер Трабо, Фредерика Мейнинже, Лилиан Ровер, Жед Марлон, Бенуа Режан, Виктория Габриэлль Платт, Артур ФренчПеревод: профессиональный многоголосый (HTB; Варус Видео), авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:11:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DBC18915A2ACC3BFCF2487ACD497224021AC805
+magnet:?xt=urn:btih:E2029847D4C12394996B9AB32E91FA1825AE55E3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701831   (116181) от 22.02.2024
+###  Публикация: 1791118   (67874) от 12.04.2025
 
-Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal, Hair Metal>
+Fractal Age - Energy & Entropy (2025) [FLAC|Lossless|WEB-DL|tracks] <Futurepop, Synthpop, EBM>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За последние 20 лет наблюдается возрождение hair metal 80-х, особенно в европейских странах. Некоторые уловили истинный дух того десятилетия, тогда как другие потерпели неудачу. К счастью, Crazy Lixx попадает в первую категорию. Со времени своего дебютного альбома Loud Minority (2007) они придерживались своей формулы успеха: сочиняли запоминающиеся и мелодичные стадионные (   Читать дальше...   )01. Two Shots At Glory (3:41)
-02. Fire It Up ('23) (3:40)
-03. Invincible (4:05)
-04. Lights Out! ('23) (3:07)(   Читать дальше...   )Жанр: Hard Rock, Glam Metal, Hair MetalПродолжительность: 00:49:05
+01. All the way down (3:59)
+02. The silence of a fading age (4:56)
+03. Pushed away (4:38)
+04. Her door won´t open (3:53)(   Читать дальше...   )Жанр: Futurepop, Synthpop, EBMПродолжительность: 00:43:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF4A76F1DB547498BD3BB05704DB06EC7688AB80
+magnet:?xt=urn:btih:4D6AE2A7872B5AD10054E3D8B06C4D735C119530
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701585   (116182) от 22.02.2024
+###  Публикация: 1791208   (67875) от 12.04.2025
 
-My Darkest Time - My Darkest Time (2024) [MP3|320 Kbps] <Gothic, Doom, Death Metal>
+Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - New Era [00:07:09]
-02 - Keep Us [00:07:38]
-03 - My Sorrows [00:07:43]
-04 - Memento Mori [00:07:14](   Читать дальше...   )Жанр: Gothic, Doom, Death MetalПродолжительность: 00:51:40
+Side One :
+01. All Men Play On 10
+02. Animals
+03. Thor (The Powerhead)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:285083CFE744C75C46E085A3EF2617D983CBA333
+magnet:?xt=urn:btih:3377F5E3AADEEB80833FAF0FF89130877AAD1B28
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701362   (116183) от 22.02.2024
+###  Публикация: 1791168   (67876) от 12.04.2025
 
-Chromeo - Adult Contemporary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance-pop, Nu-Disco, Synth-pop>
+Metal Bots - Soulful Strains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. (I Don’t Need A) New Girl
-2. Got It Good
-3. Lost And Found
-4. BTS(   Читать дальше...   )Жанр: Dance-pop, Nu-Disco, Synth-popПродолжительность: 00:54:37
+01. Blue Morning (3:11)
+02. Dusty Road Blues (4:00)
+03. Love My Old Guitar (3:46)
+04. Sweet Spirit (3:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D69933353D97C9B2211D6FB8E771ED970FB27D4
+magnet:?xt=urn:btih:69281D926F2BA40C4F82CA27E75CCEF97B2804F6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701675   (116184) от 22.02.2024
+###  Публикация: 1791174   (67877) от 12.04.2025
 
-FxFactory Pro 8.0.13 U2B [En]
+Tobacco Road Blues band - Lis & Skull (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
-Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2024 Noise Industries, LLCПоддерживаемая ОС: macOS 11.5.1 +Язык интерфейса: Английский
+01. Emely Myles - Move It (feat. Emely Myles) (3:31)
+02. I Knocked Three Times (3:36)
+03. God Made a Perfect Job (3:54)
+04. I’m Your Boogeyman (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4EBCF40CD84D06C02A88456F0CB5EBAC3C76345
+magnet:?xt=urn:btih:6FC935923E83C941D353FA38652BD17F9BC8D04A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701868   (116185) от 22.02.2024
+###  Публикация: 1791147   (67878) от 12.04.2025
 
-Monkey's Audio 10.51 [En]
+Живая еда с Сергеем Малозёмовым (12.04.2025) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Программ
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Monkey's Audio — данная утилита предназначена для преобразования (сжатия) уже цифровых данных в собственный формат без потерь (lossless) APE.
-Главная особенность программы состоит в том, что Monkey's Audio, в отличие от большинства традиционных методов оцифровки звука (MP3, OGG и т.п.) полностью сохраняет качество звука, а сжатие производит по собственному алгоритму (   Читать дальше...   )Язык интерфейса: Английский
+Готовая еда из магазинов, сервисов доставки и автоматов: правда ли, что она несет лишние килограммы, как обстоят дела у такой еды с качеством и всегда ли готовить еду самому дешевле?
+ Еда для космонавтов: каково это — месяцами питаться из тюбиков, почему хлеб на МКС называют «кукольным», может ли одна таблетка заменить весь рацион, почему в невесомости пьют чай из (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EBEA2B38D3BDA54668EC241EB0227CA4A3061FB
+magnet:?xt=urn:btih:602F7E66845340FA90980526DA46FE052C4F6729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791156   (67879) от 12.04.2025
+
+Kid Ramos - Strange Things Happening (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Things Happening (4:39)
+02. How I Got Over (5:40)
+03. I'm Working On A Building (3:50)
+04. Oh What A Meeting (7:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1B4069B87B195DF53DF9B392F1383D1B815DA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791189   (67880) от 12.04.2025
+
+Полночный джаз / Вокруг полуночи / 'Round Midnight (1986) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дейл Тернер, пожилой гениальный саксофонист, композитор, импровизатор, посвящает все свои силы музыке, которая спасает его от жестокости жизни. Из-за того, что Дейл афроамериканец, ему приходится постоянно защищать своё достоинство в мире шоу-бизнеса и в обществе. В погоне за ускользающей популярностью Дейл оказывается в Париже, где у него происходит случайная встреча (   Читать дальше...   )Производство: США, Франция / Little Bear, PECFЖанр: драма, музыкаРежиссер: Бертран ТаверньеВ ролях: Декстер Гордон, Франсуа Клюзе, Габриэлль Хакер, Сандра Ривз-Филлипс, Лонетт МакКи, Кристин Паскаль, Херби Хэнкок, Бобби Хатчерсон, Пьер Трабо, Фредерика Мейнинже, Лилиан Ровер, Жед Марлон, Бенуа Режан, Виктория Габриэлль Платт, Артур ФренчПеревод: профессиональный многоголосый (HTB; Варус Видео), авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B84D3AEBC46D810943BB5D19E553871A8F5157B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791074   (67881) от 12.04.2025
+
+Вероника Хлебова | PRO-ЖИВИ. Чувства. Отношения. Любовь (2018) [MP3, Ирина Зубкова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас мучает чувство, что жизнь проходит, а самое важное еще не сделано? И кажется, что у других жизнь интереснее и ярче? Вы чувствуете себя виноватым по пустякам?
+А еще хотите разобраться в себе? Научиться понимать других людей? Видеть глубинные мотивы поведения?
+Узнайте, как общаться с людьми, переживать тяжелые моменты в жизни. Не винить себя по пустякам. И в трудные (   Читать дальше...   )Жанр: ПсихологияИздательство: ЛитРес: чтецПродолжительность: 06:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63F49D6987D81F4E65081C18BAA8A4EAE1BF236
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791260   (67882) от 12.04.2025
+
+Alex Okami - Strange As Angels (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Darkwave, Post-Punk, Gothic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Dark [00:03:13]
+02. Telarañas [00:03:48]
+03. Under My Skin [00:03:22]
+04. Monster [00:03:36](   Читать дальше...   )Жанр: Darkwave, Post-Punk, Gothic RockПродолжительность: 00:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7306BA225FCA50E532DDA060BC7AA76629AA8044
 ```
 
 

@@ -1,689 +1,625 @@
-###  Публикация: 1743853   (105356) от 18.08.2024
+###  Публикация: 1722833   (56684) от 13.05.2024
 
-April Fool - Playin' To Win (1989) Reissue, Remastered, 2024, Heaven And Hell Records [FLAC|Lossless|image + .cue] <Hard Rock>
+Icecream Screen Recorder PRO 7.41 Repack (& Portable) by elchupacabra [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cover Girls (5:12)
-02. Playin' To Win (5:53)
-03. Take Away The Heartache (4:18)
-04. Bahama Mama (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:11
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F08015E40045C92C529C71F073D0A90B1FBAAB3
+magnet:?xt=urn:btih:DAA92976B6955212272646846DA3EEC41C6F5FE1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743712   (105357) от 17.08.2024
+###  Публикация: 1722940   (56685) от 13.05.2024
 
-MotoGP. Этап 11 из 20. Гран-при Австрии. Квалификация (17.08.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Icecream PDF Editor Pro 3.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 августа 2024, суббота. 11:50 МСК Этап 11, Шпильберг. Гран-при Австрии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:11
+Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC5F016E19EB5047255483636EE75EE45EEB0367
+magnet:?xt=urn:btih:4E65C7CD3CAD4044353D7902AF982B04AEEB6C47
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743755   (105358) от 17.08.2024
+###  Публикация: 1722830   (56686) от 13.05.2024
 
-Чингиз Айтматов | Тополёк мой в красной косынке (2012) [MP3, Вячеслав Герасимов]
+Журнал | Наука и техника №5 (8) (май 2024) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чингиз Тоpекулович Айтматов (1928–2008) – советский писатель. Член редакционного совета «Библиотеки всемирной литературы».
-Яркая и честная проза Чингиза Айтматова вот уже более полувека пользуется неизменным успехом у читателей многих поколений. Повесть Тополек мой в красной косынке представляет ранний период творчества Ч.Т. Айтматова. Именно повести раннего периода (   Читать дальше...   )Жанр: Классика советской литературы, повестьИздательство: Нигде не купишьПродолжительность: 04:27:07
+«Наука и Техника» - научно-популярный журнал широкого профиля. Люди с техническим складом ума не только найдут здесь полезную информацию о достижениях авиации, кораблестроения, покорении космоса, но также смогут расширить свой кругозор в области естественных и гуманитарных наук.Жанр: Научно-популярный журналИздательство: ООО "Университет дополнительного профессионального образования"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55392C39F5C07E452947CC2394F6238C4EB25584
+magnet:?xt=urn:btih:087BAD6301AF4189FD67B70B447CBCA8F59DE922
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743735   (105359) от 17.08.2024
+###  Публикация: 1722905   (56687) от 13.05.2024
 
-Freedom Rockets - American Trash (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+D Notes - заметки и списки 2.6.1 Mod by youarefinished [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. So Beautiful [00:03:05]
-02. That's How I Met Addison Rae [00:05:13]
-03. Die Another Day [00:03:51]
-04. Take It To The Streets [00:03:34](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
+D Notes - крайне симпатичный блокнот, что, как и многие предлагает пользователям существенно упростить себе жизнь в механике записи различных коротких текстов на память. Мысли, идеи, списки покупок и всё прочее доступно в интуитивного управления оболочке стильного дизайна. При этом есть и обширнейший набор параметров настроек, как работы, так и визуального отображения. (   Читать дальше...   )Тип издания: ProРелиз состоялся: 05.05.2024Разработчик: Damian van den BergПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30E2D12063F852A1E1365780C733A8344DBD3DE0
+magnet:?xt=urn:btih:C82FC2882C156FC503F911718BEEC089275CA96B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743771   (105360) от 17.08.2024
+###  Публикация: 1723000   (56688) от 13.05.2024
 
-Marrgothic - Ten Life Stages (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
+Streaming Audio Recorder 3.3.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Innocence
-02. Awakening
-03. Rebellion
-04. Exploration(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:49:02
+Несомненно, запись потокового аудио стала очень популярной в последние годы. Streaming Audio Recorder - это простая в использовании программа, которая позволяет пополнять музыкальную коллекцию неограниченным количеством бесплатной музыки. Программа поддерживает множество потоковых сервисов, таких как Spotify, YouTube, Pandora, Apple Music, Sirius Radio, Yahoo Music, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE068F15D117F8C10862663C05726E5877B11D86
+magnet:?xt=urn:btih:C19AEC09D2F7D001AF3A6F34ABFCCF080869066E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743688   (105361) от 17.08.2024
+###  Публикация: 1722901   (56689) от 13.05.2024
 
-Balga, Autumn Tales - Midnight Mystery (2024) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+GOM Player Plus 2.3.94.5365 (x64) Portable by 7997 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-More Hate Productions представляет сплит-диск с участием двух групп из Калининграда. Первая группа известна тем, кто следит за релизами лейбла. Это BALGA с ее довольно сырым, но атмосферным блэк-металом. Группа представляет два мини-альбома, выпущенных в 2023 году: "Troops of Hate" и "A New Road or a Secret Gate". Этот материал логически вытекает (   Читать дальше...   )01. Balga – Prologue (Intro)
-02. Balga – A New Road Or A Secret Gate
-03. Balga – ...By Caves Where Never Sun Has Shone
-04. Balga – With Foes Ahead, Behind Us Dread(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:47:09
+GOM Player Plus - мультимедийный плеер со множеством функций, обеспечивающих высокий уровень воспроизведения. С GOM Player Вы сможете воспроизводить даже повреждённые или не до конца загруженные / переписанные файлы. GOM Player поддерживает все современные видео и аудио форматы, включая видео мобильных устройств и цифровых камер, а также воспроизведение интернет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53BE5C1D67ECB6C8C1C9417EC7ACF47073738A32
+magnet:?xt=urn:btih:141DCCDE8C253FCF3D730B479F0CB899B4916E5A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743726   (105362) от 17.08.2024
+###  Публикация: 1722860   (56690) от 13.05.2024
 
-The Spiritual Machines - Lockhearted (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
+Icecream Video Editor Pro 3.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Can't Hear Me [00:04:09]
-02. I'll Die Laughing [00:04:26]
-03. Castles Made of Sand [00:04:01]
-04. The Sinner Marches with the Saint [00:03:38](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:51:38
+Icecream Video Editor - простой редактор видео для Windows. Наша программа для монтажа видео позволит редактировать и создавать новые ролики из фото и видео. Добавляйте переходы, обрезайте видео, объединяйте видео и фото, добавляйте заголовки, фоновое аудио и визуальные эффекты.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:246FADEB1B69E234A33198A7AA4206834B62264C
+magnet:?xt=urn:btih:00B3382A75CB34B34BDB4F51197D639587051A76
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743787   (105363) от 17.08.2024
+###  Публикация: 1722932   (56691) от 13.05.2024
 
-Dark Embrace - Dark Heavy Metal (2023) [FLAC|Lossless|image + .cue] <Symphonic Melodic Death Metal>
+WinTools.net 24.5.1 Classic / Professional / Premium RePack (& Portable) by TryRooM [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dark Heavy Metal 4:35
-02. Never Seen The Sun 3:46
-03. Personal Hell 4:02
-04. Endless Months 3:37(   Читать дальше...   )Жанр: Symphonic Melodic Death MetalПродолжительность: 00:38:03
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D07B98B265D702C3A04636A701C0C755C1E31D4B
+magnet:?xt=urn:btih:0BB6540B5EF48DF30891343A9B7B6E81ABCA494F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743608   (105364) от 17.08.2024
+###  Публикация: 1722865   (56692) от 13.05.2024
 
-Extinction A.D. - To The Detested (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
+Icecream Video Converter Pro 1.43 RePack (& Portable) by elchupacabra Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Desperate Grasp (03:55)
-02 - Escape From New York (03:34)
-03 - Epidemic of Mutation (03:53)
-04 - Apocalypse Rising (04:28)(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:40:13
+Icecream Video Converter - Мощный, но простой в использовании медиа конвертер, который поддерживает все самые распространенные аудио и видео форматы, включая AVI, MKV, MP4, WMV, MP3, WAV, MPEG, WMA и многие другие, а также позволяет конвертировать медиа файлы для мобильных устройств.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BCC5B1C950F098AF7D875C016FE6F28EED51FDD
+magnet:?xt=urn:btih:B1E24E86123C1867D98BCB14ED8BD2283C9AE42A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743656   (105365) от 17.08.2024
+###  Публикация: 1722978   (56693) от 13.05.2024
 
-Bill Barron - Quintet & Sextet (1961 - 1962) 2CD, 2012, Fresh Sound [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Firefox Browser 126.0 [Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Noodlin' [5:53]
-02. Duality [6:59]
-03. Self Portrait [4:32]
-04. Persian Street Scene [4:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:19:33
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C024EEC97F62FA793AF705A0C5B6839C6A3495F
+magnet:?xt=urn:btih:A01BD202C7C77A9890491A55C5FE17B8E0703E99
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743754   (105366) от 17.08.2024
+###  Публикация: 1722814   (56694) от 13.05.2024
 
-Водные лилии / Кувшинки / Water Lilies (1911) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень сентиментальная лирическая история. Немного грустная, меланхолическая. Мне нравятся такие. Известная танцовщица приезжает на отдых к тетушке в сельскую местность и там встречает местного джентльмена. Вспыхивает любовь. Но с джентльменом случилась беда...Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, мелодрама, немое киноРежиссер: нет сведенийАктеры: Irmgard von Rottenthal, Рита Саккетто, Maurice CostelloПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CBF506EF1082816C7B9119695FEE30D110596E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743545   (105367) от 17.08.2024
-
-Frank Turner - Undefeated (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Rock, Americana>
+Pussycat - Wet Day In September (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Disco>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Do One (Acoustic) [00:02:22]
-02. Nevermind The Back Problems (Acoustic) [00:01:11]
-03. Ceasefire (Acoustic) [00:04:34]
-04. Girl From The Record Shop (Acoustic) [00:01:40](   Читать дальше...   )Жанр: Folk Rock, AmericanaПродолжительность: 2 CD, 01:25:35
+A1 Wet Day In September
+A2 Hey Joe
+A3 It's The Same Old Song
+A4 Love In September(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: Vinyl, LP, Album, EMI – EMCE 1047, India
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F74DBC6840DC7A93816F4293D77618397AEEE8AE
+magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743578   (105368) от 17.08.2024
+###  Публикация: 1719191   (56695) от 13.05.2024
 
-Royal Blood - Royal Blood (2014) 10th Anniversary Edition, 2024, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+Крылья (1966) WEBRip [VP9/2160p] [Реставрация МФ]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Out of the Black [00:04:00]
-02. Come on Over [00:02:53]
-03. Figure It Out [00:03:03]
-04. You Can Be So Cruel [00:02:44](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:15:32
+Давно окончилась война, но для героини фильма, бывшей летчицы, только те годы и были наполнены подлинным смыслом. Она глубоко переживает разлад с действительностью, отсутствие контакта с дочерью. Ей никак не удается приспособиться к этой мирной, обыденной жизни, в ней не гаснет пронзительное желание летать...Производство: СССР / МосфильмЖанр: драмаРежиссер: Лариса ШепитькоАктеры: Майя Булгакова, Сергей Никоненко, Жанна Болотова, Пантелеймон Крымов, Леонид Дьячков, Владимир Горелов, Юрий Медведев, Николай Граббе, Жанна Александрова, Римма МарковаСубтитры: отсутствуютПродолжительность: 01:25:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD8578CCD5149275A99FCC6157CBBEB5C35A7A88
+magnet:?xt=urn:btih:6488BFCE7F3ADFBF61CD36B403300E7B1A7EDE5A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743564   (105369) от 17.08.2024
+###  Публикация: 1722949   (56696) от 13.05.2024
 
-VA - Black Hole Trance Music 08-24 (2024) [MP3|320 Kbps] <Trance>
+GIMP 2.10.38 Portable by PortableApps [Multi/Ru]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Driftmoon x Ruben De Ronde x 88Birds - Colour Of Your Eyes (Extended Mix) [7:55]
-02. DIM3NSION & Mirage - Lenda (Extended Mix) [8:08]
-03. Craig Connelly & James Cottle feat. Liel Kolet - Be As One (Extended Mix) [7:30]
-04. Solarstone - Leap Of Faith (Collide The Sky Extended Remix) [6:50](   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:15
+GIMP — это редактор, позволяющий работать со слоями, применять различные эффекты, использовать фильтры градиента, успешно использовать пользовательские шаблоны и многое, многое другое. Если, для выполнения сложных профессиональных работ потребуется что-то еще, то Вы сможете существенно расширить возможности программы с помощью более сотни плагинов. Он позволяет работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:904C4DE5B1CFD7907EF3FDA4E9904AD2212042C4
+magnet:?xt=urn:btih:09CABB8E28648C70D37874B442FB611016A677E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743514   (105370) от 17.08.2024
+###  Публикация: 1722813   (56697) от 13.05.2024
 
-VA - Armin van Buuren - A State Of Trance 1186 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Эльфийская песнь / Erufen riito  / Elfen Lied (2004, TV) BDRip (1-13 серии из 13 + special) MC Entertainment [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Giuseppe Ottaviani ft. Adriana Stone - Something About You
-02. BLR - Ethereal
-03. Jochem Hamerling - Inheritance
-04. Daniel Portman - Cosmopolitan (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:05:32
+Из секретной лаборатории сбегает девушка-мутант Люси. Вернее, неспешно выходит, оставляя за собой горы изуродованных трупов, но в последний момент получает пулю в голову и из-за этого теряет память, личность и способность разговаривать. Абсолютно голую и беспомощную её находят на морском берегу двоюродные брат с сестрой и, назвав Ню, берут к себе жить. Тайная правительственная (   Читать дальше...   )Производство: Япония / Arms, Studio GutsЖанр: аниме, мультфильм, фантастика, драма, мелодрамаРежиссер: Мамору Канбэ, Сумио Ватанабэ, Акира ИванагаАктеры: Санаэ Кобаяси, Тихиро Судзуки, Мамико Ното, Эмико Хагивара, Юки Мацуока, Хитоми Набатамэ, Осаму Хосои, Масакадзу Кохара, Дзёдзи Наката, Кинрю АримотоПеревод: Многоголосый профессиональный (MC Entertainment)-(1-13 серии), Одноголосый любительский (DobrySkazochnik)-(special)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:24:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:803B23F7594AA73DDD01B29FEA94C3D81411E5DC
+magnet:?xt=urn:btih:F773690484A5C77D119D5582B24483009A880ACD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743620   (105371) от 17.08.2024
+###  Публикация: 1722843   (56698) от 13.05.2024
 
-Nikolo Kotzev - Nikolo Kotzev's Nostradamus / The Rock Opera (Live In Sofia) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock Opera>
+Captain Goose (2023) [Ru/En] (1.0) Scene Razor1911
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Overture (Live) [00:05:35]
-02. Pieces Of A Dream (Live) [00:05:39]
-03. Desecration (Live) [00:08:10]
-04. Introduction (Live) [00:05:20](   Читать дальше...   )Жанр: Rock OperaПродолжительность: 02:12:57
+Пустив ко дну свой корабль, Капитан Гусь навлек страшное проклятие, и теперь сама Бездна пытается заполучить души всех, кто выжил после кораблекрушения. Выжившие моряки во главе с капитаном вынуждены угнать чужое судно и отправится на другой конец Мира, чтобы отвести от себя приспешников Бездны. Все живые существа, начиная от мелких рыбешек и заканчивая огромными (   Читать дальше...   )Тип издания: SceneРазработчик: DiaMMax GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67BD301C9CD37E0359E250570F1F5EE671B2316B
+magnet:?xt=urn:btih:D599B825FD5AE1426CBD02817C76C0C09BEB8803
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743655   (105372) от 17.08.2024
+###  Публикация: 1722991   (56699) от 13.05.2024
 
-Maria Aurigema - Kindred Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+GOYO 0.9.4 Beta VST, VST 3, AAX (x64) [En]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bobby "B" (2:33)
-02. The Cottage (2:21)
-03. Kindred Spirits (2:47)
-04. Spinning Around (2:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:35
+GOYO - плагин три в одном, который поможет вам избавится от окружающих шумов, эхо в помещении и от голоса в звуковой дорожке.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63403734A08B5F5367AD87562BB166A25C2F025C
+magnet:?xt=urn:btih:56FE7B169B16F32FF39FD9890C6D1D95B57A5E11
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743734   (105373) от 17.08.2024
+###  Публикация: 1722944   (56700) от 13.05.2024
 
-Marrgothic - Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Female Vocal>
+Topaz Photo AI 3.0.2 (x64) RePack (& Portable) by elchupacabra [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wounds of the Haunted
-02. Twisted Battlefield
-03. Lost Time
-04. Don't Back Down(   Читать дальше...   )Жанр: Modern Metal, Female VocalПродолжительность: 00:43:35
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91EE0A9938B39D4322D92AAF348F30737CB96605
+magnet:?xt=urn:btih:63ADCE7916BDF573C469EC8683FC2A8F6A6BDF2D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743597   (105374) от 17.08.2024
+###  Публикация: 1722973   (56701) от 13.05.2024
 
-SunSay - Дайвер (2010) Digipack [WavPack|Lossless|image + .cue] <Alternative Rock, Leftfield, Indie Rock>
+Человек-паук: Вдали от дома / Spider-Man: Far from Home (2019) HybridRip [H.264/1080p-LQ] [Open Matte]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Будь Слабей Меня
- 02. Брат (Feat.Fame)
- 03. Сонин Сон
- 04. Дайвер(   Читать дальше...   )Жанр: Alternative Rock, Leftfield, Indie RockПродолжительность: 00:47:33
+Питер Паркер вместе с одноклассниками отправляется на летние каникулы в Европу. Однако отдохнуть приятелям вряд ли удастся - по прибытии в Венецию группа попадет в эпицентр сражения. Некое существо, состоящее из воды, появляется из ниоткуда и начинает крушить всё на своём пути, и теперь Питеру придётся спасать европейские архитектурные памятники вместе с загадочным (   Читать дальше...   )Производство: США / Columbia Pictures, Marvel Studios, Pascal PicturesЖанр: фантастика, боевик, комедия, приключенияРежиссер: Джон УоттсАктеры: Том Холланд, Сэмюэл Л. Джексон, Джейк Джилленхол, Зендея, Коби Смолдерс, Мариса Томей, Джон Фавро, Джейкоб Баталон, Тони Револори, Энгаури РайсПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:09:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE90C01A89785C396AA246883D427B8E5CCCF489
+magnet:?xt=urn:btih:5640AA629FEA02B5EBA1F56EA5A6886BD624B6B2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743650   (105375) от 17.08.2024
+###  Публикация: 1722831   (56702) от 13.05.2024
 
-Mick Clarke - Rock and Roll, Hoochie Koo the Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Алексей Осадчук | Последняя жизнь (Книга 4). Пламя Севера (2024) [MP3, Влад Римский]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Graveyard Shift (5:35)
-02. Cover Me (3:30)
-03. Talking With the Blues (4:40)
-04. Dry Road Blues (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:18
+В прежней жизни Джек был разносторонне одарён, обладал многими специфическими навыками. Если у кого-то из богачей возникали проблемы, Джек благодаря своим талантам решал их. Там, где другие неминуемо терпели неудачу, он выходил сухим из воды, выполнив чисто и качественно работу, за которую аристократы платили очень щедро. Прежняя жизнь Джека закончилась гибелью в (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: 1С-ПаблишингПродолжительность: 07:36:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18C574A8CF515B3BC3606CCC6A297F1C5EEFB6DF
+magnet:?xt=urn:btih:14EB9DCDAA06A960194F4E9AE39F659925A2F0C6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743566   (105376) от 17.08.2024
+###  Публикация: 1722838   (56703) от 13.05.2024
 
-VA - Black Hole House Music 08-24 (2024) [MP3|320 Kbps] <House, Progressive House>
+Детективы с того света / Мёртвые мальчишки-детективы / Dead Boy Detectives (2024) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-8 из 8) HDRezka, LostFilm
 
->>Electronic
->>House
+>>Зарубежные сериалы
+>>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dennis Sheperd & Nino Lucarelli - Swim (Extended Mix) [5:14]
-02. Britt Lari & partywithray - The Controller (Ibrahim Inci Club Remix) [3:17]
-03. Yero & Christian Burns - Wonderful Life (Kryder's Extended Guilty Pleasure Mix) [6:32]
-04. FACTORe - Keep Falling (Original Mix) [6:03](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:12:51
+Чарльз Роуленд и Эдвин Пейн решают не отправляться в загробный мир после смерти, а остаться на земле и расследовать преступления, связанные со сверхъестественными силами.Производство: США / Berlanti Productions, DC Entertainment, Ghost OctopusЖанр: детектив, комедия, фэнтези, криминалРежиссер: Энди Армаганян, Пит Чатмон, Шерил ДуньеАктеры: Джейден Реври, Джордж Рекстрю, Кассиус Нельсон, Бриана Куоко, Рут Коннелл, Yuyu Kitamura, Дженн Лион, Дэвид Яконо, Джошуа Колли, Линдси ГортПеревод: Профессиональный многоголосый (HDRezka Studio, LostFilm)Язык озвучки: русский, английскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~00:55:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C1B92B7D3A7A988BD522A7B1BBE112AF019ABBA
+magnet:?xt=urn:btih:7CC089FA20D212B62420617DCA6E5F70B9593509
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743644   (105377) от 17.08.2024
+###  Публикация: 1723010   (56704) от 13.05.2024
 
-Mick Clarke - West Coast Connection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+PotPlayer 240510 (1.7.22227) RePack (& portable) by elchupacabra [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hard Times (3:26)
-02. Madison Blues (3:20)
-03. Ain't That the Truth (3:37)
-04. Mona (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:19
+Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E593075C28B3688D95DA1E83AAEE355F7741169F
+magnet:?xt=urn:btih:472D0A17E800AE20DDDE1F19F1E00F2185E54E1A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743668   (105378) от 17.08.2024
+###  Публикация: 1722986   (56705) от 13.05.2024
 
-Freedom Rockets - American Trash (2024) [MP3|320 Kbps] <Rock>
+Обитель зла 3 / Resident Evil: Extinction (2007) BDRip [H.264/1080p-LQ] [handmade AI]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. So Beautiful (03:05)
- 02. That's How I Met Addison Rae (05:13)
- 03. Die Another Day (03:52)
- 04. Take It To The Streets (03:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
+Элис, не раз уже спасавшая мир от смертельных вирусов и неминуемой гибели, вновь взялась за оружие. На этот раз ей предстоит сразиться с корпорацией «Амбрелла», работающей над реализацией зверского антигуманного проекта. Коварные политики и прагматичные ученые стремятся уничтожить людей и заменить их на более «совершенные» создания, заселив Землю неуязвимыми бессмертными (   Читать дальше...   )Производство: США, Германия, Австралия, Великобритания, Франция / Constantin Film Produktion GmbH, Davis-Films, Impact Pictures, Resident Evil ProductionsЖанр: ужасы, боевик, фантастикаРежиссер: Рассел МалкэйАктеры: Милла Йовович, Одед Фер, Эли Лартер, Иэн Глен, Ашанти, Кристофер Иган, Спенсер Лок, Мэттью Мэрсден, Линден Эшби, Джейсон О’МараПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:34:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC2AB3BB122E945893FED2F792F4B0BDC317319A
+magnet:?xt=urn:btih:6756201EB68957B33E9FF71C91BD7032D7C6EBA0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743596   (105379) от 17.08.2024
+###  Публикация: 1722989   (56706) от 13.05.2024
 
-Dinosaur Jr. - Farm (2009) 15th Anniversary Edition, 2024, Jagjaguwar[FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+eM Client Pro 9.2.2258.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pieces [00:04:30]
-02. I Want You To Know [00:04:30]
-03. Ocean In The Way [00:04:19]
-04. Plans [00:06:40](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:10:16
+eM Client - отличный почтовый клиент с возможностями использования календаря, задачника и чат-месседжера. Программа содержит все основные опции для качественного и удобного использования своего почтового ящика - прием, чтение, ответ, перенаправление писем и др. Профессиональная версия позволяет организовать работу с поддержкой неограниченного количества почтовых (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF92F000C1E08C11B6ABB8CD415487C8D7A92035
+magnet:?xt=urn:btih:E116DADE0B34653FC2A526E09522AEED2FB3888F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743757   (105380) от 17.08.2024
+###  Публикация: 1721842   (56707) от 13.05.2024
 
-MotoGP. Этап 11 из 20. Гран-при Австрии. Спринт (17.08.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Звёздные войны: Сказания об Империи / Star Wars: Tales of the Empire (2024) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-6 из 6) LostFilm
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 августа 2024, суббота. 16:00 МСК Этап 11, Шпильберг. Гран-при Австрии. Спринт (14 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:50:29
+Данная серия Звёздных войн является продолжением серии Звёздные войны: Сказания о джедаях. Сюжет сериала разворачивается в эпоху Империи и сосредотачивается на персонажах Баррисс Оффи и Морган Элсбет. Как два воина, каждый со своим путем, пытаются найти своё место во вселенной, которая переживает время перемен под властью Галактической Империи. Молодая Морган Элсбет, (   Читать дальше...   )Производство: США / Disney+, Lucasfilm Animation, LucasfilmЖанр: мультфильм, короткометражка, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Дэйв ФилониАктеры: Джейсон Айзекс, Мередит Сэленджер, Риа Килстедт, Ларс Миккельсен, Дайана Ли Иносанто, Мэттью Вуд, Винг T. ЧаоПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:15:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F314A0BE27DF6DC7CE29377332CD34E52D03BCE8
+magnet:?xt=urn:btih:BBDC799BF47C8BCD6562FCD36C363EC239562E7A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743704   (105381) от 17.08.2024
+###  Публикация: 1722876   (56708) от 13.05.2024
 
-Минтранс: Тест-драйв Тойота Приус (17.08.2024) WEBRip [H.264/720p]
+ibis Paint X 12.1.0 Lite-Mod by NURIK [Ru/En]
 
->>Документалистика и Телепередачи
->>За рулем
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-🔸 Страховка с подвохом. В каких случаях при составлении европротокола виновник аварии обязан платить?
-🔸 Тест-драйв Тойота Приус. Каким должен быть настоящий гибридный автомобиль?
-🔸 Лишняя категория. Можно ли отказаться от строчки в водительском удостоверении?
-🔸 О тайных знаках водителей. О чем хочет сказать дальнобойщик, если включает (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:06
+ibis Paint X - известное благодаря своим качествам и возможностям приложение для рисования. Высокая популярность среди поклонников творить на мобильных устройствах вполне обосновано и понятно. Удобное управление огромным разнообразием инструментов, различными предметами, палитрами, работой со слоями и всеми прочими элементами, что представлены в данном проекте, делает (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 02.05.2024Разработчик: ibis inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B625608FF664134AB6E4998C3FE9B5FA3A434B7A
+magnet:?xt=urn:btih:1A0EAFCAAA1AD020E718427158F3114F7FBAEB04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722975   (56709) от 13.05.2024
+
+Константин Калбазов | Отступник (Книга 3). Родоначальник (2024) [MP3, Дамир Мударисов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итак, все мои потуги остаться в стороне во избежание неприятностей пошли прахом. Никто не спрашивает моего мнения и не считается с моими желаниями. Дядюшка моего реципиента, великий князь Большекаменский, уже не единожды пытался достать меня. И ведь закатает в асфальт, сволочь! Ну, а коль скоро так, значит нужно бить в ответ. Наотмашь! От всей широкой души! Так чтобы (   Читать дальше...   )Жанр: ПопаданцыИздательство: ЛитРес, АвторПродолжительность: 10:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DAFB83D98CBEE2861E2712B784D83FDE6C8844
 ```
 
 

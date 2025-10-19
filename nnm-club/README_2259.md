@@ -1,696 +1,632 @@
-###  Публикация: 1731349   (107774) от 20.06.2024
+###  Публикация: 1717518   (59102) от 20.04.2024
 
-Axel Rudi Pell - Risen Symbol (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Melodic Metal>
+Формула 1. Сезон 2024. Этап 05. Гран-при Китая. Квалификация (20.04.2024) SATRip [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Спорт и активный отдых
+>>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Resurrection (Intro) (1:41)
-02. Forever Strong (4:41)
-03. Guardian Angel (5:27)
-04. Immigrant Song (5:46)(   Читать дальше...   )Жанр: Heavy Metal, Melodic MetalПродолжительность: 00:57:13
+20 апреля 2024, суббота. 10:00 МСК. Этап 5, Шанхай. Гран-при Китая, Квалификация (3 раунда)Телекомпания: M4 Sport (Венгрия)Жанр: спортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:30:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8609714430B408CF20C0010036CF9AD4667A2B07
+magnet:?xt=urn:btih:1DDD180F1DBF4445712CC25BAFF06E1B35610436
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731131   (107775) от 19.06.2024
+###  Публикация: 1717461   (59103) от 20.04.2024
 
-VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Techno>
+Формула 1. Сезон 2024. Этап 05. Гран-при Китая. Спринт (20.04.2024) SATRip [H.264/1080p]
 
->>Pop
->>Зарубежная поп-музыка
+>>Спорт и активный отдых
+>>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scooter - Rebel Yell
-02. Awex - Wicked Plasticman
-03. Klubbheads - Klubbhapping
-04. Blьmchen - Boomerang(   Читать дальше...   )Жанр: Electronic, Euro House, TechnoПродолжительность: 01:11:12
+20 апреля 2024, суббота. 06:00 МСК. Этап 5, Шанхай. Гран-при Китая, Спринт (19 кругов)Телекомпания: M4 Sport (Венгрия)Жанр: спортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 00:51:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14D051CE0D667D9DE5F8D3F8C6836773DB1D7D02
+magnet:?xt=urn:btih:58D1E34AAB1B30FEE0B9410D33B3EE3A9DDE2374
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731034   (107776) от 19.06.2024
+###  Публикация: 1717458   (59104) от 20.04.2024
 
-Loch Vostok - From These Waters (2015) [FLAC|Lossless|WEB-DL|tracks] <Extreme Progressive Metal>
+Уловки разума (2024) WEBRip [H.264/720p] (сезон 1, серии 1-4 из 4)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Like Poison to the Stars
-02. I Implode
-03. From These Waters
-04. Fighting Fire with Blood(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:47:52
+В небольшом тихом городке Любимове происходят странные убийства молодых женщин, заставляющие следователя по особо важным делам Киру Карелину заподозрить действия маньяка. Но приехавший на малую родину московский психотерапевт Константин Холмогоров, владеющий методом регрессивного гипноза, волею случая оказывается втянут в расследование и выдвигает свою версию происходящего. (   Читать дальше...   )Производство: Россия | «Magic Factory»Жанр: ДетективРежиссер: Дмитрий СорокинАктеры: Елена Лотова, Всеволод Болдин, Анна Ещенко, Владимир Роганов, Кирилл Мелехов, Александр Дзюба, Татьяна Тимакова, Варвара Фролова, Екатерина Петрилина, Серафим ДолбуновПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3869E4F521630F4EED3A6B4447B3FED86D59DB16
+magnet:?xt=urn:btih:E50390B5AA0974DAA5B63E4225487A6C1852B4A3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730875   (107777) от 19.06.2024
+###  Публикация: 1717325   (59105) от 20.04.2024
 
-Beartooth - 6 Albums (2014-2023) [FLAC|Lossless|WEB-DL|tracks] <metalcore, hardcore punk>
+Ubuntu EducationPack 18.04 (апрель 2024) [amd64]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-Beartooth - 2014 - Disgusting (Deluxe Edition 2015)
-Beartooth - 2016 - Aggressive (Deluxe Edition 2017)
-Beartooth - 2016 - Aggressive (Remixed_Remastered 2020)(   Читать дальше...   )Жанр: metalcore, hardcore punkПродолжительность: 7 CD, 06:05:41
+Предназначен помочь в организации учебного процесса и предоставить возможность организации качественного обучения с применением современных информационных технологий.
+Имеет высокую защищённость программного обеспечения от вирусов.
+
+Дистрибутив из коробки предоставляет полностью настроенное решение направленное на покрытие запросов для образовательных учреждений всех (   Читать дальше...   )Разработчик: UALinuxЯзык интерфейса: мультиязычный
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:324CC7F1CBF9DF28C541C558D03AF521805AB588
+magnet:?xt=urn:btih:0CA4590DE3E268263FC34B8819EEEAF731586B5B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731209   (107778) от 19.06.2024
+###  Публикация: 1717567   (59106) от 20.04.2024
 
-VA - DJ Hits Vol. 77 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
+Законопослушный гражданин / Law Abiding Citizen (2009) UHD WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
 
->>Pop
->>Зарубежная поп-музыка
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bushman - No 1 Else
-02. Sold Out - Hey Hoh (12' Eurodance Mix)
-03. Gale Robinson - Love, Joy & Passion
-04. K.C. Flightt - Bang! (Mixmaster Club - F. Edit)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:14:59
+Окружной прокурор пошёл на сделку с преступниками и освободил их из тюрьмы. Тогда человек, чьи жена и ребёнок погибли от рук убийц, решает отомстить прокурору, совершив правосудие самостоятельно. Его ловят и сажают в тюрьму, но он неожиданно ставит ультиматум: он будет убивать, не выходя из-за решетки, если его требования не будут выполнены. Смешное заявление, но (   Читать дальше...   )Производство: США / G-BASE, The Film Department, Warp FilmsЖанр: боевик, триллер, драма, криминалРежиссер: Ф. Гэри ГрейАктеры: Джейми Фокс, Джерард Батлер, Колм Мини, Брюс МакГилл, Лесли Бибб, Майкл Ирби, Грегори Итцин, Реджина Холл, Эмиральд Янг, Кристиан СтолтеПеревод: дублированный (ТО "Дия")Субтитры: отсутствуютПродолжительность: 01:44:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB9D4999AFCFCF03CF93335511890B3426D38F02
+magnet:?xt=urn:btih:DD0AF2B0CED97D74A35E2C4BB03897A8CD834EEA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731022   (107779) от 19.06.2024
+###  Публикация: 1717612   (59107) от 20.04.2024
 
-Timmy Trumpet - Timmy Trumpet's SINPHONY No. 2 (2024) EP [FLAC 16/44.1; 24/44.1|Lossless|WEB-DL|tracks] <Electronic, House, Dance>
+Benvista PhotoZoom Pro 8.2.0 RePack (& portable) by elchupacabra [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Let's Get Raving [4:01]
-02 - Drunk On A Friday [2:09]
-03 - Addicted To Rave [2:49]
-04 - Snake Pit [2:19](   Читать дальше...   )Жанр: Electronic, House, DanceПродолжительность: 00:13:36
+PhotoZoom Professional - программа является лучшей из имеющихся технологий для увеличения цифровых фотографий! Фирменная технология масштабирования S-Spline, используемая в PhotoZoom Professional, основана на запатентованной адаптивной методике, которую можно отнести к категории революционных. Сохраните качество Ваших снимков! Теперь Вы сможете увеличивать Ваши фотографии (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2D19BE792B39AD766F73906D5BC63CBE41F4EDF
+magnet:?xt=urn:btih:BAF36A81897475F93DA31D66561DAD2E4DF8F2AC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731007   (107780) от 19.06.2024
+###  Публикация: 1717415   (59108) от 20.04.2024
 
-VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+Turbo Kid (2024) [Multi] (1.0) Repack FitGirl
 
->>Pop
->>Зарубежная поп-музыка
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Mercy - Where do you go (club mix)
-02. Justine Earp - Ooo la la la (voodoo club radio 1)
-03. Ally & Jo - The lion sleeps tonight (remix)
-04. Captain Hollywood Project - Love & Pain(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:10:12
+Turbo Kid представляет собой метроидванию с двухмерной графикой в стиле пиксель-арт, камерой с видом сбоку, кровью и мясом. В инди-тайтле можно исследовать карту в своём темпе и выбирать собственный порядок прохождения боссов. От других представителей жанра данный экшен-платформер отличается тем, что по локациям можно не только ходить пешком, но и кататься на велосипеде. (   Читать дальше...   )Тип издания: RepackРазработчик: Outerminds Inc.Жанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3734184AAC1F04B42E6E5D97B4568B7D2EDB446B
+magnet:?xt=urn:btih:E14360B3C84A4C051434977082DA12017C4C61CD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731121   (107781) от 19.06.2024
+###  Публикация: 1717506   (59109) от 20.04.2024
 
-Marco Gluhmann - A Fragile Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+Vladimir Vissotski (Владимир Высоцкий) - 2 Albums (1987-1995) [FLAC|Lossless|tracks + .cue] <Авторская песня>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Hear Our Voice (05:20)
-02 - Never Say Goodbye (05:12)
-03 - Reach Out (05:29)
-04 - Faceless (04:41)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:09
+01. Le monument (Памятник) 4:16
+02. Visite Prenuptiale (Смотрины) 4:29
+03. Dialogue Devant la tele (Диалог у телевизора) 3:35
+04. Camarades Savants (Товарищи ученые...) 2:47(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 02:09:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12C26D6F504130E780123994ABD875EBD46AB811
+magnet:?xt=urn:btih:AC8A91DC2007A1F64540ACDAEBB600E9738522B7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731096   (107782) от 19.06.2024
+###  Публикация: 1482857   (59110) от 20.04.2024
 
-Saidian - Evercircle (2009) [FLAC|Lossless|image + .cue] <Power Metal>
+Черные вдовы / Black Widows (2017) WEB-DL  [H.264/1080p] (сезон 2, серии 1-8 из 8) Amedia
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Out Of The Shadows (4:32)
-02. Tokyo (3:56)
-03. Solomon's Dance (5:28)
-04. Once In My Dreams (7:01)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:03
+Три подруги средних лет вдруг осознают, что их жизнь с мужьями стала невыносимой, и решают избавиться от них. Задумано — сделано, только легче не становится, скорее, наоборот. События начинают развиваться с бешеной скоростью, и вся жизнь превращается в хаос.Производство: Финляндия / Moskito TelevisionЖанр: драма, криминал, детективРежиссер: Яник Хиен, Карстен МиллерупАктеры: Сесилия Форсс, Беате Билле, Синневе Макоди Лунд, Кюрре Хеллум, Манс Натанаэльсон, Катарина Эверлоф, Петер Стормаре, Кен Ведсегор, Йоханнес Кунке, Alva BengtsПеревод: Многоголосый профессиональный (Amedia)Язык озвучки: русский, шведскийСубтитры: норвежскиеПродолжительность: ~00:41:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13BC84066CAE3A21E4A4CDE4D60E6182076DA772
+magnet:?xt=urn:btih:A283C2FEA3AD9CFF1F8C8BB3001DC70EC44A9E3E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730896   (107783) от 19.06.2024
+###  Публикация: 1717553   (59111) от 20.04.2024
 
-Pimps of Joytime & Sophia Urista - Don't Belong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Футажи - ActionVFX - Candles & Small Flames [MOV]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Girl On Girl (2:29)
-02. Drowning in Your Love (2:47)
-03. Fighter (2:51)
-04. Joy Peace (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:23
+31 небольшой объект пламени, включая свечи, спички, горелки и многое другое с вариациями типа пламени, цвета пламени и интенсивности ветра.Формат: MOVРазрешение файлов: 4096x2160 (4K)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89A22D0A8D6E844D8B29E1696E4C27FE8D3291D9
+magnet:?xt=urn:btih:4FD4026B64F350D87795A1F9A6AB42CBFB54BBA8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731206   (107784) от 19.06.2024
+###  Публикация: 1717502   (59112) от 20.04.2024
 
-Voraath - Vol. 1: Hymn of the Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Уловки разума (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Into Perdition
-02 - The Road to Samm Hill
-03 - Waypoint Orion
-04 - Terminus Rift(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:58:11
+В небольшом тихом городке Любимове происходят странные убийства молодых женщин, заставляющие следователя по особо важным делам Киру Карелину заподозрить действия маньяка. Но приехавший на малую родину московский психотерапевт Константин Холмогоров, владеющий методом регрессивного гипноза, волею случая оказывается втянут в расследование и выдвигает свою версию происходящего. (   Читать дальше...   )Производство: Россия | «Magic Factory»Жанр: ДетективРежиссер: Дмитрий СорокинАктеры: Елена Лотова, Всеволод Болдин, Анна Ещенко, Владимир Роганов, Кирилл Мелехов, Александр Дзюба, Татьяна Тимакова, Варвара Фролова, Екатерина Петрилина, Серафим ДолбуновСубтитры: РусскиеПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F1B83981B9AA82056FC629685879F5212E4499A
+magnet:?xt=urn:btih:AC8422757BE5DABF27D1AE59ECBAFC45A9716087
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731115   (107785) от 19.06.2024
+###  Публикация: 1717033   (59113) от 20.04.2024
 
-Bloodorn - Let The Fury Rise (2024) [FLAC|Lossless|image + .cue] <Power Metal>
+"АвтоВАЗ" предложил поднять  утильсбор уже в этом году с 300 тыс. руб. до 550 тыс.
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>След.
+>>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Overture χιϛ
-02. Fear The Coming Wave
-03. Under The Secret Sign
-04. Rise Up Again(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:58
+"АвтоВАЗ" предлагает поднять в 2024 году утилизационный сбор для автомобилей с двигателем от одного до двух литров с 300 тыс. до 550 тыс. руб. Об этом сообщил глава компании Максим Соколов на расширенном заседании комитета Совета Федерации по экономической политике во вторник."Для автомобиля с двигателем от одного до двух литров, с нашей точки зрения, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43A010E6D2584F16641376B17339254348EAD4DE
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731066   (107786) от 19.06.2024
+###  Публикация: 1717466   (59114) от 20.04.2024
 
-Erroll Garner - The Erroll Garner Collection, Vol.4,5: Solo Time! (1954) 2CD, 1990, Emarcy [FLAC|Lossless|tracks + .cue] <Bop, Swing, Piano Jazz>
+Пацаны / The Boys (2022) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 3, серии 1-8 из 8) AlexFilm, LostFilm, HDRezka, Jaskier, NewStudio, TVShows, Kv³, Red Head Sound, RuDub
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежные сериалы
+>>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Old Man River [6:54]
-02. I'll Get By [4:24]
-03. Medley: April in Paris/The Last Time I Saw Paris [5:06]
-04. Sleepy Lagoon [5:09](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 01:40:46
+Действие сериала разворачивается в мире, где существуют супергерои. Именно они являются настоящими звездами. Их все знают и обожают. Но за идеальным фасадом скрывается гораздо более мрачный мир наркотиков и секса, а большинство героев — в жизни не самые приятные люди. Противостоит им отряд, неофициально известный как «Пацаны».Производство: США / Amazon Studios, Kickstart Entertainment, Kripke EnterprisesЖанр: фантастика, боевик, драма, комедия, криминалРежиссер: Филип Сгриккиа, Фред Туа, Сара БойдАктеры: Карл Урбан, Джек Куэйд, Энтони Старр, Эрин Мориарти, Джесси Ашер, Лас Алонсо, Чейс Кроуфорд, Томер Капон, Карен Фукухара, Нэйтан МитчеллПеревод: Дублированный (Red Head Sound), Многоголосый профессиональный (AlexFilm, LostFilm, HDRezka, Jaskier, NewStudio, TVShows, RuDub), Профессиональный двухголосый (Кубик в Кубе)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, Full, SDH)Продолжительность: ~01:01:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B435DF74C4A9356C759E414E1C32F393A15EC58C
+magnet:?xt=urn:btih:59165C9B10E00B8A9B4C1F68B7AAD573439FA142
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730872   (107787) от 19.06.2024
+###  Публикация: 1717577   (59115) от 20.04.2024
 
-Iris Official - Heart Of An Artist: Resurrection (2023) Relived Edition, 2024, DAGames Records [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
+Женский Stand Up (2024.04.20) SATRip (сезон 5, выпуск 12)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Descending (Relived) [00:00:15]
-02. S.O.S (Relived) [00:04:09]
-03. Draw The Line (Relived) [00:03:49]
-04. As The Lights Go Out  (Relived) [00:05:10](   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:43:56
+Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Зоя Яровицына, Надежда Джабраилова, Александра Муратова, Мария Маркова, Сауле Юсупова, Маргарита Родина и др.Субтитры: ОтсутствуютПродолжительность: 00:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C102A41EF15A08F6DA1964034844200FA7E7422
+magnet:?xt=urn:btih:6040BE014FCE99CE4564F9ACCC303DEDCA763C4F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731094   (107788) от 19.06.2024
+###  Публикация: 1717512   (59116) от 20.04.2024
 
-Threshold - Subsurface (2004) [FLAC|Lossless|image + .cue] <Progressive Metal>
+Мятежная Луна, часть 2: Оставляющая шрамы / Rebel Moon - Part Two: The Scargiver (2024) WEB-DL [H.265/1080p] [10-bit, 60 fps] [UKR, EN / UKR, EN Sub]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Mission Profile 8:15
-2. Ground Control 7:10
-3. Opium 6:47
-4. Stop Dead 4:18(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:58:33
+События фильма разворачиваются во вселенной, контролируемой коррумпированным правительством Праматери. Кора и выжившие воины готовятся пожертвовать всем, сражаясь плечом к плечу с народом Вельдта. Накануне битвы героям предстоит взглянуть в лицо своему прошлому и понять за что они должны биться.Производство: США / Grand Electric, The Stone QuarryЖанр: фантастика, фэнтези, боевик, драма, приключенияРежиссер: Зак СнайдерАктеры: Эд Скрейн, София Бутелла, Чарли Ханнэм, Джена Мэлоун, Энтони Хопкинс, Кэри Элвес, Джимон Хонсу, Михил Хёйсман, Стюарт Мартин, Пэ Ду-наПеревод: Дублированный (укр. Postmodern)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 02:03:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08ABE423C96283CD66396707E6FAEE328D6D62BF
+magnet:?xt=urn:btih:C7414CF5E84A1B9CE0AEC845A7CF88C95211FBCA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731039   (107789) от 19.06.2024
+###  Публикация: 1683858   (59117) от 20.04.2024
 
-Loch Vostok - Strife (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Progressive Metal>
+Домино v1.65 Mod by vadj [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Babylonian Groove
-02. Summer
-03. The Apologists Are the Enablers
-04. Cadence(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:44:00
+Домино, безусловно, одна из самых известных настольных игр в мире. Есть десятки правил, но три режима привлекают больше внимания:
+- Нарисуйте домино: просто, расслабляйтесь, играйте в свои плитки по обе стороны доски. Вам нужно только подобрать плитку, у вас есть один из двух концов, уже на доске.
+- Блокируйте домино вашей очереди, если у вас заканчиваются опционы (   Читать дальше...   )Тип издания: ModРелиз состоялся: 19.04.2024Разработчик: Loop GamesПоддерживаемая ОС: Android 5.1+Жанр: Настольные игрыЯзык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0F0AC6C783E6C8456F261A21EE9A55D6DEFB5E8
+magnet:?xt=urn:btih:F401D13C90D0D695BB4C008818A1492F89F0E4C5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730961   (107790) от 18.06.2024
+###  Публикация: 1717575   (59118) от 20.04.2024
 
-VA - DJ Hits Vol. 62 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+Эбигейл / Abigail (2024) TS [AD]
 
->>Pop
->>Зарубежная поп-музыка
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Mix - Long
-02. Beat System - Fresh
-03. Ice MC - Give me the Light
-04. Grandmaster Flash - If U wanna party(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:18:23
+Банда преступников похищает 12-летнюю балерину, дочь криминального авторитета. Спрятавшись в уединённом особняке, они ещё не догадываются, что влиятельный отец девочки - далеко не главная их проблема.Производство: США, Ирландия / Project X Entertainment, Québec Production Services Tax CreditRadio Silence ProductionsЖанр: ужасыРежиссер: Мэттью Беттинелли, Тайлер ДжиллеттАктеры: Кэтрин Ньютон, Дэн Стивенс, Кевин Дюран, Джанкарло Эспозито, Мелисса Баррера, Ангус Клауд, Алиша Вейр, Уильям КэтлеттПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Испанский (hardsub)Продолжительность: 01:46:00Реклама: Присутствуют вставки аудио и видео рекламы.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D561445E3C7DC24D02DC0A8481F0357C0E50F62
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730874   (107791) от 18.06.2024
+###  Публикация: 1712540   (59119) от 20.04.2024
 
-The Hollywood Stars - Starstruck (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+ТАСС уполномочен заявить (1984) SATRip [H.264] (серии 1-10 из 10)
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Can't Do It Right
-02 - Taxi Driver
-03 - Bad, Bad Man
-04 - I Had a Girlfriend, Now She's Gone(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:20
+Советские разведчики поставлены перед сложной и опасной задачей - срочно выявить агента ЦРУ, живущего в Москве и работающего в учреждении, куда поступает вся информация по «африканскому узлу». От оперативности решения этой задачи зависят судьбы не только отдельных людей, но и целого государства - африканской страны Нагонии...Производство: СССР / Киностудия им. М.ГорькогоЖанр: приключения, детективРежиссер: Владимир ФокинАктеры: Вячеслав Тихонов, Юрий Соломин, Вахтанг Кикабидзе, Николай Засухин, Алексей Петренко, Элеонора Зубкова, Николай Скоробогатов, Леонид Куравлёв, Ивар Калныньш, Борис Химичев и другиеПродолжительность: ~01:06:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADCA3B6DDFDB3D8EF1129F51D02EA3796A2DA917
+magnet:?xt=urn:btih:57D965F8AB0AF21977DFEFF6293F72976C96C3BB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730953   (107792) от 18.06.2024
+###  Публикация: 1717251   (59120) от 20.04.2024
 
-Shades of Thunder - Big Break (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
+Кстати (2024) WEBRip [AV1/1080p] (сезон 1, выпуск 29-38)
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - School's Out (00:02:55)
-02 - Airborne (00:04:00)
-03 - Shoreline (00:03:17)
-04 - Meltemi Club (00:02:44)(   Читать дальше...   )Жанр: Retrowave, SynthwaveПродолжительность: 00:42:45
+«Кстати» - новый проект с участием ведущих комиков Гарика Харламова, Азамата Мусагалиева и Дениса Дорохова. На первый взгляд это рядовое шоу, но есть один нюанс: в студии будут обсуждаться не только шутки и приколы, но и самые актуальные и горячие темы.Производство: Россия | VK ВидеоЖанр: Ток-шоу, музыкаРежиссер: Станислав ИльченкоУчастники: Гарик Харламов, Азамат Мусагалиев, Денис Дорохов, Александр Овечкин, Дарья Зотеева, Олег Еропкин, Роберт Багратуни, Анита Пудикова, Григорий Лепс, Влад Бумага и др.Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:17:00 выпуск
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B892DA971D02FEC5BFA6531226218CD078E5792
+magnet:?xt=urn:btih:D09A3A07C2D0F3237270500FAC25C73716696138
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730831   (107793) от 18.06.2024
+###  Публикация: 1717622   (59121) от 20.04.2024
 
-VA - DJ Hits Vol. 60 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+Дизайн Календарей 18.0 RePack (& Portable) by elchupacabra [Ru]
 
->>Pop
->>Зарубежная поп-музыка
+>>Мультимедиа и Графика
+>>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fools Garden - Leemon Tree
-02. R.Miles - Children
-03. Culture Beat - Crying In The Rain
-04. Scooter - Let Me Be Your Valentine(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:13:19
+Дизайн Календарей - это доступная и удобная программа для создания красивых календарей с фотографиями на любой год или месяц. Достаточно выбрать формат и оформление проекта, добавить фотографии - и получить превосходный результат. Программа позволяет подготовить сотни вариантов календарей в самых разных стилях: классическом и современном, строгом или изящном, деловом (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB4564E6FE0EA85FAA3B267BFCAC9AF8FCD5EBA9
+magnet:?xt=urn:btih:8998626FF152951E88B1864273DF9DE5337B393D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730900   (107794) от 18.06.2024
+###  Публикация: 1603145   (59122) от 20.04.2024
 
-VA - DJ Hits Vol. 61 (1996) [OGG Vobis|480 Kbps] <Electronic, Euro House, Euro Dance>
+Калькулятор калорий ХиКи v3.67 Mod by Alex.Strannik [Ru/Multi]
 
->>Pop
->>Зарубежная поп-музыка
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mr. President - Coco Jamboo (Extended)
-02. Backstreet Boys - Get Down (Ho Rap Edit)
-03. Carol Bailey + Alex Party - I Can't Make You Love Me (Alex Party Short Mix)
-04. Neuronic - Heaven (Motiv 8 Club Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:36
+Мощный инструмент для тех, кто хочет похудеть, и всех тех, кто просто хочет быть в форме. Приложение содержит обширную базу продуктов с таблицей пищевой ценности. Сей комбайн можно прекрасно настроить под свои нужды. Программа сама рассчитает нужную норму калорий и БЖУ в зависимости от ваших параметров и активности. Тысячи людей пользуются ХиКи каждый день по всему (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.04.2023Разработчик: HiKi SoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B2A550B305EB6E74272168F30384646B6A6624F
+magnet:?xt=urn:btih:758C0696D72A8C5A8BDB1403C128387454AED85C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730830   (107795) от 18.06.2024
+###  Публикация: 1717610   (59123) от 20.04.2024
 
-VA - DJ Hits Vol. 59 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+Hot Wheels Unleashed (2021) [Ru/Multi] (1.0upd14/dlc) License CODEX
 
->>Pop
->>Зарубежная поп-музыка
+>>Win Игры
+>>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Double Vision - All Right (Extended Version)
-02. 740 Boyz - Bump Bump Booty Shake (Radio Version)
-03. Blumchen - Herz An Herz (Herz In Der Luft Radio Mix)
-04. Fun Factory - Doh Wah Diddy (Dee Dee Radio)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:56
+Любителям гоночных соревнований точно придется по душе новый интерактивный проект Hot Wheels Unleashed, в котором высокий уровень динамичности и довольно реалистичная физика. Вы должны будете в этой игре управлять скоростным автомобилем и принять участие в увлекательных состязаниях. Море ярких впечатлений и острых ощущений ждет вас здесь, а также возможность показать, (   Читать дальше...   )Тип издания: LicenseРазработчик: Milestone S.r.l.Жанр: Гонки, АркадаЯзык субтитров: Русский, Английский, Испанский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Испанский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76A2C8FF82F1348A7D7FD093F80F7890499FA4D7
+magnet:?xt=urn:btih:126250A18EBF678C01CB7112635FBE13958D29E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730735   (107796) от 18.06.2024
+###  Публикация: 1717534   (59124) от 20.04.2024
 
-Brother Chunky - Dig Deeper (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+The Bat! Professional 11.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Best Man (4:15)
-02. Get Thee Behind Me (4:42)
-03. Dig Deeper (3:44)
-04. How Many Times (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:27
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7498E7CA248CF58AA9599E1D893E428FADB8436
+magnet:?xt=urn:btih:E7F5B0CDEDDAD6B6E378D28A3FB37D1C51D6BD58
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730736   (107797) от 18.06.2024
+###  Публикация: 1717406   (59125) от 20.04.2024
 
-Nico Fami - Nico Fami Live at the Ocean Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Захват рейса 601 / Secuestro al vuelo 601 / The Hijacking of Flight 601 (2024) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 6) HDRezka
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Зарубежные сериалы
+>>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Key to the Highway (4:17)
-02. Rock Me Baby (5:44)
-03. Nobody Shoot Me (5:51)
-04. You Don't Have to Go (5:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:50
+В небе между Перейрой и Медельином разворачивается драматическая история захвата самолета двумя революционерами, которые ставят под угрозу жизни пассажиров и диктуют свои условия властям. Они требуют освобождения пятидесяти заключенных и выплаты крупной суммы денег, ставя колумбийское правительство в безвыходное положение. Под давлением времени и угрозой взрыва самолета, (   Читать дальше...   )Производство: Колумбия, Miracol MediaЖанр: Триллер, драма, историяРежиссер: David Pombo, Пабло Гонсалес, C.S. PrinceАктеры: Моника Лопера, Valentín Villafañe, Алиан Деветак, Кристиан Таппан, Анджела Кано, Энрике Каррьясо, Марсела Бенхумеа, Johan Rivera, Иления Антонина, Карлос Мануэль ВесгаПеревод: Многоголосый профессиональный (HDRezka)Язык озвучки: Русский, испанский, английскийСубтитры: Русские (forced, full), испанские (forced, full, SDH), английские (forced, full, SDH)Продолжительность: ~00:55:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:691406A57577F3943CE091C1D5139BC468459DA6
+magnet:?xt=urn:btih:82A0A8C7BF925E2A95E1DF2BEDB332F955CB10E6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730972   (107798) от 18.06.2024
+###  Публикация: 1717554   (59126) от 20.04.2024
 
-Темная сторона Копенгагена / Fra det morke Kobenhavn (1910) WEBRip [H.264/720p]
+Рейд / Serbuan maut / The Raid: Redemption (2011) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit, Dolby Vision]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Известно, что скандинавские города, в том числе и Копенгаген, традиционно спокойные, тихие, с законопослушными жителями. И это правда. Но и правда то, что в любом большом городе есть темная сторона, опасные переулки и не очень-то миролюбивые граждане. И это надо помнить приезжим. А тем более простодушным фермерам. Но нет же - эти, простите за жаргон, лохи так и норовят (   Читать дальше...   )Производство: Дания / BioramaЖанр: короткометражный, драма, криминал, немое киноРежиссер: Карл АльструпАктеры: Карл Альструп, Кейт Фабиан, Sigrid Creutz Hindborg, Ёрген Лунд, Карл Петерсен, Arvid Ringheim, Emilie SannomПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:30:21
+Отряд спецназовцев получает задание проникнуть в многоэтажный дом, расположенный в самом сердце трущоб Джакарты, и арестовать обосновавшегося там наркобарона, которого охраняет целая армия вооруженных до зубов головорезов. Операцию нужно провести без лишнего шума, но нелепая случайность нарушает планы служителей закона, и теперь на них объявлена охота. Перед ними (   Читать дальше...   )Производство: Индонезия, Франция, США / Pt. Merantau Films, Stage 6 FilmsЖанр: боевик, криминал, триллерРежиссер: Гарет ЭвансАктеры: Ико Увайс, Джо Таслим, Донни Аламсьях, Яян Рухьян, Пьер Грюно, Рэй Сахетапи, Тегар Сатрия, Ианг Дармаван, Эка «Пиранья» Рахмадия, Верди СолаиманПеревод: Дублированный, АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:41:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F478D9AF89BD8129AAD7F72A9D38E3395BAF2312
+magnet:?xt=urn:btih:5C4658FC590463809D87A9981D816DC3213E18E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730944   (107799) от 18.06.2024
+###  Публикация: 1717584   (59127) от 20.04.2024
 
-Владислав Крапивин | Оруженосец Кашка (2016) [MP3, Ольга Голованова]
+Король Лев / The Lion King (1994) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Детская аудиокнига.
-Владислав Петрович Крапивин (1938–2020) – советский и российский детский писатель, поэт, сценарист, журналист и педагог, автор книг о детях и для детей, в том числе фантастических.
-Когда Володе в качестве «оруженосца» для соревнования по стрельбе из лука определили Кашку, то он жутко расстроился. Совершенно никчемным показался Володе (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: Студия «АРДИС»Продолжительность: 04:17:31
+У величественного Короля-Льва Муфасы рождается наследник по имени Симба. Уже в детстве любознательный малыш становится жертвой интриг своего завистливого дяди Шрама, мечтающего о власти.
+
+Симба познаёт горе утраты, предательство и изгнание, но в конце концов обретает верных друзей и находит любимую. Закалённый испытаниями, он в нелёгкой борьбе отвоёвывает своё законное (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Роджер Аллерс, Роб МинкоффАктеры: Мэттью Бродерик, Джереми Айронс, Нэйтан Лейн, Эрни Сабелла, Джеймс Эрл Джонс, Мойра Келли, Роуэн Эткинсон, Вупи Голдберг, Чич Марин, Никета КаламПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:25:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DFA7D377CC537CE871F0CC1D77445A9C2E3206B
+magnet:?xt=urn:btih:14C259BD5BBCA95E8DF31395B09288B3507434B3
 ```
 
 

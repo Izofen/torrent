@@ -1,779 +1,629 @@
-###  Публикация: 459049   (94896) от 28.02.2012
+###  Публикация: 1735653   (50563) от 09.07.2024
 
-А. П. Грицкевич | Западный фронт РСФСР 1918-1920 [2010] [PDF, DjVu]
+Таро: Карта смерти / Tarot (2024) BDRip [H.264/1080p]
 
->>Научная и техническая литература
->>Военная литература
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге подробно рассмотрены события советско-польской войны 1919-1920 гг. В отличие от прежних публикаций коммунистических историков по этой теме, ограниченных рамками статей Ленина и мемуаров командиров РККА периода 1920-х годов, автор использовал в первую очередь исследования польских и белорусских ученых, неизвестные русскоязычной аудитории.
-О многом читатели (   Читать дальше...   )Формат: PDF, DjVu
+Когда компания друзей безрассудно нарушает священное правило гадания на Таро - никогда не использовать чужую колоду - они неосознанно высвобождают зло, запертое в проклятых картах. Один за другим они оказываются лицом к лицу с судьбой и вступают в гонку со смертью, чтобы избежать будущего, предсказанного в их гаданиях.Производство: США, Сербия / Alloy Entertainment, Capstone Pictures, Ground ControlЖанр: ужасыРежиссер: Спенсер Коэн, Анна ХалбергАктеры: Харриет Слейтер, Эдейн Брэдли, Джейкоб Баталон, Авантика, Умберли Гонсалес, Вольфганг Новограц, Ларсен Томпсон, Олуэн Фуэре, Сунчика Миланович, Алан УэллсПеревод: Дублированный (MovieDalen), многоголосый (HDRezka), одноголосый (Д. Есарев)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:32:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF0D2B6B3BCE9BDEB0358DD56121715F427309CC
+magnet:?xt=urn:btih:3635380902D2A166AB1BB2E0B20E38D6E47F04ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 459312   (94904) от 28.02.2012
+###  Публикация: 1735800   (50564) от 09.07.2024
 
-Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
+Байкеры / The Bikeriders (2023) WEB-DL [H.264/1080p] [звук с TS]
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A759CF3F616375E95A6AD01EADB165B32F688731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458644   (94913) от 29.02.2012
-
-VA - House Vip (25.02.2012) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artem Fortiz - Level Up (Original Mix) (4:45)
- 02. Chris Lake - Build Up (Original Mix) (6:22)
- 03. Christian Falero, Adrian Villaverde - Big Jerk (Original Mix) (6:31)
- 04. Chuckie - Together (Original Club Mix) (6:20)
- 05. Cyberpunkers - Epic (Original Mix) (5:23)
- 06. Defunct, Mr Eyez - Make You Dance (Original Mix) (5:34)
- 07. DJ Marbrax - Hollywood (Laurent H Remix) (5:58)
-08. Jack Holiday & Mike Candys - Children (Steam Loco Mix) (4:55)
- 09. L2 - Insomnia (Jump Smokers Club Remix) (6:12)
- 10. Luca Cassani, Dario Maffia - Rrrock It (Abel Ramos Italy With Love Remix) (7:36)25.02.2012Жанр: Electro HouseПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1799CA65CE19D1D3E13EDBA752D49489D1798D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458765   (94914) от 29.02.2012
-
-Alexandre Mospan - tootamixa radio radioshow (2011) [MP3|320 кб/с]<Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94914.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deepfunk - Monday
-2. Underset-Berlin (Original Mix)
-3. Gabriel Cazali-Altas Expectativas
-4. Felix Dofenbeck - Me and You
-5. Shant - Garinet (Juan Deminicis Remix)
-6. Kassey Voorn - A Rock.
-7. kassey voorn - garrys kitty
-8. Jody Wisternoff - Vintage
-9. Tom Glass - Time
-10. kobb-sea2011Жанр: Progressive HouseПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712960474C88D602E5F9BDE29949336E9C655EB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460005   (94916) от 29.02.2012
-
-VA - Mystic India (Vol.3) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Asher - Temple Gates (08:06)
-02. Tulku - Shanti Puja (06:37)
-03. Galactic Agents - Buddha Of Compassion (05:08)
-04. Chinmaya Dunster - Chidambaram (05:28)
-05. Tya - The Mosque (06:12)
-06. James Asher - Pemulwuy Returns (05:47)
-07. Shamiana - Buddha In Town (05:34)
-08. Bhakta - In Between Moments (04:57)
-09. Chinmaya Dunster - Purnima Namaskar (08:33)
-10. Namaste - Aum Shree Ram (05:50)(   Читать дальше...   )2003Жанр: New Age, Meditative, RelaxПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D976CBA82E803930D23606F6D569659EE7C316E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460011   (94941) от 29.02.2012
-
-VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Pruess - Waiting For The Beloved (07:28)
-02. Ranga - Phoenix (04:33)
-03. Deliter - Yellow Mandala (08:36)
-04. Bhakta - Third Eye (06:41)
-05. Chinmaya Dunster - Hanuman In New Delhi (04:15)
-06. Rasa - Jaya Radha (08:28)
-07. Niladri Kumar - Dhun (Raga Bhairavi) (09:22)
-08. Tanmoy Bose - Communion (04:04)
-09. Chinmaya Dunster & The Celtic Ragas Band - Wedding In Kotree (05:09)
-10. Galactic Agents - Kailash Baba (04:52)(   Читать дальше...   )2004Жанр: New Age, Meditative, RelaxПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459912   (94946) от 29.02.2012
-
-Журнал | Любимая дача [Украина] №3 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимая дача - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D919580C4CA92D001D5411FFC16FEF3FCD095B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459429   (94947) от 29.02.2012
-
-David Guetta - DJ Mix 085 (11.02.2012) [MP3|~224 кб/с]<House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Intro (00:28 )
- 02. Zedd - Stars Come Out (Lazy Rich Remix) (05:42)
- 03. Michael Woods - Airborne (05:25)
- 04. Starkillers & Dmitry KO - Don't Hold Back (04:43)
- 05. D-Mad - 1961 (03:49)
- 06. Quintino - We Gonna Rock (05:27)
- 07. Steve Aoki feat. Wynter Gordon - Ladi Dadi (Tommy Trash Remix) (04:18 )
- 08. John Dahlback - Life (05:35)
- 09. EDX & Nadia Ali - This Is Your Life (05:30)
- 10. Moguai - Mpire (04:11)(   Читать дальше...   )11.02.2012Жанр: HouseПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BA8251F95E7D38D87446BCA4B9D87D63FA2B50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460001   (94948) от 29.02.2012
-
-VA - Mystic India (Vol.2) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Asher - Pemulwuy (05:32)
-02. Sambodhi Prem - Mirror Of The Sun (05:40)
-03. Narayana - Sangit (08:28)
-04. Chinmaya Dunster - Right Samadhi (05:06)
-05. Kamal - Spirit Gathering (07:47)
-06. Kala Ramnath - Raag N Rythm (08:11)
-07. Deuter - Apres La Pluie (06:35)
-08. Namaste - Shiva Shambo (09:33)
-09. Hariprasad Chaurasia - Folk Melody (08:02)2003Жанр: New Age, Meditative, RelaxПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EBC70228E801597A42A83CD3C14E91CD85BFDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459968   (94961) от 29.02.2012
-
-Время покаяния (2012) TVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое ПОКАЯНИЕ и ЗАЧЕМ оно нужно современному человеку? Об этом рассуждают психолог, философ, богослов и проповедник, поэт и рок музыкант, дирижёр классической музыки, регент и монахиня — наши современники разных профессий и возрастов. Это взгляд на нравственные вопросы — совесть, духовную вертикаль человека, идеалы жизни.
-Среди участников - н.а. СССР Владислав Чернушенко (Художественный руководитель Государственной Капеллы Санкт-Петербурга), психолог Альфред Щёголев, философ и писатель Татьяна Горичева, самый известный в РПЦ миссионер и проповедник протодиакон Андрей Кураев, регент хора монахиня Иулиания (выпускница СПб Консерватории), поэт и рок-музыкант Юрий Шевчук.
-Вы увидите съёмки современного мегаполиса, рок-концерта с участием Э.Кустурица, великопостных концертов 2011 г., храмов и монастырей с использованием специальной съемочной техники.Жанр: ДокументальныйРежиссер: Антон АлексеевПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203A09ECA219C6AE26923800FEB750AB4E345AA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459729   (94969) от 29.02.2012
-
-[Wallpapers] Между небом и землей
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небо и Земля долговечны потому, что существуют не для себя.
-Небо и Земля не обладают человеколюбием и предоставляют всем существам возможность жить собственной жизнью.
-Господь с тобой - между небом и землей.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED3F35D6612168C8C4E8DBD60E35076625F1BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460021   (94971) от 29.02.2012
-
-В. Л. Елецких | Феномен из бездны: НЛО [1991] [DJVU]
-
->>Разное (категория книг)
+>>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Брошюра посвящена так называемому "Воронежскому феномену" - посещению инопланетянами города Воронеж осенью 1989 года.
+1960-е. Мотоклуб, в котором собираются местные аутсайдеры, постепенно превращается в сборище бандитов.Производство: США / 20th Century Studios, Regency Enterprises, Regency TelevisionЖанр: драма, криминалРежиссер: Джефф НиколсАктеры: Джоди Комер, Остин Батлер, Том Харди, Майкл Шеннон, Майк Фейст, Бойд Холбрук, Норман Ридус, Дэймон Херриман, Бо Напп, Эмори КоэнПеревод: Дублированный (Movie Dubbing / Bravo Records Georgia) звук с TSЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:56:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735739   (50565) от 09.07.2024
+
+Василий Маханенко | Закон джунглей (Книга 4) (2024) [MP3, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закон джунглей» – фантастический роман Василия Маханенко, четвертая книга одноименного цикла, жанр уся, боевое фэнтези, героическое фэнтези.
 
-36 страниц, собственный скан.Формат: DJVU
+Закон Джунглей гласит – если ты перешёл дорогу сильным мире сего, быть беде. Казалось бы – смерть пришла за Вилеей из племени Урбангос, вот только искатель Зандр не собирается её так легко принимать! Когда ты готов ради любимой (   Читать дальше...   )Жанр: Боевое фэнтезиИздательство: ИДДКПродолжительность: 07:49:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAAACD7D94AB2AE7EBCE4BFB3B96E445899A03B1
+magnet:?xt=urn:btih:1C40E2539F0DB53BB32FF6F488286D478C1919D6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 459789   (94976) от 29.02.2012
+###  Публикация: 1735765   (50566) от 09.07.2024
 
-Nina Kraviz - Nina Kraviz (2012) [MP3|320 кб/с]<Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking In The Night (feat. Hard Ton)
-02. Aus (feat. King Aus On The Mic)
-03. Ghetto Kraviz
-04. Taxi Talk
-05. False Attraction
-06. Working
-07. Choices
-08. Love Or Go
-09. Best Friend
-10. 4 Ben(   Читать дальше...   )2012Жанр: Deep House, Tech HouseПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A22D47BDF8629BF86C054B065806A59CD06E85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458134   (94990) от 01.03.2012
-
-M.I.K.E. - Club Elite Sessions 241 (23.02.2012) [MP3|256 кб/с]<Trance, Progressive Trance>
+v2rayN 6.50 Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bjorn Fogelberg - Inside Out (Hamza Mix) (Sick Watona)
- 02. Bastards Of Funk & Sonic Union - Glitter (Steve Haines Remix) (Lowbit)
- 03. Mat Zo - Bipolar (Anjunabeats)
- 04. Fadios - Paradiso (Solid Stone Remix) (Re*Brand)
- 05. Daniel Portman - Dark Age23.02.2012Жанр: Trance, Progressive TranceПродолжительность: 01:00:03
+v2rayN — это универсальный инструмент VPN и прокси, разработанный для устройств Windows. Позволяет пользователям обходить интернет-ограничения, шифровать свои данные и с легкостью получать доступ к контенту ограниченному регионом.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CAD8904DEC91E2A759951CC18F6F4CBD77696AE
+magnet:?xt=urn:btih:4FEFB35CE2E1D91FE516C58F11F07B9B0C23BE40
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460748   (94999) от 01.03.2012
+###  Публикация: 1735675   (50567) от 09.07.2024
 
-VA - Trance Maniacs Party: Melody Of Heartbeat 75 (01.03.2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94999.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Nightstylers feat. Dan Brown - The More I See (Original Mix) (7:20)
- 2. Mark Eteson - Universal Language (Tritonal Club Mix) (6:35)
- 3. Pedro Del Mar feat. Emma Lock - Guilty (Pedro Del Mar's ProgTrance Mix) (6:28)
- 4. Solis & Sean Truby feat. Anthya - Timeless (Protoculture Remix) (7:45)
- 5. Above & Beyond feat. Zoe Johnston - You Got To Go (Kyau & Albert Remix) (6:47)
- 6. Sunbird - They Accept Paradise (Original Mix) (6:40)
- 7. Beat Service feat. Emma Lock - Not Out (Original Proglifting Mix) (8:14)
- 8. Ronski Speed feat. Renee Stahl - Out Of Control (Club Mix) (7:12)
- 9. Mat Zo & Arty - Mozart (Original Mix) (7:10)
- 10. Betsie Larkin & John O'Callaghan - The Dream (Jason van Wyk Remix) (7:16)(   Читать дальше...   )01.03.2012Жанр: TranceПродолжительность: 03:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CDF84AD2F291D11B9F53ED457632D854889AE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459955   (95000) от 01.03.2012
-
-VA - Goa Vol. 41 (2 cd) (2012) [MP3|~256 кб/с (V0)]<Psychedelic / Psy-Prog, Full On>
+The KMPlayer 4.2.3.10 repack by cuta (build 10) [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1
-Продлжительность - 01:12:24
-
- 01. Daydin - Double Trouble 07:15
- 02. Etnoscope - Kaijko (Infinity Remix) 07:57
- 03. Sideform - Eastern Fantasy 07:24
- 04. Astrix & Ace Ventura - Drunk On Dreams 09:16
- 05. Ritmo & Egorythmia - Spin It 08:11
- 06. Lyctum - Light Force 07:48
- 07. Vertical Mode - Twist Me Up 08:11(   Читать дальше...   )2012Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:22:29
+The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8115F43F5F2C3B3DE3597438D90696AE9EE2482C
+magnet:?xt=urn:btih:2B49B456CA9D8F495BD463084CCD217F118630CC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 457634   (95018) от 01.03.2012
+###  Публикация: 1735758   (50568) от 09.07.2024
 
-CyberManiacs - CyberManiacs (2012) [MP3|320 кб/с]<Horror Industrial, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кукла (03:44)
-02. Сука (04:05)
-03. Когда червяки прогрызут эти стены (04:05)
-04. Грудное молоко (05:17)
-05. В силах ли ты (04:13)
-06. Живой (04:01)
-07. Некуда деться (04:57)
-08. Детские шалости (05:18)
-09. Покажи своё лицо (05:30)
-10. Что же у тебя внутри (04:17)2012Жанр: Horror Industrial, AlternativeПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59647A16EB82CC3205C0D5FE700EABA3514B0ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460555   (95050) от 01.03.2012
-
-Покровитель Средиземноморья (2009) DVDRip
+StartAllBack 3.7.11 build 4917 (DC-06-07-2024) [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мощи Святого Спиридона Тримифунтского сохранили тепло человеческого тела на века. Тепло его сердца окутало весь мир.
-«Покровитель Средиземноморья» - красочная и трогательная экранизация, приуроченная к прибытию мощей Святого в Украину.
-В фильме жители греческого острова Керкира рассказывают о невероятных чудесах Святителя в наши дни. Авторы фильма приоткрывают завесу удивительных событий его жизни.
-Живописная природа, греческий колорит, самобытность горной деревни и музыка КеркирыЖанр: ДокументальныйРежиссер: Елена КоретникПродолжительность: 00:32:21
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1BACD444A043501F9BC27425A2E63D6A898A4DB
+magnet:?xt=urn:btih:F61DA89754829806BEAE378A158078E512A065ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460600   (95059) от 01.03.2012
+###  Публикация: 1735746   (50569) от 09.07.2024
 
-Журнал | Техника - молодежи №3 [2012] [PDF]
+DefenderKiller 12.2 Portable by Vlado [Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Техника – молодёжи» был основан в 1933 г. и отметил в 2008 г. 75-летний юбилей. Но, несмотря на почтенный возраст, «ТМ» был и остаётся одним из ведущих научно-популярных ежемесячных изданий России – живой легендой. А легенды – не умирают!Формат: PDF
+DefenderKiller - программа для удаления/восстановления Windows Defender (Защитник Windows) и его компонентов.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6DF41B57E9BDD2259EF156BDA5B27D7E05E54C2
+magnet:?xt=urn:btih:B6F0EAE0D82E487282F34FF639B7DFDBBE5A35DA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460775   (95063) от 01.03.2012
+###  Публикация: 1735795   (50570) от 09.07.2024
 
-Nightwish - The Crow, The Owl And The Dove (Single) (2012) [MP3|192 кб/с]<Symphonic Metal>
+Пункт назначения 3 / Final Destination 3 (2006) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
->>Архив торрентов
->>Архив Музыки
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Crow, The Owl And The Dove (Radio Edit)
-02. The Heart Asks Pleasure First (Theme from movie "The Piano")
-03. The Crow, The Owl And The Dove (Instrumental Version)
-04. The Heart Asks Pleasure First (Instrumental Version)2012Жанр: Продолжительность: 00:17:01
+У старшеклассницы Венди однажды возникает предчувствие, что она и её друзья станут жертвами несчастного случая, который произойдёт на «американских горках». Когда же самые страшные опасения Венди подтверждаются, те, кто сумел всё-таки обмануть смерть, теперь вынуждены за это расплачиваться.Производство: США / New Line Cinema, Hard Eight Pictures, Kumar Mobiliengesellschaft mbH & Co. Projekt Nr. 1 KGЖанр: ужасы, триллерРежиссер: Джеймс ВонАктеры: Мэри Элизабет Уинстэд, Райан Мерриман, Крис Лемке, Алекс Джонсон, Сэм Истон, Джесси Мосс, Джина Холден, Тексас Бэттл, Челан Симмонс, Кристал ЛоуПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:32:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28E3155B4AB90896DFE32474E74662E43DCBC7E2
+magnet:?xt=urn:btih:7A2D1F3BFE4C0FC8295BDDDB58F645ABA3CAD52C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461162   (95067) от 02.03.2012
+###  Публикация: 1734117   (50571) от 09.07.2024
 
-Trance Maniacs Party - Progressive Session #33 (2012) [MP3|320 кб/с]<Progressive Trance>
+Комплект вопросов и ответов на них  сертификационного экзамена на знание  конфигурации «1С:Зарплата и управление персоналом»  для Казахстана (2024) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Matt Skyer - Locust (Original Mix) (7:30)
- 2. Paul Webster feat. Angelic Amanda - Forever Today (Tom Colontonio Remix) (6:22)
- 3. Rex Mundi - Interstate Of Lightning (Original) (8:22)
- 4. John Askew - Intimate Strangers (Aly & Fila Remix) (7:55)
- 5. Christian Drost & DK Project - Always Connected (Original Mix) (8:03)
- 6. Lisa Lashes - The Bends (Heatbeat Remix) (6:18)
- 7. Arnej feat. Sally Saifi - Free Of You (8 Wonders Vocal Mix) (8:05)
- 8. Sektor V pres. Austin V - The Caveman (Original Mix) (7:28)
- 9. James Dymond - Shallop (Adham Ashraf Remix) (7:22)
- 10. Activa - Telic (Indecent Noise Dark Sessions Remix) (6:58)(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 03:43:17
+Шпаргалка "Комплект вопросов и ответов на них сертификационного экзамена на знание конфигурации «1С:Зарплата и управление персоналом» для Казахстана".
+Не является официальным изданием фирмы «1С»
+Версия экзамена на 20.06.2024Жанр: 1СИздательство: 1С ПрофессионалФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F51ED894F18F6E0789C2041613DCAA099C00D0D5
+magnet:?xt=urn:btih:BDE9C4BF325CD4145937054D5A793D64C6FE21C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461421   (95068) от 02.03.2012
+###  Публикация: 1735605   (50572) от 09.07.2024
 
-Amy Ray - Lung Of Love (2012) [MP3|320 кб/с]<Folk Rock/Indie Rock>
+Домашнее обучение / Home Education (2023) WEB-DLRip [H.264] [MVO]
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. When You're Gone, You're Gone (3:15)
-2. Glow (1:55)
-3. I Didn't (4:06)
-4. From Haiti (3:10)
-5. Crying In The Wilderness (2:53)
-6. Little Revolution (2:51)
-7. The Rock Is My Foundation (3:13)
-8. Lung Of Love (3:40)
-9. Give It A Go (2:47)
-10. Bird In The Hand (3:40)2012Жанр: Folk Rock/Indie RockПродолжительность: 00:31:34
+Девочка, обучающаяся на дому начинает сомневаться в науках, которые преподаёт ей мать, когда их вера подвергается страшному испытанию.Производство: Великобритания, Италия / Indiana Production, BlackBox MultimediaЖанр: драма, ужасы, триллерРежиссер: Andrea NiadaАктеры: Julia Ormond, Lydia Page, Rocco Fasano, Alessandra SilipoПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11077CC13C834E12E42A0AFD6DC32C6F2AA4908D
+magnet:?xt=urn:btih:BEDA4B8CF6B84E5E963DC39F5939358966EBBCFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461391   (95077) от 02.03.2012
+###  Публикация: 1735674   (50573) от 09.07.2024
 
-VA - The Dance Cube XXXIV 2CD (2011) [MP3|320 кб/с]<Trance>
+Folder Marker Free 4.8.1.0 [Multi/Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 Продолжительность: 01:11:31
-===============================
-01 - Xtigma - Burnout (Original Mix)
-02 - Ost & Meyer - Scarlet Heaven (Original Mix)
-03 - Mike Foyle And ReFeel - Universal Language (Original Mix)
-04 - Dave202 - Alive (Fabio XB Vs. Nicologik & Zephyr Remix)
-05 - The Cloudy Day - Freedom of Soul (Original Mix)
-06 - DJ Butterfly - Will Be (Original Mix)
-07 - Lunarbeam - From Dusk Till Dawn (Original Mix)
-08 - Nexus 3 - State Of Wonder (Original Mix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:35:09
+Folder Marker - помощник, который может маркировать папки по приоритету (высокий, нормальный, низкий), по степени завершения работы (сделано, наполовину сделано, запланировано) и по типу информации, содержащейся в папке (рабочие файлы, важные файлы, временные файлы, личные файлы).
+Все, что Вам нужно сделать, это нажать правой кнопкой мыши по папке и выбрать нужную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94D30D2D8D73786B7666B905B274A55A55C419B0
+magnet:?xt=urn:btih:CE34EBA166C4C496BC35FDC68FE541626F4C72C3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461352   (95085) от 02.03.2012
+###  Публикация: 1735778   (50574) от 09.07.2024
 
-VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
+О.Г. Бондарь, Е.О. Брежнева | Проектирование электронных измерительных приборов (2023) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kirsty - Twilight (Armin van Buuren Remix) (6:03)
- 02. tyDi feat. DJ Rap - Talking To Myself (Maison & Dragen Remix) (6:06)
- 03. Mischa Daniels & Solid Gaz - TW3LVE (Original Mix) (5:05)
- 04. Heatbeat - Rocker Monster (Original Mix) (6:43)
- 05. Andrew Bennett feat. Shena - Alright (Sebjak Remix) (6:33)
- 06. Da Hool feat. Jay Cless - She Plays Me Like A Melody (Global Deejays Remix) (5:33)
- 07. Matt Darey & Stan Kolev feat. Aelyn - Follow You (Milan & Phoenix Remix) (6:00)
- 08. Nash & Pepper Pres. Ostrega - First Scream (We aRe Extended Mix) (5:20)
- 09. Orjan Nilsen - Lucky Strike (Original Mix) (7:49)
- 10. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix) (7:20)(   Читать дальше...   )02.03.2012Жанр: TranceПродолжительность: 01:38:51
+Изложены основы построения электронных измерительных приборов для измерения параметров электрических сигналов и устройств. Рассмотрены методы измерения, структурные схемы, элементы расчёта основных функциональных узлов.
+Для студентов, изучающих проектирование электронных средств измерений. Может быть полезно специалистам, связанным с ремонтом, проектированием и использованием (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B407D0539C7A045E1B4ADEB439497116AAB24FB2
+magnet:?xt=urn:btih:8F690EDACCD13BAD215573BA048FB0A10D2AA5E3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461212   (95087) от 02.03.2012
+###  Публикация: 1735619   (50575) от 09.07.2024
 
-Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
+Тест на верность (2022) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
 
->>Архив торрентов
->>Архив Музыки
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Predators 8:45
- 2. Perfect System (The Legacy) 8:31
- 3. Cartell Me About It (FFT RMX) 6:48
- 4. Remastered Controller 7:15
- 5. New Technologies 8:18
- 6. Mind Control Neuro Transmitor 7:53
- 7. The Resistance 7:38
- 8. Magnetic Interference 6:562011Жанр: Psychedelic / Full OnПродолжительность: 01:02:04
+Анастасия – известный семейный психолог. Благодаря ее работе многие пары преодолели кризис и обрели гармонию в семье. Сама Настя уже тринадцать лет живет в счастливом браке с Владимиром. Они любят друг друга и вместе ведут семейный бизнес. Однажды на прием к Насте приходит молодая пациентка Алина. У девушки драма в личной жизни – она влюблена в женатого мужчину, (   Читать дальше...   )Производство: Россия | «Магнум-Фильм»Жанр: МелодрамаРежиссер: Александр ГорновскийАктеры: Дарья Лузина, Владимир Селезнев, Екатерина Чуйкова, Дмитрий Мазуров, Юлия Благая, Роман Перелыгин, Яна Есипович, Никита Хрущёв, Ольга Морозова, Татьяна МухинаПродолжительность: ~00:47:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87B1063E8C8EC907651C6B0908C377860DC43BF4
+magnet:?xt=urn:btih:003240DBDCAF68DC4AA5023B4FB881BEED182A21
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 461219   (95091) от 02.03.2012
+###  Публикация: 1735794   (50576) от 09.07.2024
 
-Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
+Комната страха / Panic Room (2002) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale]
 
->>Архив торрентов
->>Архив Музыки
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Death of A Dwarf Star 07:15
- 02. Dominant Alien Culture 07:37
- 03. Maharashtra 05:13
- 04. Sawhead (Original Version) 08:46
- 05. Solar Effect 07:49
- 06. Sulphur 08:01
- 07. There is Truth Beyond Knowledge 08:11
- 08. To Shi Ban 06:14
- 09. Traces 09:192012Жанр: PsychedelicПродолжительность: 01:08:25
+Мэг Олтман с дочерью Сарой въехала в только что купленный дом, ранее принадлежавший миллионеру. Хороший дом в хорошем районе, казалось бы, идеальное место для жизни. Помимо всего прочего дом оборудован спецкомнатой, в которой можно спрятаться, если в дом залезут воры. После того как стальная дверь толщиной в несколько сантиметров закроется, попасть в комнату становится (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Hofflund/Polone, Indelible PicturesЖанр: триллер, драма, криминалРежиссер: Дэвид ФинчерАктеры: Джоди Фостер, Кристен Стюарт, Форест Уитакер, Дуайт Йоакам, Джаред Лето, Патрик Бошо, Энн Магнусон, Иэн Бьюкэнэн, Мэл Родригес, Пол ШульцПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:52:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E17AC8878841F6541F23C1A84FE74FD583340AE2
+magnet:?xt=urn:btih:0390CCA24DD2DD680BACF08F2A7BE070300A803F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735186   (50577) от 09.07.2024
+
+Маленький магазинчик ужасов / Лавка Ужасов / Little Shop of Horrors (1986) HDTVRip [H.264/720p] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50577.jpg" />
+</div>
+
+
+###  Подробнее
+
+В цветочном магазине выставили странное растение - зловещий цветок, с появлением которого и началась эта история. Цветок не нуждался в обычном уходе, в поливке, в солнечном свете, - потому что по природе своей он... людоед. И каждый вечер он ждет новую жертву к себе на ужин.Производство: США, The Geffen CompanyЖанр: мюзикл, ужасы, мелодрама, комедияРежиссер: Фрэнк ОзАктеры: Рик Моранис, Эллен Грин, Винсент Гардения, Стив Мартин, Тичина Арнольд, Мишель Викс, Тиша Кэмпбелл, Леви Стаббс, Джеймс Белуши и другиеПеревод: Многоголосый профессиональный, авторский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC53A0164E56D7926CEFF43F5998626DFD242792
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684428   (50578) от 09.07.2024
+
+Плохой Санта 2 / Bad Santa 2 (2016) BDRip [H.265/1080p] [10-bit] [Unrated]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение новогодних приключений проходимца Вилли, который в канун Рождества, как всегда, переодевается в Санта-Клауса. Ограбить очередной супермаркет в этом наряде не представляет никаких проблем. Но в Рождество случаются всякие чудеса. Каким оно будет для Вилли на этот раз?Производство: США / Broad Green Pictures, Ingenious Media, Miramax FilmsЖанр: драма, комедия, криминалРежиссер: Марк УотерсАктеры: Билли Боб Торнтон, Кэти Бейтс, Тони Кокс, Кристина Хендрикс, Бретт Келли, Райан Хансен, Дженни Зигрино, Джефф Скоурон, Кристина Розато, Майк СтаррПеревод: дублированный, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30623B07FA0B46F0DB7241747EAF532BF127F18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735809   (50579) от 09.07.2024
+
+Driver Easy Pro 6.1.0.32140 Portable by FC Portables [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Easy Professional — профессиональная и в тоже время простая в использовании программа для вашего компьютера, которая предназначена для работы с драйверами системы — для поиска и загрузки последних версий драйверов. Просканировав вашу систему, программа найдет устаревшие драйвера, позволит вам скачать их обновленные версии и установить. Driver Easy может создавать (   Читать дальше...   )Язык интерфейса: Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245076F17E64391E095826192D13FC7A6034A254
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735757   (50580) от 09.07.2024
+
+Охотники за привидениями: Леденящий ужас / Ghostbusters: Frozen Empire (2024) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit, Dolby Vision]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50580.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий в Оклахоме семья Спенглеров начинает свою новую жизнь в Нью-Йорке как охотники за привидениями, как семья, как подростки и родители. Обнаружение древнего артефакта высвобождает злую силу. Новые и старые Охотники за привидениями должны объединить усилия, чтобы защитить свой дом и спасти мир от второго ледникового периода.Производство: США, Канада, Великобритания / Columbia Pictures, GhostcorpsЖанр: фантастика, фэнтези, комедия, приключенияРежиссер: Гил КинанАктеры: Пол Радд, Кэрри Кун, Финн Вулфхард, Маккенна Грейс, Кумэйл Нанджиани, Пэттон Освальт, Селеста О’Коннор, Логан Ким, Эмили Элин Линд, Джеймс АкастерПеревод: Дублированный, Многоголосый, Авторский одноголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Full, Forced), Украинские, АнглийскиеПродолжительность: 01:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB9E868FD5914F1DE568A5EDE8053B45661E9C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735708   (50581) от 09.07.2024
+
+Территория зла / Land of Bad (2024) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд американского спецназа тайно высаживается на территорию Филиппин для выполнения секретной миссии по спасению важного заложника. С базы поддержку с воздуха осуществляют оператор беспилотника Рипер и его напарница. Вскоре ситуация принимает неожиданный оборот, и бойцы вынуждены вступить в бой с превосходящими силами противника. После ожесточённого боя в живых (   Читать дальше...   )Производство: США / Volition Media Partners, Broken Open Pictures, HFGЖанр: боевик, триллерРежиссер: Уильям ЮбэнкАктеры: Лиам Хемсворт, Рассел Кроу, Люк Хемсворт, Рики Уиттл, Майло Вентимилья, Chika Ikogwe, Дэниэл Макферсон, Роберт Рабия, Джек Финстерер, Крис Мастерс МахПеревод: Дублированный (Мосфильм-Мастер), двухголосый (ViruseProject 18+), авторский (А. Гаврилов)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8F5CA9E499799C758260EA8CE7835619F32DF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735481   (50582) от 09.07.2024
+
+Chained Together (2024) [En] (1.7.9) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните свое путешествие в глубинах ада, прикованными к своим товарищам. Ваша миссия - выбраться из ада, поднимаясь как можно выше. Каждый прыжок требует идеальной координации для восхождения на платформы и избегания жгучего тепла. Пройдите через множество миров, каждый из которых предлагает уникальные вызовы. Каждый мир вводит новые вызовы.Тип издания: RepackРазработчик: Anegar GamesЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998E43C40D21A71844CA4A373B1EF7EDDBF21083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735728   (50583) от 09.07.2024
+
+Myst (2021) [Ru/Multi] (1.8.7) Repack dixen18 [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на Мист – поразительно красивый остров, поросший зловещими тайнами и окутанный интригами. Отправляйтесь на остров Мист и в другие потрясающие, длительно бездействующие места, называемые "Эпохами", и начните разгадывать тайну, в которую Вас втянули. Постепенно узнавая, что же произошло на острове, Вы обнаружите, что играете ключевую роль (   Читать дальше...   )Тип издания: RepackРазработчик: Cyan WorldsЖанр: Adventure, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBAF41968400E98A409F628ED997309A40AA2FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735628   (50584) от 09.07.2024
+
+Bandicam 7.1.2.2451 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam — это компактная программа записи экрана для Windows, которая может записывать все, что происходит на экране ПК, в формате высококачественного видео. Также можно выполнять запись определенной части экрана или игр, использующих графические технологии DirectX/OpenGL/Vulkan.
+Bandicam поможет вам сделать запись игры с высоким коэффициентом сжатия, сохраняя при (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD78305CEF3DD7E3EABCE3B260FDC2EFFE38CA59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735642   (50585) от 09.07.2024
+
+Звуковые библиотеки - Film Crux - Singularity 2 - Cinematic Sound Effects Library [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение знаменитой библиотеки кинематографических звуковых эффектов Звуковые библиотеки - Film Crux - Singularity - Cinematic Sound Effects LibraryФормат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D785795D3FB7DFA820F9AFE10FAD46115AF0FB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734874   (50586) от 09.07.2024
+
+Урод в замке / Castle Freak (1995) BDRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная американская семья наследует старинный замок в Италии. Однако, как только они переезжают в него, начинают происходить странные вещи — необычные звуки доносятся из подземелья, а их слепая дочь рассказывает, что ночью к ней кто-то приходит. Обнаружив два зверски изуродованных трупа, семья спешит покинуть замок, но это не так-то просто.Производство: США, Италия / Full Moon EntertainmentЖанр: Ужасы, триллер, драмаРежиссер: Стюарт ГордонАктеры: Джеффри Комбс, Барбара Крэмптон, Джонатан Фуллер, Джессика Доллархайд, Массимо Саркьелли, Элизабет Каза, Лука Дзингаретти, Хелен Стёрлинг, Алессандро Себастьян Сатта, Рафаэлла ОффиданиПеревод: Профессиональный двухголосый, авторский одноголосый, одноголосыйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD78401CF03FA4AB40FDE75364465EC33FD2C25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735617   (50587) от 09.07.2024
+
+Зрение / Sight (2023) WEBRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50587.jpg" />
+</div>
+
+
+###  Подробнее
+
+История бедного китайского иммигранта, доктора Мин Вана, который изо всех сил пытался стать всемирно известным хирургом-офтальмологом в США. Мин, молодой человек, живущий в сельской местности Китая в 1970-х годах, сталкивается с преследованием и отчаянием на каждом шагу; Но при поддержке своей преданной семьи и собственной непоколебимой решимости он находит дорогу (   Читать дальше...   )Производство: США / Open River Entertainment, Reserve EntertainmentЖанр: драма, биография, историяРежиссер: Эндрю ХайаттАктеры: Терри Чен, Грег Кинниэр, Наташа Мумба, Финола Флэнаган, Миа Сваминатан, Рэймонд Ма, Вай Чин Хо, Гарлэнд Чанг, Дональд Хэн, Лиэнн ВанПеревод: Многоголосый любительский (RGB)Язык озвучки: русский, английскийСубтитры: английские (forced - на китайскую речь, full)Продолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B27456AF970226C93B766F6FD7E846C788CD31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735722   (50588) от 09.07.2024
+
+AOMEI Partition Assistant Technician Edition 10.4.1 (08.07.2024) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50588.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE479E65C451C5F48AE74DC39B1AFE7DBDD406E5
 ```
 
 

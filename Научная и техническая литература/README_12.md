@@ -1,649 +1,636 @@
-###  Публикация: 1730512   (53100) от 16.06.2024
+###  Публикация: 1785768   (24380) от 17.03.2025
 
-Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth edition (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legal English is a professional language. This book is designed for law students who have followed their law studies in a language other than English. Textbooks on English law are too detailed for those who want to understand English legal terminology rather than English law itself. Legal dictionaries are useful but, as the words are ordered alphabetically, terms (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Eleven International PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18755FDA78A431A8EC3EBCF7450AE1F988BD0387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730568   (53105) от 16.06.2024
-
-Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (2021) [EPUB] [EN]
+А.Д. Дешевицына | Говорить по-китайски без акцента: учебное пособие по фонетике китайского языка (2022) [PDF]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-French Conversation is the go-to guide for expanding conversational fluency. Organized into 11 units, it presents realistic everyday dialogues, followed by helpful instruction on correct syntax and word usage, as well as lots of conversation-ready phrases.
-Inside... you'll learn how to Engage in dialogues that illustrate practical conversations. Expand your French (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
+Ключ к формированию свободной речи на китайском языке - это изучение естественных для носителей языка процессов: артикуляции, паузации, ударения и интонации. Эта книга станет вашим проводником в мир китайской фонетики и фонологии, поможет научиться думать и говорить по-китайски. Материал пособия изложен простым языком и рассчитан на постепенное изучение по мере прохождения (   Читать дальше...   )Жанр: Учебники и учебные пособия. Китайский языкИздательство: Издательский дом ВКНФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
+magnet:?xt=urn:btih:19056C0B8457D934EE184393F11FDCED93F69C4D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730590   (53115) от 16.06.2024
+###  Публикация: 1785593   (24456) от 16.03.2025
 
-Р.А. Сапожников и др. | Основы технической кибернетики (1970) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53115.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены основные положения теории информации, общие принципы построения систем автоматического управления, математический аппарат для описания непрерывных и дискретных сигналов, проблема устойчивости, надежность систем автоматического регулирования и другие вопросы технической кибернетики. По теоретическим темам приведены расчетные примеры. В книге приводятся (   Читать дальше...   )Жанр: Технические наукиИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31E50DD86868AE0BD433AD1F6D1B5396606A833
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730316   (53194) от 15.06.2024
-
-Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (2018) [EPUB] [EN]
+Я.М. Вовшин, И.И. Панова | Английский с улыбкой. The Fun of Handling Tricky Things in English (2001) [PDF] [RU, EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Comprehensive subject review for every section of the exam
-Valuable practice with complex reading comprehension passages and higher-level math problems
-7 full-length practice tests (4 in the book, 3 online) with detailed answer explanations
-Drills for each test section—Reading, Writing and Language, and Math(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Princeton ReviewФормат: EPUBКачество: Изначально электронное (ebook)
+Сборник содержит увлекательный юмористический языковой материал для правильного восприятия сложных и неоднозначных построений английской речи. Пособие в занимательной форме развивает навыки творческого мышления, обеспечивает самоконтроль при решении лингвистических задач и тестов. Построенное по принципу интеллектуальной игры, пособие окажет неоценимую помощь всем, (   Читать дальше...   )Жанр: Справочное пособие. Английский язык. Англоязычный юморЯзык: АнглийскийИздательство: ПарадоксФормат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
+magnet:?xt=urn:btih:E8DC5B43B410E5087803EFB8C3C79D275FBABBB5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730355   (53196) от 15.06.2024
+###  Публикация: 1785631   (24462) от 16.03.2025
 
-Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth edition (2019) [PDF] [EN]
+Георгий Георгиевич Почепцов | Язык и юмор. Language and Humour (1974) [PDF, DJVU] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The concise clarity of this book makes it a handy reference for anyone interested in good writing-as well as a quick and ideal guide for freshman composition courses, writing courses across the disciplines, and as a supporting text in courses that require clear and direct writing. Style: The Basics covers the elemental principles of writing that will help students (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
+В книге собрано более тысячи шуток на английском языке. Чтобы помочь читателю лучше понять языковую основу шуток, составитель предпослал сборнику теоретическую статью о природе языкового юмора и снабдил небольшой объяснительной статьей каждую часть сборника. Для удобства пользования книгой в конце ее даны тематический указатель и указатель слов и выражений. Книга (   Читать дальше...   )Жанр: Монография. Английский язык. Англоязычный юморЯзык: АнглийскийИздательство: Высшая школаФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E416F10F811A7EE26633C8CECD81EF672328FEAB
+magnet:?xt=urn:btih:F0B328BED42DFD4910C54C9131D9D540EE3BC7E7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730336   (53231) от 15.06.2024
+###  Публикация: 1785520   (24476) от 16.03.2025
 
-Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
+С.В. Покровский | Электровозы ЭП10. Технические воспоминания о проекте (2025) [PDF]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfect Phrases for ESL: Conversation Skills is filled with hundreds of ready-to-use English phrases to help you navigate your way through social and business situations. There are phrases for talking with friends, offering opinions, collaborating with co-workers, addressing misunderstandings, and more. The book also includes common slang expressions you can use (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
+Описаны история создания электровоза ЭП10, результаты испытаний и опыт эксплуатации. Более детально рассмотрены вопросы электромагнитной совместимости электровоза ЭП10 с рельсовыми цепями СЦБ и АЛС, энергетических показателей и тяговых свойств.
+Изложены технические особенности конструкции электровоза. Описаны проблемы, с которыми пришлось столкнуться при испытаниях, (   Читать дальше...   )Жанр: история техникиИздательство: Е-нотоФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
+magnet:?xt=urn:btih:39F0C416F242ED6B743AA72B0507D92889511066
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730102   (53300) от 14.06.2024
+###  Публикация: 1785445   (24480) от 16.03.2025
 
-Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
+Зак Скотт | Вселенная. Краткая история космоса: от Солнечной системы до тёмной материи (2024) [PDF]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The stories, events, and teachings contained in the scriptures of the Old and New Testaments of the Bible, from Genesis to Revelations explained with accessible text and bold graphics.
-The Bible Book explores the ideas and beliefs key to the teachings of the most widely printed religious book of all time. This highly visual book highlights more than 100 of the most (   Читать дальше...   )Жанр: познавательная религиозная  литератураЯзык: английскийИздательство: D.K. PublishingФормат: PDFКачество: Изначально электронное (ebook)
+Небо с древних времен завораживало человека. От шумерских лунных календарей до снимков НАСА люди не перестают задаваться вопросами, как устроен космос. Зак Скотт приглашает читателя в увлекательное путешествие по Вселенной, доступно рассказывая о Солнечной системе, рождении галактик, темной материи, Большом взрыве и многом другом. Скотт пишет просто о сложном: что (   Читать дальше...   )Жанр: Физические науки. АстрономияИздательство: КоЛибриФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
+magnet:?xt=urn:btih:61BDFE10911E342329D6495B21DA3D337DA1DB67
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730033   (53340) от 14.06.2024
+###  Публикация: 1785452   (24485) от 16.03.2025
 
-А.Е. Каплянский, А.П. Лысенко, Л.С. Полотовский | Теоретические основы электротехники (1972) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53340.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются элементы электрических цепей, их линейные и нелинейные параметры, основы теории источников и приемников, осуществляющих взаимное преобразование электромагнитной и механической энергии. Излагаются теория линейных и нелинейных цепей с сосредоточенными параметрами при постоянном и переменном токе, при переходных процессах, установившиеся и переходные (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8633217AD5E4CBB4FB8109810C417DC4349F9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730121   (53344) от 14.06.2024
-
-Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53344.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Language Files: materials for an Introduction to Language and Linguistics" has become one of the most widely adopted, consulted, and authoritative introductory textbooks to linguistics ever written. The scope of the text makes it suitable for use in a wide range of courses, while its unique organization into student-friendly, self-contained sections allows (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Ohio State University PressФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6437FFBC83466B028F2FDDD63E19795B5E383E8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729994   (53425) от 13.06.2024
-
-Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um curso para estrangeiros. (2 издание) (2006) [PDF] [PT]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Falar, ler, escrever português - Um curso para estrangeiros. Livro do aluno (com a nova ortografia). Este livro, através de método estrutural-comunicativo, leva o aluno totalmente principiante a entender, falar, ler e escrever português com fluência e segurança, em nível de linguagem coloquial correta. É destinado a adultos (   Читать дальше...   )Жанр: учебное пособиеЯзык: португальскийИздательство: Editora Pedagogica E UniversitariaФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3C6A64105D054650E9AAF5BE824E889D690137
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729889   (53429) от 13.06.2024
-
-Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53429.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Complete Guide to Japanese Kanji: (JLPT All Levels) Remembering and Understanding the 2136 Standard Characters includes: Clear, large-sized entries, All of the General Use Joyo Kanji Characters, Japanese readings and English meanings, stroke-count, stroke order, usage examples, mnemonic hints for easy memorization.
-This book is essential to anyone who is planning (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Tuttle PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694FCFBB3F2F0059BD04B7C066AC096A08FDA040
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729947   (53447) от 13.06.2024
-
-Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn over 500 words and move up a level with our course book English Unlocked! Over 100 pages of quality learning. Your complete, self-study English learning pack.
-Inside...
-How to learn English with us.
-How to access Hot English.(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Hot English PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729893   (53449) от 13.06.2024
-
-Р.С. Гутер, Б.В. Овчинский | Элементы численного анализа и математической обработки результатов опыта (1970) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть содержит основные методы вычислительной математики: приближенное решение уравнений и систем, простейшие задачи линейной алгебры, параболическую интерполяцию, численное интегрирование и решение дифференциальных уравнений. Вторая часть посвящена теории вероятностей в объеме, предусмотренном общей программой втузов. В третьей части рассматривается теория (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A634BB92FF7AD1AA8C9CA6684CF665A4B6B9C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729677   (53508) от 12.06.2024
-
-В.С. Попов, С.А. Николаев | Общая электротехника с основами электроники (1972) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53508.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены электрические цепи, электрические машины и трансформаторы, электротехнические намерения и приборы, электропривод и аппаратура управлением, передача и распределение электрической энергии, электронные лампы, гаэоразрядные приборы, полупроводниковые приборы, фотоэлектрические приборы, усилители и генераторы.
-Книга предназначена для учащихся техникумов (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAB86FB98DF538E4733EE76021253A9C9E84A71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729666   (53509) от 12.06.2024
-
-В.С. Попов, С.А. Николаев | Электротехника (1969) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание книги соответствует программе курса электротехники для техникумов, дополненной вопросами новой техники: электрические машины автоматических устройств; основы электроавтоматики; вычислительные устройства; электротехнология.
-В книге рассматриваются основные вопросы расчета цепей постоянного и переменного токов, краткая теория измерения электрических и неэлектрических (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F771994B92F7ACFA4B037CAE4DE5B48B8BB0695B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729672   (53515) от 12.06.2024
-
-В.И. Константинов, А.Ф. Симонов | Сборник практических примеров и задач по общей электротехнике (1972) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53515.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны примеры и задачи из электротехнической практики, снабженные подробными пояснениями, анализом полученных результатов и практическими выводами. Кроме того, даны задачи для самостоятельной проработки (без решений , но с ответами).
-Задачи соответствуют теоретическому материалу, изложенному в учебнике В. С. Попова и С. А. Николаева «Электротехника» (изд-во (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CB3109EAE00A73136ED18CF8C1CAD629D82EA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729755   (53517) от 12.06.2024
-
-Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53517.jpg" />
-</div>
-
-
-###  Подробнее
-
-TOEFL iBT recycles opinion-based and fact-based arguments for testing purposes from start to finish. If you want a high score, you need essential argument scoring strategies. Learn how to maximize scoring by rhetorically analyzing all reading, listening, speaking and writing tasks.
-
-TOEFL iBT от начала до конца использует аргументы, основанные на мнениях и фактах, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Nova PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715D24F212003636D31D0ED782DFED5315683BA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729709   (53522) от 12.06.2024
-
-Adrian Wallwork | Top 50 Vocabulary Mistakes (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Each chapter contains:
-Examples of typical mistakes.
-Examples of correct usage.
-Rules / explanations.(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0124C77E3BF966E5B837BF12DDA5D08E4E3B7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729490   (53636) от 11.06.2024
-
-Carol Fehringer | German Grammar in Context. Third edition (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53636.jpg" />
-</div>
-
-
-###  Подробнее
-
-German Grammar in Context, 3rd Edition includes updated textual examples which provide the basis for an accessible and engaging approach to learning grammar.
-Using authentic texts from a variety of contemporary sources such as newspapers, magazines, poems, TV and film scripts, books or online sources, each chapter explores a key aspect of German grammar. Following (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B3B4EDB2977E4B118F89DF822C23238D81A968
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729576   (53667) от 11.06.2024
-
-Mohammad. Alhawary | Arabic Grammar in Context (2016) [EPUB, MP3] [EN/AR]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arabic Grammar in Context offers a unique and exciting approach to learning grammar. It presents grammar as a necessary and essential tool for understanding Arabic and for developing comprehension and production skills.
-Features include:
-authentic texts from a rich variety of sources, literary and non-literary, used as the starting point for the illustration and (   Читать дальше...   )Жанр: учебное пособиеЯзык: английский, арабскийИздательство: RoutledgeФормат: EPUB, MP3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5A58CE53BAD8491EF632B9324CA5C501E79555
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729537   (53685) от 11.06.2024
-
-Л.В. Хведченя | Практический курс современного английского языка (Highlights) (2009) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53685.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 1999 года книга «Практический курс современного английского языка (Highlights)» переиздавалась 5 раз. Дата первого издания «Практический курс современного английского языка. Часть 1»: декабрь 1999 года, последнее, 5-е издание вышло в марте 2009 года.
-Настоящее пособие по английскому языку предназначено для студентов классических университетов (первый этап обучения). (   Читать дальше...   )Жанр: учебникИздательство: Вышэйшая школаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCAA5861F59946B134FC5CE87F17C6EA814D05F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729295   (53716) от 10.06.2024
-
-U.O. Alday | Colloquial Spanish: The Complete Course for Beginners (2010) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colloquial Spanish: The Complete Course for Beginners has been carefully developed by an experienced teacher to provide a step-by-step course to Spanish as it is written and spoken today.
-Combining a clear, practical and accessible style with a methodical and thorough treatment of the language, it equips learners with the essential skills needed to communicate confidently (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9C8CC2066C19D493740E27E103A99217953C36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729219   (53740) от 10.06.2024
-
-Bruce Stirling | Pre-TOEFL Guide. Academic English Practice (2017) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Preparing for TOEFL
-Do you plan to take TOEFL or IELTS but are not ready for the challenge? Do you need more practice? If you do, then this book is for you. Great for IELTS too! It is also for those who just want to practice their academic English. Whatever your purpose, this book will give you the foundation in academic English you need for TOEFL and IELTS success. (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Nova PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1460D252D7EF4FC1BC52A32B0769F526191BAD2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729318   (53746) от 10.06.2024
-
-Dorling Kindersley, Aja Raden, Smithsonian Institution (соавтор) | Gem. The Definitive Visual Guide (2016) [PDF] [EN]
+Иван Мосин | Древнерусская живопись. Большая иллюстрированная энциклопедия (2018) [PDF]
 
 >>Научная и техническая литература
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A dazzling visual guide to precious and semiprecious stones, organic gems, and precious metals that showcases beautiful, specially commissioned images as well as science, natural history, mythology, and true stories of adventure and discovery.
-From diamonds and sapphires to emeralds and obsidian, Gem profiles all the key gemstones and other precious materials. Its (   Читать дальше...   )Жанр: визуальная энциклопедияЯзык: английскийИздательство: Dorling Kindersley PublishingФормат: PDFКачество: Изначально электронное (ebook)
+Издание, посвященное древнерусской живописи и русской иконе, включает 278 расположенных в алфавитном порядке статей, которые рассказывают об известных иконописцах и художниках XIX-XX веков, занимавшихся иконописью, о реставраторах икон, о школах иконописи, о знаменитых иконах и различных видах икон, об иконописной технике, красках, о наиболее значимых храмах и монастырях (   Читать дальше...   )Жанр: Искусство и культураИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AC617B7154E4DD620113BA3AA9B324B92B60CEC
+magnet:?xt=urn:btih:4508EBCE2800345179B4496D59B97794E38C3160
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729016   (53846) от 09.06.2024
+###  Публикация: 1785449   (24488) от 16.03.2025
 
-Oxford University | Oxford Writing Tutor (2010) [PDF] [EN]
+Леонид Еленин | Кометы. Странники Солнечной системы (2024) [PDF, EPUB]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Writing Tutor consists of a selection of skills pages with information on how to write different types of texts, including essays, CVs, letters, movie reports, etc. Each of the skills pages comes with an example, background how-to information and useful phrases that enable the students to express their ideas appropriately and following academic standards.
+Книга Леонида Еленина погружает читателя в тысячелетний путь человечества в познании самых загадочных и прекрасных объектов Солнечной системы - комет. Вы станете свидетелями захватывающей истории разгадки тайны небесных странников: пройдете путь от страшных знамений богов до исследования комет космическими аппаратами, открывшими нам их истинную природу. Перед вами (   Читать дальше...   )Жанр: АстрономияИздательство: Кометы. Странники Солнечной системыФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA10ED87D6AB5BB765C7394EE7D3C0A2C2CDAA0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785561   (24511) от 16.03.2025
+
+Джеймс Гич | Галактики. Большой путеводитель по Вселенной (2022) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24511.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Галактики. Большой путеводитель по Вселенной» – это книга о том, что мы уже знаем о галактиках, а что всё ещё остается неизведанным. Для Галактики, в которой мы живем, Земля, Солнце и Солнечная система – лишь мельчайшие компоненты, но Вселенная полна и других галактик разных форм и размеров: их число составляет от 200 до 500 млрд.
 
-«Репетитор (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Обработанный скан
+Вы увидите, что многие из галактик (   Читать дальше...   )Жанр: АстрономияИздательство: АСТ, ОГИЗФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B07073E7108D9A0C97DA7625C63CB2BA26447EE6
+magnet:?xt=urn:btih:9EE60D1D4F83D6B4C63E96E6065F55942FAE0B63
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728985   (53869) от 09.06.2024
+###  Публикация: 1785454   (24513) от 16.03.2025
 
-Collins Dictionaries | English Visual Dictionary (2020) [PDF] [EN]
+Дэвид Бейкер | Кратчайшая история Вселенной: От Большого взрыва до наших дней (в сверхдоступном изложении) (2023) [PDF, FB2, RTF, EPUB]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A photographic guide to 3000 key words and phrases in British English. This attractive pocket-sized book is a perfect English language travel companion and guide to life and culture in the UK.
-Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases. A helpful index allows you to find words quickly as you (   Читать дальше...   )Жанр: словари, учебное пособиеЯзык: английскийИздательство: CollinsФормат: PDFКачество: Обработанный скан
+«В этой книге рассказывается о процессе исторических изменений всех элементов в космосе от Большого взрыва к эволюции жизни и истории человечества — как простые скопления водорода превращаются в сложные человеческие сообщества. Обычно история позволяет нам прожить много жизней вместо одной, а эта конкретная история предлагает опыт миллиардов лет… Что касается будущего, (   Читать дальше...   )Жанр: Точные, естественные и инженерные наукиИздательство: КоЛибриФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEDEA84D49DF549B1F4A26BF6CAC21D1840660E9
+magnet:?xt=urn:btih:9DBBC3EE4F040FF68EB462BF40F0918E4A267E49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785444   (24515) от 16.03.2025
+
+Карл Саган | Космос (2024) [PDF, FB2, RTF, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24515.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Космос» — одна из самых известных научно-популярных книг всех времен. В ней прослеживается почти 14 миллиардов лет космической эволюции, превративших материю в сознание, и исследуются такие темы, как происхождение жизни, человеческий мозг, египетские иероглифы, миссии космических кораблей, смерть Солнца, эволюция галактик, а также обстоятельства и личности, которые (   Читать дальше...   )Жанр: Научная и научно-популярная литератураИздательство: Альпина нон-фикшнФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C667D14B008EA2F4AAACF19D579979CFEBE864
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785378   (24609) от 15.03.2025
+
+Светлана Варшавская | Учебник ненормативной лексики английского языка (2014) [PDF, DJVU] [RU, EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник Ненормативной Лексики Английского Языка разработан Лингвистическим Университетом Светланы Варшавской, как дополнительное и общеобразовательное учебное пособие для всех, кто знает английский язык хотя бы на базовом разговорном уровне, но при этом есть стремление расширить свои знания. Это как раз будет тот вариант владения языком, когда «я английский не знаю, (   Читать дальше...   )Жанр: Языки. УчебникиИздательство: ООО «ЗУКЦ»Формат: PDF, DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7644E3889BA23D444664658A69FCCB353CA530F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785435   (24614) от 15.03.2025
+
+Иван Мосин | Импрессионизм. Большая иллюстрированная энциклопедия (2017) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одному из самых ярких художественных направлений в истории искусства XIX века, его зарождению и развитию. В ней представлено творчество не только самых прославленных представителей импрессионизма, таких как Дега, Мане, Моне, Писсарро, Ренуар, Сислей, но и художников, чьи имена менее знамениты, а то и вовсе неизвестны широкому читателюЖанр: Искусство и культураИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28FD4F12BC593A20C8A741BCDBC900C1D65BD25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785427   (24617) от 15.03.2025
+
+Иван Мосин | Сюрреализм. Большая иллюстрированная энциклопедия (2017) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одному из самых ярких художественных направлений в истории искусства XIX века, его зарождению и развитию.
+
+Сюрреализм - уникальное художественное течение, которое более полувека доминировало в мировом искусстве, определяя облик художественной действительности. Чрезвычайный успех этого движения заключался в том, что сюрреализм был не просто локальным (   Читать дальше...   )Жанр: Искусство и культураИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40286AA829052FEDC27D82A9F6C815FCDFBDC2C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784997   (24681) от 14.03.2025
+
+Екатерина Филиппова | Тазовая боль. Почему она возникает и что с ней делать (2024) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чувствуете дискомфорт, жжение и боль "там"? Часто ходите в туалет? Испытываете боли во время секса? Давно и безуспешно лечитесь у урологов или гинекологов?
+Синдром хронической тазовой боли - заболевание, которое не вписывается в традиционные медицинские шаблоны и не поддается стандартным алгоритмам лечения. Оно возникает "из ниоткуда" - ни явных (   Читать дальше...   )Жанр: МедицинаИздательство: БомбораФормат: FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF41DDCAA7614A9C7DE0400DE768DCEC3E0184E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784993   (24694) от 14.03.2025
+
+Юрий Глазков | Колени без боли. Взгляд оперирующего хирурга (2024) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная медицина предлагает широкий ассортимент методов и стратегий по восстановлению поврежденных органов и тканей. Однако только профессиональный хирург способен грамотно и максимально эффективно применить их в конкретной ситуации.
+
+В этой книге собраны самые важные данные о здоровье колена:
+- чем опасны гипермобильность и иммобилизация;(   Читать дальше...   )Жанр: МедицинаИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7354CD38373D932637DDB0B022C804C00B7BE30F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785154   (24695) от 14.03.2025
+
+Т.Б. Комкова (ред.) | Огнестрельные ранения и повреждения конечностей. Оказание медицинской помощи и лечение на этапах медицинской эвакуации (2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24695.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложены терминология, классификация, особенности формулировки диагноза, диагностика и лечение огнестрельных ранений и неогнестрельных повреждений конечностей. Рассмотрены вопросы повреждений крупных суставов, кистей и стоп. Особое внимание уделено показаниям к выполнению и технике первичной хирургической обработки огнестрельных ран, определению жизнеспособности (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Сибирский государственный медицинский университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56834B6014687745B7C3DCECEB4D6B33743A6F84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784988   (24697) от 14.03.2025
+
+Алия Сарманова | А мне помогло. Как ориентироваться в море информации о здоровье и осознанно принимать решения (2024) [PDF, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как понять, можно ли доверять врачу? На что полагаться при выборе лечения? Как ориентироваться в море информации? Алия Сарманова поможет разобраться в аспектах доказательной медицины, научит разрушать медицинские мифы и раскроет секрет того, как мозг воспринимает информацию и почему люди склонны верить в успешность лечения, не имея никаких доказательств.
+
+Вы научитесь (   Читать дальше...   )Жанр: МедицинаИздательство: ЭксмоФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BDDD5FC875C8340FEC4499AB6A86B2AB2468C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784911   (24787) от 13.03.2025
+
+А.А. Акмальдинова, О.А. Лекманов, М.И. Свердлов | «Ликует форвард на бегу…» Футбол в русской и советской поэзии 1910–1950 годов (2016) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге впервые прослеживается эволюция футбольной темы в отечественной поэзии 1910–1950-х годов — все ее основные вехи. Еще важнее для авторов было показать, как новые для поэзии мотивы менялись, отражая сиюминутные требования современности, деформируясь под их воздействием, а иногда отчаянно им сопротивляясь. Задача книги — двойная: с одной стороны, собрать вместе (   Читать дальше...   )Жанр: Поэзия, культурологияИздательство: Высшая школа экономикиФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07BA7D38D710484F2EBB8CD03CFE499A64698DF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784906   (24799) от 13.03.2025
+
+Фёдор Синицын | Золотой век социализма: Советский Союз и мир. 1964-1982 (2022) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24799.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1962 г. советские экономисты Я.А. Иоффе, Ю.Ф. Кормнов и Ю.Н. Покатаев объявили, что «мировая социалистическая система уверенно идет к решающей победе в экономическом соревновании с капитализмом». Все ли было так позитивно с политическим и социально-экономическим положением СССР на самом деле? Ситуация, сложившаяся в середине 1960-х - начале 1980-х гг., говорила (   Читать дальше...   )Жанр: ИсторияИздательство: ВечеФормат: PDF, DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B80D220A538BD061BA3E403F876FE3C6D909537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784914   (24803) от 13.03.2025
+
+А.В. Павлов | Бесславные ублюдки, бешеные псы. Вселенная Квентина Тарантино (2018) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга, с одной стороны, нефилософская, с другой - исключительно философская. Ее можно рассматривать как исследовательскую работу, но в определенных концептуальных рамках. Автор попытался понять вселенную Тарантино так, как понимает ее режиссер, и обращался к жанровому своеобразию тарантиновских фильмов, чтобы доказать его уникальность.Жанр: КинематографИздательство: Издательский дом «Дело»Формат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CD796B96CAEC99C3D6CF35357EDDC1C3A10667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784888   (24831) от 13.03.2025
+
+Валерий Половинкин | Атомные подводные лодки зарубежных стран (2023) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены отдельные тактико-технические характеристики атомного подводного флота зарубежных стран. Проанализированы планы и программы развития противолодочных вооружений.
+Для научных и практических работников, интересующихся вопросами подводного кораблестроения. Книга может быть полезна студентам и аспирантам, а также широкому кругу читателей, интересующихся перспективами (   Читать дальше...   )Жанр: Монография. Военный морской транспорт.Издательство: Инфра-ИнженерияФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539E4B6DBCE91C988CBE8BFC0D7B580FD9A2F66A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784686   (24897) от 12.03.2025
+
+Филипп Контамин | Война в Средние века (2001) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного французского медиевиста Филиппа Контамина посвящена истории средневековых войн. Автор исследует не только формы военных конфликтов, но и сопутствующие политические ситуации, эволюцию вооружения и представлений средневекового общества о войне. Издание изобилует увлекательными подробностями, ранее не известными российскому читателю.
+Для широкого круга (   Читать дальше...   )Жанр: ИсторияПеревод: Ю.П. Малинин, А.Ю. Карачинский, М.Ю. НекрасовИздательство: ЮвентаФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254435422DEEEAD6CD0C5A3BEF0AC1D5D6C8CB40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784690   (24902) от 12.03.2025
+
+Робер Мюшембле | Цивилизация запахов. XVI – начало XIX века (2020) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ольфакторные исследования, или антропология запахов – важная область в современной гуманитарной науке, чему служит доказательством эта книга, посвященная истории обоняния в Западной Европе эпохи модерности. Какими причудливыми, опасными и зловонными снадобьями пользовались несколько столетий назад для наведения красоты? Как художникам удавалось передать в живописи (   Читать дальше...   )Жанр: Культурология,  историяИздательство: Новое литературное обозрениеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39AC9F8792B232CD82E4ECFF5F4D7BDD2791CD00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784677   (24914) от 12.03.2025
+
+И.С. Куликова | Сюрреализм в искусстве (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24914.jpg" />
+</div>
+
+
+###  Подробнее
+
+В легендарной по популярности в СССР (и не только) книге всесторонне и критически анализируется одно из распространенных направлений буржуазного искусства. Автор рассматривает классовые корни и идеологические истоки сюрреализма, его эволюцию, философские предпосылки (интуитивизм, фрейдизм), эстетические позиции и художественную практику (в театре, кино, живописи). (   Читать дальше...   )Жанр: Искусство. Живопись. Политическая социологияИздательство: НаукаФормат: DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420498FC39A04F26798F29763BA06121B11AAD0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784699   (24928) от 12.03.2025
+
+Д. Гребер, Д. Уэнгроу | Заря всего. Новая история человечества (2025) [PDF, DOC]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антрополог Дэвид Гребер и археолог Дэвид Уэнгроу заново складывают пазл истории человечества, бросая вызов доминирующим представлениям о развитии общества как о движении от эгалитарных групп охотников-собирателей — через аграрную революцию и урбанизацию — к созданию иерархических государств. По мнению авторов, этот традиционный нарратив не имеет ничего общего с фактами, (   Читать дальше...   )Жанр: История человечества.Эволюция и антропология. Археологические исследованияПеревод: К. МитрошенковИздательство: Ad Marginem PresФормат: PDF, DOCКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80619960BDFAB6CD06419931436D127DC76BAF63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784534   (24930) от 12.03.2025
+
+Иван Мосин | Сюрреализм. Большая иллюстрированная энциклопедия (2017) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена сюрреализму (от франц. «sur» - сверх, над) - одному из ведущих художественных направлений в мировом искусстве первой половины XX века.
+Сюрреализм - «искусство высшей реальности» - явился блестящим выразителем внутренних противоречий и душевного разлада человечества в период между двумя мировыми войнами. Став наследником идей символизма, дадаизма и (   Читать дальше...   )Жанр: Живопись. ЭнциклопедииИздательство: СЗКЭОФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3E0CE2ACECFDB8206F16E18931AF0C576F4A59
 ```
 
 

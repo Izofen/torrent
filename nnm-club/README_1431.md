@@ -1,685 +1,661 @@
-###  Публикация: 1798425   (66629) от 22.05.2025
+###  Публикация: 1760107   (37561) от 12.11.2024
 
-VA - Ultimate Dance Divas (2003) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Dance, Soul, R&B, Funk>
+Дети апокалипсиса / Parvulos (2024) TS [H.264/1080p] [MVO] [AD]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Aretha Franklin - A Deeper Love (C + C Tribesman mix) - (04:11)
-  02 - Whitney Houston - Love That Man (Peter Rauhofer mix) - (04:06)
-  03 - Toni Braxton - Un-Break My Heart (Soul Solution & Hex Hector mix) - (04:47)
-  04 - Deborah Cox - Nobody’s Supposed to Be Here (Hex Hector mix) - (04:14)(   Читать дальше...   )Жанр: Pop, Dance, Soul, R&B, FunkПродолжительность: 01:02:08
+Трое братьев, живущих в доме посреди леса, скрывают в своем подвале страшную тайну.Производство: Мексика / Corazón Films, Maligno Gorehouse, Red Elephant FilmsЖанр: ужасыРежиссер: Исаак ЭзбанАктеры: Карла Аделл, Матео Ортега Касильяс, Леонардо Сервантес, Фарид Эскаланте Корреа, Норма Флорес, Ноэ Эрнандес, Орасио Ф. Ласо, Хуан Карлос РемолинаПеревод: Многоголосый любительский ("Синема УС")Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:19Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0034503F4F10CA36674E758E8DFE3F5B4693DC6F
+magnet:?xt=urn:btih:06B9158486EB4F3B86E0895932227C09D378308A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798489   (66630) от 22.05.2025
+###  Публикация: 1759112   (37562) от 12.11.2024
 
-Сашка (1981) DVDRip [H.264]
+Терминатор / The Terminator (1984) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1942 год. Под Ржевом идут жесточайшие бои. Среди солдат, ведущих неравные бои с врагом, новобранец Сашка. Простому деревенскому парню не сразу дается «наука побеждать» и умение в любых ситуациях находить общий язык с однополчанами и любимой девушкой.Производство: СССР, МосфильмЖанр: военныйРежиссер: Александр СуринАктеры: Андрей Ташков, Марина Яковлева, Владимир Симонов, Юрий Веялис, Леонид Ярмольник, Юрий Гребенщиков, Вячеслав Молоков, Михаил Шулейкин (Михаил Крылов), Любовь СоколоваСубтитры: отсутствуютПродолжительность: 01:25:11
+История противостояния солдата Кайла Риза и киборга-терминатора, прибывших в 1984 год из пост-апокалиптического будущего, где миром правят машины-убийцы, а человечество находится на грани вымирания.Производство: Великобритания, США / Orion Pictures, Cinema 84, Hemdale Film, Pacific Western ProductionЖанр: фантастика, боевик, триллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Майкл Бин, Линда Хэмилтон, Пол Уинфилд, Лэнс Хенриксен, Рик Россович, Бесс Мотта, Эрл Боэн, Дик Миллер, Шон ШеппсПеревод: Дублированный (Blu-Ray)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:47:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBC60C3769EEB54348BAE97994A790BAEB033A54
+magnet:?xt=urn:btih:C577E60958FE91DD39C9CB14296504E9D61A8DC1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798592   (66631) от 22.05.2025
+###  Публикация: 1753078   (37563) от 12.11.2024
 
-Йога для похудения v3.0.1 Mod by Alex.Strannik [Ru/Multi]
+Мегалополис / Megalopolis (2024) WEB-DLRip [H.264] [MVO]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данное приложение предоставляет доступ к обширному каталогу упражнений йоги и нескольким готовым программам, следование которым поможет вам похудеть и улучшить своё физическое тело. Безусловно в наличии возможность самостоятельно собрать программу занятий на базе предоставленных упражнений, снабжённых фото- и видеоиллюстрациями. Внутри приложения присутствует система (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22.05.2025Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+Гениальный архитектор Цезарь Каталина пытается превратить Новый Рим в утопический центр мира и соперничает с конкурирующим проектом мэра Франклина Цицерона. Цицерон готов пойти на всё, чтобы уничтожить своего соперника.Производство: США / American ZoetropeЖанр: фантастика, фэнтези, драмаРежиссер: Фрэнсис Форд КопполаАктеры: Адам Драйвер, Джанкарло Эспозито, Натали Эммануэль, Обри Плаза, Шайа ЛаБаф, Джон Войт, Лоренс Фишбёрн, Талия Шайр, Джейсон Шварцман, Кэтрин ХантерПеревод: Профессиональный многоголосый (RGB)Язык озвучки: Русский, УкраинскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 02:19:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AE5418AF5E987A295A01A7B350DB8F0CCD5C298
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798573   (66632) от 22.05.2025
+###  Публикация: 1760027   (37564) от 12.11.2024
 
-Smart AudioBook Player Pro v11.4.3 Mod by Balatan [Ru/Multi]
+Проводник смерти / To Die Alone (2024) WEB-DLRip [H.264]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: Pro / FullРелиз состоялся: 22.05.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+Разобраться в себе и убежать от проблем - Ирвинг принимает решение пойти в одиночку по тропе Тихоокеанского хребта, но получает серьезную травму, угрожающую жизни. В этот момент Ирвинг настигают собственные внутренние демоны. Как найти способ выбраться из леса живой, и поможет ли в этом случайный попутчик?Производство: США / Charming Stranger Films, Glass Creek PicturesЖанр: триллерРежиссер: Остин СмагальскиАктеры: Джеймс Тэнг, Лиза Старретт, Билл Себастьян, Джеймс Кросняк, Пресли-Белль ФостерПеревод: Дублированный (MOYGOLOS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8309853E00CACF26D585970BB4F9C8AB4F2B25E7
+magnet:?xt=urn:btih:327F82F0A109404F653385FFF315F5C6D2D2675E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798586   (66633) от 22.05.2025
+###  Публикация: 1760007   (37565) от 12.11.2024
 
-PowerDirector – Video Editor v15.3.0 Mod by Balatan [Ru/Multi]
+Немцы первыми в мире испытали в полёте клиновоздушный ракетный двигатель
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.05.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+29 октября 2024 года над Балтийским морем немецкий стартап Polaris Raumflugzeuge провёл испытательный полет масштабного прототипа самолёта MIRA II с клиновидным ракетным двигателем на борту. Двигатель включался всего на 3 секунды, но это было первое в мире испытание КРД в воздухе, а не в лаборатории. И оно было успешным.Клиновоздушные ракетные двигатели (aerospike) (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B593D34EC8285BFE997B5B6C4122E0C01A6F3EC
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798608   (66634) от 22.05.2025
+###  Публикация: 1760134   (37566) от 12.11.2024
 
-Sum Of All - Time to leave (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Граф Монте-Кристо / Le Comte de Monte-Cristo / The Count of Monte-Cristo (2024) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Став жертвой коварного заговора, молодой Эдмон Дантес был арестован в день своей свадьбы за преступление, которого не совершал. После 14 лет в тюрьме замка Иф ему наконец-то удается бежать. На таинственном острове, о котором ему поведал в заключении его друг аббат Фариа, Эдмон находит легендарное сокровище и становится графом Монте- Кристо. Теперь его единственная (   Читать дальше...   )Производство: Франция, Бельгия / Canal+, Centre National du Cinéma, Chapter 2Жанр: драма, триллер, мелодрамаРежиссер: Александр де Ла Пательер, Матьё ДелапортАктеры: Пьер Нинэ, Пьерфранческо Фавино, Анаис Демустье, Лоран Лафитт, Бастьен Буйон, Анамария Вартоломеи, Патрик Милле, Вассили Шнайдер, Жюльен Де Сен Жан, Жюли Де БонаПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), английские, французские (Forced, SDH)Продолжительность: 02:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451E2EBA90AEE4C2AA064D713A6BA8EB95394ADD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759923   (37567) от 11.11.2024
+
+Юрген Вольф | Школа литературного и сценарного мастерства (2018) [MP3, Григорий Перель]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывало ли у вас желание написать книгу, короткий рассказ или пьесу, но вы не знали, с чего начать? А может быть, вы не уверены, что сможете придумать захватывающий сюжет и ярких персонажей? Что бы ни останавливало вас в стремлении стать писателем, «Школа литературного мастерства» разрешит ваши сомнения. Классическое пособие Юргена Вольфа рассказывает не только об (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: ЭвербукПродолжительность: 09:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639A357CA87FB7DE429232573D86DBC8C5E80BDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760044   (37568) от 11.11.2024
+
+Билли Новик - Песни Егора Летова (Часть 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sitting Ducks (04:33)
- 02 - Lost And Found (04:11)
- 03 - My fears (04:17)
- 04 - Do Talk To Me (03:53)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:17
+1. Мышеловка
+2. Моя оборона
+3. Человек человеку - волк
+4. Как сметана(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2975DC4C2BBDFFA3619105C9D085F6D3339C81A8
+magnet:?xt=urn:btih:22F4726D27729A1A3E306F34F5FBDB71946AACA5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798552   (66635) от 22.05.2025
+###  Публикация: 1760015   (37569) от 11.11.2024
 
-MIKA - The Boy Who Knew Too Much (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are Golden    [0:03:58.03]
-02. Blame It on the Girls    [0:03:34.36]
-03. Rain    [0:03:43.56]
-04. Dr John    [0:03:44.06](   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C007C8290C420B63BBEA42A7CCD225876F0D35D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798293   (66636) от 21.05.2025
-
-Kryuhm - Demoni (2025) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ogni Verbo e Diceria (01:08)
- 02. Inside the Mirror (08:08)
- 03. La Casa tra i Rovi (06:32)
- 04. Silente (01:38)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EA96B5C7C05021DDF7686E211108EA17DFD0C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798277   (66637) от 21.05.2025
-
-Inka Inka - Reconsider (1992) Special Edition, 2025, [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roots Reggae, Ska>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reasoning Heavy (2025 Remaster) [00:04:36]
-02. Tension (2025 Remaster) [00:04:30]
-03. Words (2025 Mix) [00:03:52]
-04. Family Matters (2025 Remaster) [00:05:03](   Читать дальше...   )Жанр: Roots Reggae, SkaПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12979D4E76DE1C54010220A838B122BD56A90A95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798260   (66638) от 21.05.2025
-
-Возвращение Дроу Игана / The Return of Draw Egan (1916) WEBRip
+Моя Родина / Мост / Люди ОКДВА (1933) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В титрах Уильям С. Харт - и любители уже поняли, значит дело происходит на Диком Западе, значит будут крутые парни в широкополых шляпах, с кольтами и винчестерами, значит будет строгий шериф, значит будет прелестная невинная юная девица. Значит будет стрельба и любовь под жарким солнцем. Все верно, все это будет.Производство: США / Kay-Bee Pictures, New York Motion PictureЖанр: боевик, мелодрама, приключения, вестерн, немое киноРежиссер: Уильям С. ХартАктеры: Уильям С. Харт, Марджери Уилсон, Роберт МакКим, Луиз Глом, J.P. Lockney, Дороти Бенхэм, Гектор Дион, Дж.Х. Гилмор, Эджи Херринг, Фриц ХорсПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:51:26
+1929 год. Китайцы готовят нападение на Китайско-Восточную железную дорогу. В результате боя красноармейский отряд берет в плен солдата Вана. Повинуясь воле своего офицера, Ван помогает ему бежать из плена. В дороге между беглецами происходит конфликт и молодой китаец начинает понимать, кто его подлинный враг...Производство: СССР / Ленинградская кинофабрика "Росфильм"Жанр: драма, историяРежиссер: Иосиф Хейфиц, Александр ЗархиАктеры: Борис Хайдаров, Геннадий Мичурин, Александр Мельников, Янина Жеймо, Юн Фа-шу, Константин Назаренко, Людмила Семенова, Олег Жаков, Степан КрыловПродолжительность: 01:21:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BE3EDB7B885A2DC6CA818113A6AF1EFA4CF4F8F
+magnet:?xt=urn:btih:4B7064C75C7840B3ADCB13968B457CA1B5F11B14
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798281   (66639) от 21.05.2025
+###  Публикация: 1759964   (37570) от 11.11.2024
 
-Elles Bailey - Beneath the Neon Glow (Reimagined) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Shaka Ponk - Shaka Ponk (2023) Deluxe Edition, 2024, Tot Ou Tard [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Electro-Rock, Pop Punk>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  1972 (Reimagined) (3:11)
-02.  Ballad of a Broken Dream (Reimagined) (5:17)
-03.  If This Is Love (Reimagined) (3:07)
-04.  Turn off the News (Reimagined) (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:33
+01. Hell of a Sad Song [00:02:07]
+02. The Underground [00:03:06]
+03. We Don't Give a Fuck [00:06:17]
+04. Sex Ball LGBT + (Live on Uranus) [00:09:50](   Читать дальше...   )Жанр: Alternative Rock, Electro-Rock, Pop PunkПродолжительность: 2 CD, 01:30:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FFB9A7B6A2B67A94A347944316A4A346452746B
+magnet:?xt=urn:btih:9DCA9DD7B1542B3D07EC405BDC172E78CDF52E34
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798276   (66640) от 21.05.2025
+###  Публикация: 1759908   (37571) от 11.11.2024
 
-Charlie Musselwhite - Look Out Highway (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+VA - Gritty Rhythms and Smooth Blues (2024) [MP3|320 Kbps] <RnB, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37571.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fridayy - Baddest In The Room - (02:38)
+ 002. Khalid - Ground - (03:02)
+ 003. Normani - All Yours - (03:29)
+ 004. Victoria Monét - Alright - (02:54)(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 08:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509CED6D20C00495F171A67AA54B127AE3E25C27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759967   (37572) от 11.11.2024
+
+Семь дней / Sebeun deijeu (2007) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ю Джи Ён, известный адвокат, ещё ни разу не проиграла дела... Пока Джи Ён участвует в родительской гонке на дне рождения своей дочери, её дочь исчезает. Позже в тот же день Джи Ён звонит человек, похитивший её дочь. Звонивший сообщает, что его не интересуют её деньги, и что единственный способ когда-либо снова увидеть свою дочь - это защищать пятикратно судимого (   Читать дальше...   )Производство: Южная Корея / Prime EntertainmentЖанр: драма, криминал, детектив, триллерРежиссер: Син Ён ВонАктеры: Юнжин Ким, Ми Сук Ким, Хи Сун Пак, Хан Сон Чан, Дон Хван Чон, Кван Рок О, Бён Гиль Квон, Чжи Ён Ок, Чжин У Ян, Док Хён ЧоПеревод: любительский двухголосый, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (AiguAigu), английскиеПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142E267C1CEEDC07E19C7C8BFA48F98E2F69B4BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759977   (37573) от 11.11.2024
+
+Семь дней / Sebeun deijeu (2007) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ю Джи Ён, известный адвокат, ещё ни разу не проиграла дела... Пока Джи Ён участвует в родительской гонке на дне рождения своей дочери, её дочь исчезает. Позже в тот же день Джи Ён звонит человек, похитивший её дочь. Звонивший сообщает, что его не интересуют её деньги, и что единственный способ когда-либо снова увидеть свою дочь - это защищать пятикратно судимого (   Читать дальше...   )Производство: Южная Корея / Prime EntertainmentЖанр: драма, криминал, детектив, триллерРежиссер: Син Ён ВонАктеры: Юнжин Ким, Ми Сук Ким, Хи Сун Пак, Хан Сон Чан, Дон Хван Чон, Кван Рок О, Бён Гиль Квон, Чжи Ён Ок, Чжин У Ян, Док Хён ЧоПеревод: любительский двухголосый, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (AiguAigu), английскиеПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC45704D8EB20BB071FE0BC7FA5FD1C2699793F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759961   (37574) от 11.11.2024
+
+Bay City Rollers - Keep On Rollin (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Only You
+02 – A Place We Call Home
+03 – Brand New Day
+04 – Baby I Love You(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6E048BDDBEC2B095C5E321155E6714A4A0BABD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760041   (37575) от 11.11.2024
+
+A Poets Dream - The Spirit Never Sleeps (2024) [MP3|320 Kbps] <Progressive Rock, Hard Rock, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Spirit Never Sleeps (07:49)
+ 02 - Dr. Heaven (05:41)
+ 03 - World's End (06:03)
+ 04 - You're Great (03:32)(   Читать дальше...   )Жанр: Progressive Rock, Hard Rock, Heavy ProgПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1EB13C68F2B34420DE9E66B4F4BB1977AF9F50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759931   (37576) от 11.11.2024
+
+Газета | Народный совет №44 (22 октября 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE33977087FCDA69D9A0A9D5FC9E4536FCED7C56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759932   (37577) от 11.11.2024
+
+Crippled Black Phoenix - The Wolf Changes Its Fur But Not Its Nature (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock / Psychedelic / Space Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Look Out Highway (3:31)
-02.  Sad Eyes (3:40)
-03.  Storm Warning (4:05)
-04.  Baby Won't You Please Help Me (3:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:57
+01. We Forgotten Who We Are (11:17)
+02. You Put The Devil In Me (6:17)
+03. 444 (7:23)
+04. Goodnight, Europe, Pt. II (8:37)(   Читать дальше...   )Жанр: Progressive Rock / Psychedelic / Space RockПродолжительность: 01:04:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28659F85C6759E588639BDFF536E9CF04C658BE9
+magnet:?xt=urn:btih:CAE34CB5A8A4EBBDD217F892D5EC3E5BD6D8226F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798274   (66641) от 21.05.2025
+###  Публикация: 1759941   (37578) от 11.11.2024
 
-63 Deluxe - Memphis to Nashville (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Caity Gyorgy - Hello! How Are You (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Outta Here (5:24)
-02.  Right Back Where You Belong (3:36)
-03.  Like Before (5:52)
-04.  Blues Personality (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:57
+01. Hello! How Are You? (3:38)
+02. Just My Luck (5:40)
+03. They Say It's Spring (4:32)
+04. Familiar Face (4:33)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F26B5DB9E3119C18F1BE8BD32B4A36BA3BFC974
+magnet:?xt=urn:btih:4848EE37FC884FE329D617AED1CFCA9E9C03C859
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798262   (66642) от 21.05.2025
+###  Публикация: 1759943   (37579) от 11.11.2024
 
-Ace Monroe - Wild Card (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+VA - Sunday At The Riverside: The Best Time Of Jazz Piano I (1955 - 1962) 10CD, 2024, Fermata [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Inside Out (3:55)
-02.  Rabbit Foot Boogie (3:01)
-03.  Bang Bang (2:52)
-04.  Talk (3:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:42
+01. Georgia on my mind [4:09]
+02. Hallelujah! [5:41]
+03. The Prophet [7:29]
+04. Love for Sale [4:31](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 12:39:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7D5CDA979A5BE28B7631CBC9ABB2E0FA65CBA76
+magnet:?xt=urn:btih:FFFE22DDA8DA248B4A9F0E2BFDB23F9BBBFE29F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798270   (66643) от 21.05.2025
+###  Публикация: 1759939   (37580) от 11.11.2024
 
-Bob Stroger & The Headcutters - Bob Is Back (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Ian Siegal & Johnny Mastro - Easy Tiger (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Look Over Yonder Wall (2:50)
-02.  Champagne and Reefer (3:34)
-03.  Jazz Man Blues (3:53)
-04.  Don't You Lie To Me (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:50
+01. Four On The Floor (2:37)
+02. Balling The Jack (4:06)
+03. Baby You Can Get Your Gun (2:32)
+04. No Mercy (4:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38A5B0BAD1344EA72C7D387AC72ED3546C636F07
+magnet:?xt=urn:btih:AE2C992922F8EC7DEC116E3159174552174706C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798271   (66644) от 21.05.2025
+###  Публикация: 1759934   (37581) от 11.11.2024
 
-Brandon Santini - Which Way Do We Go? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Dane Applin - Dane Applin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Which Way Do We Go? (4:11)
-02.  The War Ain't Over (4:02)
-03.  See That Pony (3:07)
-04.  Ain't Turning Back (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:35
+01. I Walk Kasson In My Dreams (1:21)
+02. Car Crash (3:55)
+03. Ursa Major (3:50)
+04. Going Nowhere (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:218083E5C9F5FB4AC4EF229114F9895A1A00346F
+magnet:?xt=urn:btih:9D51C9D5A014C64F16D9C65794DFBECB4DEDB5B1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798278   (66645) от 21.05.2025
+###  Публикация: 1760008   (37582) от 11.11.2024
 
-Earnest 'Guitar' Roy - This Is Earnest 'Guitar' Roy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  OL - Big Ol Smile (3:44)
-02.  Shop - Body Shop (2:48)
-03.  Hustlin - Dirty Hustlin' (3:13)
-04.  Master - Earnestly (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5071C77580FD673A96F8C18171353DFA237F52C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798267   (66646) от 21.05.2025
-
-Ben Joseph & The Lay-Lows - The Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fix it or Listen (3:57)
-02.  I'm a rolling stone (3:06)
-03.  Damn Kudzu (2:41)
-04.  I'm a dog (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7988272FBE3E9576C7F8CB970FEDA3F932C5D32E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798264   (66647) от 21.05.2025
-
-Azure Riff - Thunder in My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gone Too Soon (4:26)
-02.  You Cannot Break a Broken Heart (3:37)
-03.  Blues Got You (3:43)
-04.  Now She's Saying She's Pregnant (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A575A373CE268AC03070DF40D0CDE0CB4EA8C784
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797846   (66648) от 19.05.2025
-
-Venator - Psychodrome (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Blood Feast - Infinite Evolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Into the Drome
-02. Steal the Night
-03. Children of the Beast
-04. Ravening Angel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:33
+1. Crafting Carnage
+2. Ravaging The Loins Of Mary
+3. Never Will I Die
+4. Of Hell(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34405F46C711E1A0D9AA0E92FB873B3FDE0D5236
+magnet:?xt=urn:btih:F4DEEACF74A81FD53D84389183E291A6BBE036D1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797875   (66649) от 19.05.2025
+###  Публикация: 1759936   (37583) от 11.11.2024
 
-The Sherlocks - Everything Must Make Sense! (2025) [MP3|320 Kbps] <Alternative & Indie>
+Gurf Morlix - In Love at Zero Degrees (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Everything Must Make Sense [00:03:59]
-02 - Man on the Loose [00:03:43]
-03 - How Are You Feeling_ [00:03:42]
-04 - Death of Me [00:04:41](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:43:12
+01. Let's Talk About Love (4:43)
+02. Tear Out My Heart (5:33)
+03. In Love At Zero Degrees (5:39)
+04. Fallin' Into You (5:05)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:46:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D21D04E096143BADB2E5B62AF8937A9EAA96FCDC
+magnet:?xt=urn:btih:89CD0D11920530E4242D91F0F4E2FC7C345A0CE1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797953   (66650) от 19.05.2025
+###  Публикация: 1759933   (37584) от 11.11.2024
 
-Monhell - A Last Sigh of Pain (2025) [MP3|320 Kbps] <Melodic Black Metal>
+Asamu Johnson & The Associates of the Blues - True Freedom (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fade to Dust
-02. Shadows of the Abbey
-03. Paths and Betrayal
-04. The Last Seal(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:41:57
+01. Bamileke (5:44)
+02. Don’t Think About That (4:37)
+03. I Don’t Want to Know (5:54)
+04. True Freedom (6:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE87DF3F45D807DE5C5F6F42B77C80AC1F5889F1
+magnet:?xt=urn:btih:AE01F8BA1A5D9F42A2DA47445D20F19C788532B0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797918   (66651) от 19.05.2025
+###  Публикация: 1759843   (37585) от 11.11.2024
 
-DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
+Дитя балета / Ballettens Datter (1913) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
-2005 - The Fury Of Our Maker's Hand
-2007 - The Last Kind Words
-2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
+Граф де Круасе делает предложение знаменитой танцовщице Одетте Блан. Он кладет к ее ногам всю свою любовь, свое состояние и свой титул - при одном условии: она должна оставить профессию танцовщицы. Одетта говорит ему «да», убеждая сама себя, что никогда не будет скучать по театру, когда станет графиней. Но сможет ли она действительно забыть сцену? Она, отдавшая балету (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: мелодрама, немое киноРежиссер: Хольгер-МадсенАктеры: Svend Aggerholm, Ингеборг Брюн Бертелсен, Олуф Биллесборг, Вальдемар Хансен, Питер Йоргенсен, Johanne Krum-Hunderup, Doris Langkilde, Agnes Lorentzen, Эбба Лоренцен, Торбен МейерПеревод: немой с интертитрами (В. Сачков)Субтитры: датские (интертитры), русскиеПродолжительность: 00:55:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
+magnet:?xt=urn:btih:5831E9A46B90773E539006C1CD6FD905D7F28D89
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797871   (66652) от 19.05.2025
+###  Публикация: 1759458   (37586) от 11.11.2024
 
-Confessions of a Traitor - This Pain Will Serve You (2025) [MP3|320 Kbps] <Metalcore>
+Из тьмы / Ur morkret / From Darkness (2024) WEBRip [DVO] [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Starve [00:02:14]
-02 - Fatal Frame [00:03:19]
-03 - Doomsayer [00:03:45]
-04 - Midnight Sun [00:03:28](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:36:24
+В одном из пригородных заказников Швеции находят припаркованный на обочине автомобиль. Выясняется, что машина принадлежит женщине, которая какое-то время назад потеряла сына - мальчик пропал в этом заказнике во время экусурсии, а тело так и не нашли. Смотрительница заказника Ангелика сразу понимает, что женщина приехала искать тело сына и скорее всего попала в беду. (   Читать дальше...   )Производство: Швеция / Pentagram Film, Eyra MediaЖанр: ужасы, триллер, детективРежиссер: Philip W. da SilvaАктеры: Оскар Скагерберг, Rakel Benér, Петер Мерлин, Archana Khanna, Amanda Kilpeläinen Arvidsson, Lennart B. Sandelin, Marion Horney, Sanna Jansson, Томас Хеденгран, Lars Adsten и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:37Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7E17E15FFB46AC3C266552BFB0BFCBDD2A0AE52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797970   (66653) от 19.05.2025
-
-Марина Цветаева | Фортуна (Радиоспектакль) (2024) [MP3, Светлана Письмиченко, Александр Лыков и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик.
-«Фортуна» – пьеса в пяти картинах, в стихах, написанная в феврале 1919 года. Сюжет: история реального исторического персонажа – герцога Лозэна, жившего в эпоху Французской революции. Цветаева отобрала пять эпизодов из биографии героя и объединила их образом Фортуны…
-(   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C411F2827FB0AEA062B9A400D55A5EED8535A578
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797823   (66654) от 19.05.2025
-
-Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dystopia (04:24)
-02. Ascent Of The Blessed (04:10)
-03. Virus (03:55)
-04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
+magnet:?xt=urn:btih:E53DF684461CDBCA4122DF897901AD5477EE61B9
 ```
 
 

@@ -1,678 +1,667 @@
-###  Публикация: 1783251   (69827) от 05.03.2025
+###  Публикация: 1746434   (40760) от 11.10.2024
 
-Растровый клипарт - Dealjumbo.com - Deeezy - Steampunk Lights - Free 3D Lettering - 34667 [PNG]
+Плохая обезьяна / Bad Monkey (2024) WEB-DL [H.265/1080p] (сезон 1, серии 1-10 из 10) HDRezka, LE-Production
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 900 x 900
+Эндрю Янси — бывший детектив из Южной Флориды, которого понизили до санитарного инспектора. Он также рьяный защитник природы и ведет непримиримую войну с застройщиком Эваном Шуком, который купил землю и готовится возвести огромный особняк на уединенном мысе Биг-Пайн-Ки, рядом с домом Янси. Однажды турист, приехавший в эти места на рыбалку, находит отрубленную руку. (   Читать дальше...   )Производство: США / Doozer, Two Soups Productions, Warner Bros. TelevisionЖанр: комедия, детектив, криминалРежиссер: Маркос Сига, Колин Бакси, Эрика ДантонАктеры: Винс Вон, Л. Скотт Колдуэлл, Роб Делани, Мередит Хагнер, Натали Мартинес, Мишель Монахэн, Рональд Пит, Джоди Тёрнер-Смит, Том Новицки, Дэвид Ст. ЛуисПеревод: Многоголосый (HDRezka Studio, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full, SDH), французские и др.Продолжительность: ~00:55:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4361805C3F4AB8DB42B684435F83043014D897EA
+magnet:?xt=urn:btih:865054538278963FEA46CC84B16AE34E633184C2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783367   (69828) от 05.03.2025
+###  Публикация: 1747567   (40761) от 11.10.2024
 
-VA - Italian Dining Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Как взломать экзамен / Bad Genius (2024) WEB-DLRip [H.264] [звук с TS]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Горячие новинки
+>>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ely Bruna - Parole Parole (4:42)
-02.  Matteo Brancaleoni - Cosa Hai Messo Nel Caffè (3:20)
-03.  Emanuela Campana - Gente distratta (5:29)
-04.  Jose Mascolo - Donna (4:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:29
+Частная школа в центре Лос-Анджелеса, куда каждое утро выстраивается караван представительских машин. Здесь учатся дети элиты: банкиров, политиков, кинозвезд. Bce их проблемы давно решены родителями. За исключением одной - надо сдать финальный экзамен. Для этого им нужен кто-то, кому повезло чуть меньше. Кто-то чертовски умный и готовый на все ради места под солнцем. (   Читать дальше...   )Производство: Канада / Little Ray Media, Picture Perfect Federation, PicturestartЖанр: триллерРежиссер: Дж.С. ЛиАктеры: Бенедикт Вонг, Тэйлор Хиксон, Джабари Бэнкс, Сара-Джейн Редмонд, Callina Liang, Адам Бошен, Тина Грант, Конор Медоус, Роб Карпентер, Сара КеллиПеревод: Дублированный (Пифагор) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:36:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82C9C3BC53FA10B250865C05993C0FC32C00EED5
+magnet:?xt=urn:btih:4DF462EC914542370285FA520917D5987691C66B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783347   (69829) от 05.03.2025
+###  Публикация: 1754080   (40762) от 11.10.2024
 
-С. Лавров (Архимандрит Амвросий (Юрасов)) | Яко с нами Бог (2013) [PDF, DJVU]
+«Шах и мат»: патриарх Кирилл заявил о сочетании теории Дарвина с религией
 
->>Разное (категория книг)
->>Религиозная литература
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга «Яко с нами Бог» состоит из 3-х частей: 1-я часть «Диспут», 2-я часть «О Боге», 3-я часть — «Путь к спасению». 1-я часть — «Диспут» — построена на основе сочинения писателя-старообрядца Ф.Е. Мельникова «Откуда произошла вера в Бога (публичный диспут в советской России)», написанного в 1920 году.
-С нами Бог. «С нами Бог, разумейте языцы и покоряйтеся, яко с (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, DJVUКачество: OCR
+Патриарх Кирилл прокомментировал призывы запретить преподавание теории Дарвина в школе.
+Он заявил, что теория эволюции не только не противоречит религии, она наоборот - свидетельствует о Божьем замысле.Во время посещения «Сириуса» предстоятель РПЦ заметил, что Вселенная создана Богом, а в человека вложена способность к развитию. «Эволюция против Божьего замысла – (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC20CCEE27864C61B28602DFE53A03A0AC41FA0B
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783328   (69830) от 05.03.2025
+###  Публикация: 1754400   (40763) от 11.10.2024
 
-Футбол. Лига Чемпионов 2024/2025. 1/8 финала. Обзор матчей (04.03.2025) HDTVRip [H.264/1080p]
+Свекровь / Prisla v noci / She Came at Night (2023) WEB-DL [H.264/1080p] [MVO]
 
->>Спорт и активный отдых
->>Футбол
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол.Лига Чемпионов 2024/2025. 1/8 финала. Обзор матчей (04.03.2025)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 00:24:11
+Когда пара тридцатилетних молодых людей позволяет матери одного из них переступить порог своего дома, они даже не подозревают, что только что попали в своего рода чистилище. Их спокойная жизнь постепенно превращается в хаотическое крушение. Валери, ухоженная женщина шестидесяти лет, — энергичная дива, которая мало-помалу завоевывает не только пространство квартиры, (   Читать дальше...   )Производство: Чехия / ArtCam, BratriЖанр: черная комедия, комедия, ужасыРежиссер: Томас Павличек, Ян ВейнарАктеры: Симона Пекова, Иржи Рейндл, Аннетт Несвадьбова, Дениса Барешова, Юдит Бардос, Станислава Яхницка, Михал Керн, Владимир Кратина, Ян Вондрачек, Иржи РендлПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, ЧешскийСубтитры: ОтсутствуютПродолжительность: 01:27:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA5F429F05CE5D4154E90EFDC0A8B40819AF8803
+magnet:?xt=urn:btih:86D17A393BF0675E35BED1E1802E70EF0E85AA2A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783250   (69831) от 05.03.2025
+###  Публикация: 1754372   (40764) от 11.10.2024
 
-Растровый клипарт - Dealjumbo.com - Deeezy - Free Deco Geometry - 3D Lettering - 16762 [PNG]
+Ожидание / Жена пастора / Odotus / The Wait (2021) WEB-DLRip [H.264/1080p] [VO] [Handmade Upscale AI]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 900 x 900
+Современная адаптация романа "Жена пастора" 1893 года классика финской литературы Юхани Ахо. В тиши и покое Аландского архипелага живет пастор Микко со своей женой Элли. Неожиданный визит старого друга пастора, Олави, вносит разлад в размеренную жизнь. Между Олави и Элли вспыхивает взаимное притяжение. Участники любовного треугольника стоят перед выбором: (   Читать дальше...   )Производство: Финляндия / Backmann & HoderoffЖанр: драма, мелодрама, эротикаРежиссер: Аку ЛоухимиесАктеры: Инка Каллен, Аку Хирвиниеми, Андрей Ален, Adeliina Arajuuri, Эйно ХайсканенПеревод: Одноголосый любительский (porcellus)Язык озвучки: русский, финскийСубтитры: отсутствуютПродолжительность: 01:32:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7F6117DD34D74770DF6BD9183BD6B61447C9AFC
+magnet:?xt=urn:btih:CE8CA408FAF66FE7D2ED75693ABE574904E8E64D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783226   (69832) от 05.03.2025
+###  Публикация: 1754431   (40765) от 11.10.2024
 
-Dommin - The Martyr (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
+Кровь прольется из ушей твоих / Thine Ears Shall Bleed (2024) WEB-DL [H.264/1080p] [DVO]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Martyr [00:05:35]
-02. Breaking Down [00:05:19]
-03. Rule To Break [00:03:30]
-04. Thorns & Roses [00:04:06](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 01:03:01
+1860-е. Священник и его семья путешествуют в крытой повозке, когда слышат таинственный звук из леса. Веря, что источник звука — сам Бог, они поклоняются ему, пока не осознают, что звук — это нечто гораздо более темное.Производство: США / Unnecessary Mountain ProductionsЖанр: ужасыРежиссер: Ben BigelowАктеры: Ханна Кэбелл, Andrew Hovelson, Duke Huston, Лукас Нир-Вербругге, Lea ZawadaПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:41:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BED4878A5C3DB9D1159510C26929713D0899C4D0
+magnet:?xt=urn:btih:3372679CA5E6B2D1E9A041828ECC37977372DB9B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783288   (69833) от 05.03.2025
+###  Публикация: 1754436   (40766) от 10.10.2024
 
-VA - SaberWave Best Of 4 Years (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vladislav Vasilchuk - The direction of trance (Original Mix) [7:17]
-02. Alex Fibonacci - Damaged (Original Mix) [6:01]
-03. Feali & Alënushka - Time (Original Mix) [6:54]
-04. MLiFe - Reflection (Original Mix) [6:12](   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3EB9FCC24336A56A0D4EAFDD4D179777B28754
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783306   (69834) от 05.03.2025
-
-Шрифты - Creative Market - Glakion | Modern Display Serif - 290870946 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glakion - современный шрифт с засечками от Gracetypestudio, подходящий для любых проектов.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BB241D64316656A5B5D1C71D8C543BDF624B9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783366   (69835) от 05.03.2025
-
-VA - Chill Jazz Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Miles Davis - When I Fall In Love (Rudy Van Gelder Remaster) (4:24)
-02.  Bill Evans - I Wish I Knew (4:40)
-03.  John Coltrane - Time After Time (7:43)
-04.  Lex Humphries - While We're Young (2:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 04:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F7CD13813800CF5BE75ACC91763D42583E561E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783324   (69836) от 05.03.2025
-
-Александр Островский, Николай Соловьёв | Женитьба Белугина (Радиоспектакль) (2022) [MP3, Сергей Паршин, Мария Мещерякова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные страсти, волнующие (   Читать дальше...   )Жанр: Русская литература, классика, комедия, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B12D8A6327635EE47076DDB4042ADB5850D60AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783371   (69837) от 05.03.2025
-
-VA - Mondo Groove (The New Italian Funky Scene) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Smoke Orchestra - Moonjumpin' (3:33)
-02.  Avex - Underground Foxes (3:25)
-03.  Soulstance - Music Painter (5:28)
-04.  Black & Brown - P-Lainz (6:23)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417AECF994CC3FAEC75E078218745B9DF2A44591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783329   (69838) от 05.03.2025
-
-Александр Писарев | Хлопотун, или Дело мастера боится (Радиоспектакль) (2022) [MP3, Татьяна Михалевкина, Александр Васильев и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Александр Иванович Писарев (1803–1828) – русский драматург и поэт, переводчик, автор водевилей, театральный критик.
-Лионский любит Наденьку, но её отец хочет выдать дочь за своего друга, старика Репейкина. Случайно познакомившись с Репейкиным, Лионский рассказывает ему о своей беде, а тот, большой любитель вмешиваться в чужие дела, не (   Читать дальше...   )Жанр: Русская литература, классика, комедия, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A26E272455AD40B2B1E9555E8B8797A3997BD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783364   (69839) от 05.03.2025
-
-VA - A Taste Of Honey (Martin Bedford Tribute) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mark Harrison - Dirty Business (4:40)
-02.  The 20ft Squid Blues Band - Way Down In The Hole (3:30)
-03.  Tom Attah - How Long Has It Been (3:40)
-04.  Southern Fried Groove Queens - Poor Black Mattie (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271863DD45682165BAAC499181C965F9C3255D03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783322   (69840) от 05.03.2025
-
-Александр Островский, Николай Соловьёв | Счастливый день (Радиоспектакль) (2021) [MP3, Алла Еминцева, Вадим Бочанов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Александр Николаевич Островский (1823–1886), Николай Яковлевич Соловьёв (1845–1898) «Счастливый день» (сцены из жизни уездного захолустья в трёх действиях) – пьеса, 1877 год. Пьеса первоначально называлась «Всех устроила! Сцены в захолустье из минувшего невозвратно». Впервые опубликовано в журнале «Отечественные записки», 1877, №7.
-Эта (   Читать дальше...   )Жанр: Русская литература, классика, комедия, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C99485BC8498E8C77676F368B574F6007C5CC4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783369   (69841) от 05.03.2025
-
-VA - Jazzy Chill Vibes (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boney James - Butter (5:04)
-02.  Butcher Brown - Triple Trey (Intro / How Much A Dollar Cost / Instrumental) (1:16)
-03.  Esperanza Spalding - I Know You Know (3:45)
-04.  Keyon Harrold - Find Your Peace (Instrumental) (7:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8BC0643837DFE85FCA5DE56489A73AED2925A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783099   (69842) от 04.03.2025
-
-Antony Szmierek - Service Station At The End Of The Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternativa & Indie>
+Blacksmith Tales - Pathway to Hamlet’s Mill (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog, Symphonic Prog>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Service Station at the End of the Universe [00:03:06]
-02. Rafters [00:03:07]
-03. The Great Pyramid of Stockport [00:02:35]
-04. Big Light [00:03:23](   Читать дальше...   )Жанр: Alternativa & IndieПродолжительность: 00:36:37
+01. Hamlet's Mill Overture (9:03)
+02. Key to the Temple (6:04)
+03. C'è Casa a 30 Miglia (3:28)
+04. The Flame Within (6:17)(   Читать дальше...   )Жанр: Progressive Rock, Heavy Prog, Symphonic ProgПродолжительность: 00:45:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81CB4726AADA505A86581B033351F037078CAF50
+magnet:?xt=urn:btih:DCDEEDD3E3B90DF0D01B19F8739CA69586335C4C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783086   (69843) от 04.03.2025
+###  Публикация: 1754398   (40767) от 10.10.2024
 
-Christian Mistress - Children of the Earth (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
+Ezra Collective - Dance, No One's Watching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. City of Gold [00:04:11]
-02. Voiceless [00:03:56]
-03. Demon's Night [00:04:12]
-04. Love of the World [00:05:05](   Читать дальше...   )Жанр: MetalПродолжительность: 00:33:00
+01. Intro (1:22)
+02. The Herald (3:45)
+03. Palm Wine (5:14)
+04. cloakroom link up. (Act 1) (0:25)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C71545861AC0CCB1E7367B4894B1D137AB0D01D
+magnet:?xt=urn:btih:B0F5BADF52D8CBE978323CCB222C7E5CFB245C49
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783173   (69844) от 04.03.2025
+###  Публикация: 1754416   (40768) от 10.10.2024
 
-Joey DeFrancesco - Finger Poppin' (2009) Doodlin' Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
+Joe Pass - Virtuoso Live! (1992) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Strollin' [8:26]
-02. Swingin' the Samba [4:41]
-03. The Jody Grind [6:00]
-04. Finger Poppin' [6:05](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:00:58
+01. Stompin' at the Savoy [5:14]
+02. Just the Way You Are [3:18]
+03. Eric's Smoozie Blues [5:21]
+04. Beautiful Love [4:26](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:53:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:978DDB80E8F55DA3D8DBD0F40E67F41078E956B0
+magnet:?xt=urn:btih:4F1A69A8E839231A486D054D3055FCFAF50AD005
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783174   (69845) от 04.03.2025
+###  Публикация: 1754415   (40769) от 10.10.2024
 
-The Very Tall Band - What's Up? (1998) 2007, Telarc Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+Herb Ellis & Joe Pass - Two For The Road (1974) 1985, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Squatty Roo [8:26]
-02. Salt Peanuts [8:25]
-03. Ad Lib Blues [10:49]
-04. If I Should Lose You [7:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:58
+01. Love for Sale [4:52]
+02. Carnival (Manha de Carnaval) [3:32]
+03. Am I Blue? [3:10]
+04. Seven Come Eleven [4:34](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:45:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8DC29C81024568593C3C2D591F8AA3B6BE4A1A0
+magnet:?xt=urn:btih:4314AA984C6C3089BA0D113DF5AE79D3AE504D42
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783153   (69846) от 04.03.2025
+###  Публикация: 1754476   (40770) от 10.10.2024
 
-Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adversor - трэш-метал группа из Италии, сформированная в сентябре 2015 года2016 - Rise To Survive
-2018 - The End Of Mankind
-2023 - Portrait of a WastelandЖанр: Thrash MetalПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E46757FB9190B28A20736500DEB64C388A4D5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783160   (69847) от 04.03.2025
-
-Fatal Embrace (Sweden) - Studio Albums (3 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Blackened Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fatal Embrace - метал-группа из Варберга, Швеция. Была активна с 1992 по 1998 год и воссоединилась в 2016 году.1997 - Shadowsouls' Garden
-2023 - Manifestum Infernalis
-2024 - Hail Down DeepЖанр: Melodic Blackened Death MetalПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B510205E1DEEE2394E91EC0CAA5FFDE43D65B4D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783234   (69848) от 04.03.2025
-
-Asylum (Australia) - Studio Albums (2 releases) (2017-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Asylum - метал-группа, образованная в Голд -Кост, Австралия, в 2012 году.2017 - Concealed Death/Slaughterhouse
-2022 - TyrannicideЖанр: Thrash MetalПродолжительность: 01:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D626F2340CCD2A61EF8A4ED12B2CCA209BED8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783208   (69849) от 04.03.2025
-
-НХЛ 2024-2025. Оттава Сенаторз - Вашингтон Кэпиталз (03.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Хоккей. НХЛ 2023-2024. Нью-Йорк Рейнджерс - Питтсбург Пингвинз (09.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 марта 2025, вторник. 02:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Джон Макисаак (Труро, Канада); Главный судья: Брэндон Шредер (Санборн, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:12:37
+10 октября 2024, четверг. 02:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 190 зрителей (97% при вместимости 18 673)
+Главный судья: Джейк Бренк (Детройт Лейк, США); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Дерек Нансен (Оттава, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88C26C54EE48877AEC61776DFDFDF6A6B2DD9871
+magnet:?xt=urn:btih:1BE2F76B78BCA40E8BE2D72395C53FD37EDBBF5A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783171   (69850) от 04.03.2025
+###  Публикация: 1754411   (40771) от 10.10.2024
 
-John Graas & Art Pepper - Complete Small Group Sessions (1951 - 1958) 2CD, 2017, Phono [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Bop>
+Charles Lloyd - Forest Flower (1967) 2012, Atlantic [FLAC|Lossless|tracks + .cue] <Post Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Popo [3:05]
-02. Didi [2:30]
-03. Four Mothers [2:52]
-04. Over the Rainbow [3:04](   Читать дальше...   )Жанр: West Coast Jazz, BopПродолжительность: 02:33:37
+01. Forest Flower - Sunrise [7:19]
+02. Forest Flower - Sunset [10:38]
+03. Sorcery [5:19]
+04. Song of Her [5:25](   Читать дальше...   )Жанр: Post BopПродолжительность: 00:39:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F40BB924DB7E0112E5FBE0AD37BA89410016BB66
+magnet:?xt=urn:btih:09E37C0946A61589ED49C771DBE0BD9409165DEA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782974   (69851) от 03.03.2025
+###  Публикация: 1754490   (40772) от 10.10.2024
 
-John Doe Trio - JD III (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+John Lennon - Mind Games (Meditation Mixes) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Prologue: Resurgence (1:51)
-02.  First King of Texas (4:11)
-03.  Whose Blues? (3:42)
-04.  Big Bad Ron (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:44
+01. Mind (Mind Games Meditation Mix / Binaural ∿Gamma Waves∿ 100Hz) (10:02)
+02. Magic (Mind Games Meditation Mix) (10:58)
+03. Space (Mind Games Meditation Mix / Binaural ∿Theta Waves∿ 8Hz) (5:42)
+04. Seed (Mind Games Meditation Mix) (5:59)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:54:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6D062F4015DD5FD5171E2047543E5E2D65A62A1
+magnet:?xt=urn:btih:07E109EC1988BFD972F4F41C3D5D812C588299B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782972   (69852) от 03.03.2025
+###  Публикация: 1754516   (40773) от 10.10.2024
 
-Howard Mahan - Hope on Credit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Firefox Browser ESR 128.3.1 Portable by PortableApps [Ru]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Stuck on My Mind (4:11)
-02.  Gin Soaked Poet (5:03)
-03.  Leave My Heart Alone (5:52)
-04.  Miss Lady (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:15
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6EB362B42010302C94ACD8437DD8507A920C5AF
+magnet:?xt=urn:btih:0B1BC944B40621A35A6703B82529D705C8C08092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754462   (40774) от 10.10.2024
+
+Ученик булочника из Венеции / Il fornaretto di Venezia (1963) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому роману Франческо Даль’Онгаро... Начало XVI века, Венецианская республика. Молодого пекаря несправедливо обвиняют в убийстве дворянина. Его судит Совет десяти. Внутри Совета схватываются две партии. Партия Гарцони, решившая искоренить простолюдинов в правительстве, считает молодого плебея виновным, а более либеральная партия Пармы пытается доказать (   Читать дальше...   )Производство: Италия, Франция / Gaumont, Lux Film S.p.a., Ultra FilmЖанр: драмаРежиссер: Дуччо ТессариАктеры: Жак Перрен, Мишель Морган (I), Энрико Мария Салерно, Сильва Кошина, Стефания Сандрелли, Гастоне Москин, Фред Уильямс, Уго Аттанасио, Родольфо Лоди, Луиджи РэмаПеревод: любительский одноголосыйЯзык озвучки: русский, итальянский, французскийСубтитры: русские (dimmm2v), английскиеПродолжительность: 01:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C89117AAEFD3DA53C4055F2D208095E399BDD5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754488   (40775) от 10.10.2024
+
+VA - Vintage Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Steward - New York City Nights (6:02)
+02. Florian Reach - We'll Meet Again (6:05)
+03. Ray Steward - Gentlemen's Night (4:54)
+04. Henry Perkins - Summer Paradise (5:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1337F4EDB19DEB479FE51F197569EA8ED2E2950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754409   (40776) от 10.10.2024
+
+The Smoothies - Velvet Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Longing Echoes (3:05)
+02. Lonely Roads (2:49)
+03. Hold me close stay right here (2:54)
+04. Moonlit Groove (2:47)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFD366AC5605EFB2A4CFAA1B08BB39440BEB5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753878   (40777) от 10.10.2024
+
+VA - Sensual Vibes (100 Ttracks, Long Playing Edition) (2017) [MP3|320 Kbps] <Easy Listening, Bosa Nova>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40777.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Feel Good - Noranda [04:00]
+002. Laura Mils - Dancer Body [03:37]
+003. Dj Kam - Chill [02:43]
+004. Enterprise Project - Galaxy Espress [05:09](   Читать дальше...   )Жанр: Easy Listening, Bosa NovaПродолжительность: 06:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42566E6DF7961E0BE8CBFB489674774D4BF7B8C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754507   (40778) от 10.10.2024
+
+Dream Theater - Night Terror (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Terror (09:55)
+02. Night Terror (Radio Edit) (06:01)Жанр: Progressive MetalПродолжительность: 00:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB59927E9DBCFC4DEA0C6279D31339F829F6199
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754457   (40779) от 10.10.2024
+
+Ученик булочника из Венеции / Il fornaretto di Venezia (1963) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому роману Франческо Даль’Онгаро... Начало XVI века, Венецианская республика. Молодого пекаря несправедливо обвиняют в убийстве дворянина. Его судит Совет десяти. Внутри Совета схватываются две партии. Партия Гарцони, решившая искоренить простолюдинов в правительстве, считает молодого плебея виновным, а более либеральная партия Пармы пытается доказать (   Читать дальше...   )Производство: Италия, Франция / Gaumont, Lux Film S.p.a., Ultra FilmЖанр: драмаРежиссер: Дуччо ТессариАктеры: Жак Перрен, Мишель Морган (I), Энрико Мария Салерно, Сильва Кошина, Стефания Сандрелли, Гастоне Москин, Фред Уильямс, Уго Аттанасио, Родольфо Лоди, Луиджи РэмаПеревод: любительский одноголосыйЯзык озвучки: русский, итальянский, французскийСубтитры: русские (dimmm2v), английскиеПродолжительность: 01:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82646BB9351B032DBAE40CA1CE4615B5C70695B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754413   (40780) от 10.10.2024
+
+VA - The Orient Collective - Ethernal (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Slick - Sharaih (4:34)
+02. Gabriel Slick - My World (4:31)
+03. Tibetania - Om El Donya (4:44)
+04. Tibetania - Sama (8:04)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69F6A326B048901504C24D88EB517086E664008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754399   (40781) от 10.10.2024
+
+Summer Jazz Paradise, Instrumental Jazz Music Ambient and Swing Background - Summer 2024 Vintage Swing Jazz Collection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Swing, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Jazz Paradise - Swingin' in the Sunshine (3:24)
+02. Instrumental Jazz Music Ambient - Jazz by the Pool (3:36)
+03. Breezy Afternoon Swing (3:52)
+04. Summer Jazz Paradise - Starlit Serenade (3:51)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DE584B196F1585E3BB63216AFBA7CFD70D43BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754500   (40782) от 10.10.2024
+
+Самое Большое Простое Число - Животные пьют из луж (2024) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40782.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Навеки
+2. Это не конец
+3. Дикий
+4. ОБЖ(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265DAEA6D8A3D723B811EF70E912249CC9A77738
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754408   (40783) от 10.10.2024
+
+The Smoothies - Soulful Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Groove of Your Love (3:27)
+02. Together Forever (3:06)
+03. Summer Fades (2:49)
+04. Missing You (My Friend) (2:38)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E253BB1A524821C5F977121D987357128EA44B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754270   (40784) от 10.10.2024
+
+Линкольн в Иллинойсе / Abe Lincoln in Illinois (1940) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историческая хроника жизни будущего президента Авраама Линкольна в захолустном селении штата Иллинойс, куда он переехал в 21 год и где работал дровосеком, плотником, почтовым служащим.Производство: США / Max Gordon Plays & Pictures CorporationЖанр: драма, биография, историяРежиссер: Джон КромуэллАктеры: Рэймонд Мэсси, Джин Локхарт, Рут Гордон, Мэри Ховард, Майнор Уотсон, Алан Бакстер, Харви Стефенс, Ховард Да Сильва, Дороти Три, Олдрич БаукерПеревод: Авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A4A73CBCC7DCBB44EC0E1C21E413E4C717B92B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754404   (40785) от 10.10.2024
+
+The Smoothies - Echoes of Velvet: A Journey Through (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missing You All Night (2:35)
+02. Sunday Wine (2:36)
+03. Vintage Love (3:22)
+04. Golden Years (2:36)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95C630527CDEEB16BF8AC90A423491E333EC330E
 ```
 
 

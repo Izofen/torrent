@@ -1,697 +1,633 @@
-###  Публикация: 1764325   (102734) от 06.12.2024
+###  Публикация: 1728383   (54084) от 07.06.2024
 
-Торба-на-Круче - Части света (2014) [FLAC|Lossless|tracks] <Rock>
+С.Н. Тихонов | Основы электрорадиотехники (1959) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Научная и техническая литература
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Прометей
-02. Река
-03. Космос впереди
-04. Драконы(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:01
+Главное внимание в книге уделено изложению физической сущности явлений, происходящих в электрических схемах.Жанр: ЭлектроникаИздательство: Военное издательство министерства обороны Союза ССРФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D63B329997C912FC649BC89D7819923EB78276DF
+magnet:?xt=urn:btih:B4D1034A6320D8B953BB51E2904FFF38573F6324
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764366   (102735) от 06.12.2024
+###  Публикация: 1728516   (54085) от 07.06.2024
 
-Ты супер! (2024) WEBRip [H.264/720p] (сезон 8, выпуск 1-9 из 9)
+Rob Houston (editor) | History of the World Map by Map (2018) [PDF] [EN]
 
->>Документалистика и Телепередачи
->>Музыкальные шоу
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На НТВ — восьмой сезон международного детского вокального конкурса «Ты супер!». Каждую неделю на сцене проекта удивлять зрителей и жюри своими невероятными способностями будут талантливые ребята в возрасте от 7 до 18 лет, оставшиеся без попечения родителей и проживающие в детских домах, школах-интернатах, приемных и опекунских семьях. Всего в шоу принимают участие (   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкальный конкурсЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~02:20:00 выпуск
+More than 140 detailed maps tell the story of pivotal episodes in world history, from the first human migrations out of Africa to the space race.
+Custom regional and global maps present the history of the world in action, charting how events traced patterns on land and ocean-patterns of exploration, discovery, or conquest that created empires, colonies, or theaters (   Читать дальше...   )Жанр: КартографияЯзык: английскийИздательство: Dorling Kindersley Limited, SmithsonianФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AE4C587189ED631803AD9709234087BACD60618
+magnet:?xt=urn:btih:3E5435D9E32997276614DA58A6FAD1C54427BF08
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764196   (102736) от 06.12.2024
+###  Публикация: 1728531   (54086) от 07.06.2024
 
-Wynonna Judd - Wynonna (1992) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+Julie Lachance | Basic English. Second edition (2015) [PDF] [EN]
 
->>Other Styles
->>Folk (Lossless)
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What It Takes (4:18)
-02. She Is His Only Need (4:28)
-03. I Saw the Light (3:55)
-04. My Strongest Weakness (4:21)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:30
+Practice Makes Perfect Premium: Basic English is a bestselling workbook that provides learners of English with invaluable tools to ensure mastery of essential concepts. Three-page units cover each subject, which can be completed in a mere 10 to 15 minutes! Each lesson covers a single grammar concept, supported by many clear examples. Extensive exercises keep you (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-HillФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E77B7D48BF35A3EE3E73D780683A5512AC55484
+magnet:?xt=urn:btih:FD129A3EA0BF6DAB655C5DF78694327089A57F6D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764364   (102737) от 06.12.2024
+###  Публикация: 1728390   (54087) от 07.06.2024
 
-VA - Winter Vibes Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+UltraSearch Professional 4.2.0.925 [Multi/Ru]
 
->>Electronic
->>House
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rafo - Loud Enough (04:38)
-02. Ballester & M.SIID - Good to Me (03:37)
-03. Melih Aydogan - Between (06:28)
-04. Sharapov - Candy (Deepsan Remix) (04:44)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:55:13
+UltraSearch Professional находит файлы и папки на локальных дисках NTFS и представляет результаты поиска за считанные секунды. Программа не работает с индексом, хранящимся на жестком диске, но достигает высокой скорости благодаря работе напрямую с главной файловой таблицей (MFT) разделов NTFS. Может идентифицировать даже жесткие ссылки в NTFS. Просто введите имя (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03C462A41936E141AA257663E06C5F3521B0B265
+magnet:?xt=urn:btih:8A47C01E226CEE9FEA53402E53E7DFFDBD9C7922
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764328   (102738) от 06.12.2024
+###  Публикация: 1728537   (54088) от 07.06.2024
 
-Cemetery Skyline - Nordic Gothic (2024) [FLAC|Lossless|image + .cue] <Gothic Metal>
+Невинная ложь / Ложь во спасение / White Lies (2024) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Torn Away 03:57
-02. In Darkness 04:46
-03. Violent Storm 04:08
-04. Behind the Lie 05:02(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:55
+Действие происходит в богатом районе Бишопскорт в Кейптауне, где журналистка Иди Хэнсон попадает в неприглядную жизнь, скрывающуюся за живописной красотой города, и возвращается в бурное прошлое. После убийства ее брата, с которым она жила отдельно, в его роскошном доме, мир Иди все глубже погружается в хаос, когда дети-подростки ее брата становятся главными подозреваемыми (   Читать дальше...   )Производство: ЮАР / Fremantle, Quizzical PicturesЖанр: триллер, драма, криминалРежиссер: Джон Тренгов, Катрин Кук, Кристиан Ольваген и др.Актеры: Брендон Дэниелс, Кирошан Найду, Натали Дормер, Daniel Schultz, Дэниэл Дженкс, Gavin Gomes, Taryn Hess, Клэйтон Эвертсон, Иван Абрахамс, Zena Forster и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00069EC54B25067E196CEA3EBCA2F216B0B76B79
+magnet:?xt=urn:btih:40D7C50D417452CE6ECD36D0AFB217CF63163CFF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764230   (102739) от 06.12.2024
+###  Публикация: 1728370   (54089) от 07.06.2024
 
-VA - Armin van Buuren - A State Of Trance 1202 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Годзилла и Конг: Новая империя / Godzilla x Kong: The New Empire (2024) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit, Dolby Vision]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above & Beyond – Chasing Highs
-02. Simon Gregory – Finding Faith (nümind Remix)
-03. UUFO – Ignite (U In My Mind)
-04. AVIRA ft. Azyla – DisconnectedЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:10
+Два древних титана, Годзилла и Конг, сражаются в эпической битве, пока люди разгадывают их происхождение и связь с тайнами Острова черепа.Производство: США, Австралия / Legendary Pictures, Screen Queensland, Warner Bros.Жанр: фантастика, боевикРежиссер: Адам ВингардАктеры: Ребекка Холл, Брайан Тайри Генри, Дэн Стивенс, Кэйли Хоттл, Алекс Фернс, Чэнь Фала, Рэйчел Хаус, Рональд Смик, Чантелл Джемисон, Грег ХаттонПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Full, Forced), Украинские, АнглийскиеПродолжительность: 01:54:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED56F9E9336E505AFA2FCB20180CB23536BE2B7A
+magnet:?xt=urn:btih:5E8F2EB231493E57FD24522A50725A87D642EE71
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764057   (102740) от 05.12.2024
+###  Публикация: 1584439   (54090) от 07.06.2024
 
-Fabrizio Poggi - Healing Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shar White - I Want Jesus To Walk With Me (3:40)
-02. Pilgrim (4:04)
-03. Guy Davis - Song For Angelina (3:20)
-04. You Gotta Move Take 2 (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646F547C7C8D634927D9B587FB26A75A70D5BCC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764122   (102741) от 05.12.2024
-
-Jimmy Heath - Love And Understanding (1973) 1995, Xanadu Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One for Juan [7:06]
-02. In a Sentimental Mood [5:09]
-03. Heads Up! Feet Down! [7:12]
-04. Far Away Lands [5:04](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5F9DC2ACB1EC47B345A7B99785EB244E2FC798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764070   (102742) от 05.12.2024
-
-Rens Newland & Fuse Bluezz - Still Waiting for Better Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Days' Blues (3:57)
-02. Ric Toldon - Got the Blues in My Shoes (4:05)
-03. Peter Duke - Still Waiting for Better Days (3:44)
-04. The Bright Side of the Blues (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D826EDF88721E3D223244D4CECC049F22B53D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763345   (102743) от 05.12.2024
-
-Игорь Ашуров - 3 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сложная такая [00:03:52]
-02. Первая любовь [00:03:34]
-03. Обманула [00:03:42]
-04. Не отводи любимых глаз [00:04:30](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 3 CD, 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACA2BD2812AD994011AEB4B52CAC18D66337745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764078   (102744) от 05.12.2024
-
-Vinyl Paradise - Vinyl Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Howlin' Pain (3:11)
-02. Same Old Mistakes (3:39)
-03. Sold My Soul (2:37)
-04. Makin' It Worse (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14052A9C06D86094A800882A39F3B96A33096B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764170   (102745) от 05.12.2024
-
-Asterise - Tale of a Wandering Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
+Oasis & Projects (Liam Gallagher; Noel Gallagher's High Flying Birds; Beady Eye) - Studio Albums (28 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Rock, ...
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Intro (01:09)
- 02 - Twisted Ferryman (05:26)
- 03 - Into Fantasy (05:33)
- 04 - Raven (06:27)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:54:07
+Oasis — британская рок-группа. Одна из самых влиятельных и коммерчески успешных групп 90-х. Группа входит в «большую четвёрку» брит-попа вместе с Blur, Suede и Pulp.
+Группа основана в 1991 году в Манчестере братьями Ноэлом и Лиамом Галлахерами. Ноэл — гитарист, вокалист, автор песен, продюсер и идеолог группы. Его младший брат Лиам — основной вокалист и автор нескольких (   Читать дальше...   )1994 - Definitely Maybe
+1995 - (What's The Story) Morning Glory
+1997 - Be Here Now
+1998 - Masterplan (Compilation album)Жанр: Rock, BritpopПродолжительность: 27:35:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF5C610B36321BE5FD926C510C0E32E86A1F1D37
+magnet:?xt=urn:btih:2CA0CDB3EAFB95DAB16F84DC6E0006B623C1BEEF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764053   (102746) от 05.12.2024
+###  Публикация: 1728463   (54091) от 07.06.2024
 
-BBR - Boogie Blues and Rock n Roll 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock & Roll>
+Охота на киллера / Cult Killer (2024) BDRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rubberneckin (2:54)
-02. Every Little Things (3:15)
-03. You Never Can Tell (3:58)
-04. Bird on a Wire (4:22)(   Читать дальше...   )Жанр: Blues, Rock & RollПродолжительность: 00:33:57
+Когда убивают известного частного детектива Майка Таллини, за дело берется его протеже Кэсси Холт. В свое время он стал единственным человеком, который отнесся к Кэсси с уважением и заботой, помог ей завязать с мрачным прошлым. Поэтому после его жестокого убийства Кэсси решительно настроена найти виновного, лишившего ее самого дорогого. Во время расследования она вынуждена (   Читать дальше...   )Производство: США / BondIt, Buffalo 8 Productions, Highland Myst Entertainment Inc.Жанр: триллер, криминал, детективРежиссер: Джон КейесАктеры: Антонио Бандерас, Элис Ив, Шелли Хенниг, Олуэн Фуэре, Ким ДеЛонги, Пол Рейд, Ник Даннинг, Мэттью Томпкинс, Софи Кэннелл, Джон УоллманПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:44:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BA384A429241F080E5CF9469D613CCA1E3753A1
+magnet:?xt=urn:btih:A0775E44FBB7E22FD51E50F815CDBCCAAA5A78BA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764132   (102747) от 05.12.2024
+###  Публикация: 362823   (54092) от 07.06.2024
 
-Lizzie Thomas - Lizzie Thomas - This Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary Jazz>
+Народ | В гостях у сказки (Выпуск № 4). Гуси-лебеди (2005) [MP3, Вениамин Смехов]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. This Christmas (4:10)
-02. Christmas Time Is Here (3:38)
-03. Wonderful Christmastime (4:03)
-04. It's Magic (5:16)(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:23:30
+Серия/Цикл: В гостях у сказки, Детская литература (ИД СОЮЗ).
+Для каждого из нас сказка – это в первую очередь воспоминания, связанные с детством, с чем-то глубоко личным: с голосом мамы или бабушки, с виниловыми пластинками с записями любимых сказок, с первыми эмоциями и переживаниями: радостью, горем, гневом. Наверное, только дети умеют не просто слушать сказки, (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Издательский дом «Союз»Продолжительность: 01:06:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:061B3C34D38CEC32003C6D61B6A965A3A6C98EE8
+magnet:?xt=urn:btih:886BFF250CFF62EDDBFC8EDDC33CE2976A6BF876
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764081   (102748) от 05.12.2024
+###  Публикация: 1728584   (54093) от 07.06.2024
 
-Smooth Jazz All Stars - Smooth Jazz Renditions of Dua Lipa (Instrumental) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Годзилла и Конг: Новая империя / Godzilla x Kong: The New Empire (2024) BDRip [H.265]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Training Season (Instrumental) (3:08)
-02. Houdini (Instrumental) (2:26)
-03. One Kiss (Instrumental) (3:29)
-04. New Rules (Instrumental) (3:15)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:54
+Два древних титана, Годзилла и Конг, сражаются в эпической битве, пока люди разгадывают их происхождение и связь с тайнами Острова черепа.Производство: США, Австралия / Legendary Pictures, Screen Queensland, Warner Bros.Жанр: фантастика, боевикРежиссер: Адам ВингардАктеры: Ребекка Холл, Брайан Тайри Генри, Дэн Стивенс, Кэйли Хоттл, Алекс Фернс, Чэнь Фала, Рэйчел Хаус, Рональд Смик, Чантелл Джемисон, Грег ХаттонПеревод: Дублированный (Bravo Records Georgia)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Full, Forced), Украинские, АнглийскиеПродолжительность: 01:54:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:976109725706834F3253E198A3BD86EFCE7E3CF6
+magnet:?xt=urn:btih:7DC68F51AFE8643855DE0B530663FB97D633D4D9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764065   (102749) от 05.12.2024
+###  Публикация: 1728430   (54094) от 07.06.2024
 
-Nick Evans Mowery - From the Top Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Internet Download Manager 6.42 Build 11 RePack by elchupacabra [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Give Peace a Try (2:51)
-02. Headed for the Break (3:22)
-03. From the Top Down (3:45)
-04. The Night I Met John Prine (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:15
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6EB0A5C4B6F63BCE33AA3E32088F964605F2E75
+magnet:?xt=urn:btih:692AEE64FCC340224B3BB03BBE207323F509E28A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764075   (102750) от 05.12.2024
+###  Публикация: 363273   (54095) от 07.06.2024
 
-The Reliables - The Reliables (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Вениамин Смехов | Портреты с натуры. Когда я был Атосом. Юрий Любимов (2005) [MP3, Вениамин Смехов]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Same Old Thing (3:51)
-02. Checking in at Midnight (3:25)
-03. Joy and Pain (3:26)
-04. My Pride, Your Shame (4:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:46
+Серия/Цикл: Портреты с натуры.
+В данный аудиосборник вошли два произведения Вениамина Смехова: «Когда я был Атосом» и «Юрий Любимов».Жанр: Русская литература,  воспоминания, мемуарыИздательство: Издательский дом «Союз»Продолжительность: 01:19:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42DCD47FC63C7137F092E5138097FDFC49C0044C
+magnet:?xt=urn:btih:D8AB71533B957FE39C0194D6934C51D01582EF86
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764073   (102751) от 05.12.2024
+###  Публикация: 362829   (54096) от 07.06.2024
 
-The Brisbane Project - Ode To The Alley (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Народ | В гостях у сказки (Выпуск № 5). Царевна-лягушка (2005) [MP3, Вениамин Смехов]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lude Mood (2:34)
-02. Blow A Fuse (4:28)
-03. S.O.S. (3:39)
-04. Ode To The Alley (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:18
+Серия/Цикл: В гостях у сказки, Детская литература (ИД СОЮЗ).
+В сказках, в которых живут наши Бабы-Яги, Кощеи Бессмертные, Иванушки и Алёнушки, существуют свои законы, которым должны подчиняться все обитатели. Это светлый и гармоничный мир, где, конечно, есть несправедливость, коварство и обман, но в конечном итоге на каждого Змея Горыныча найдется свой Богатырь, (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Издательский дом «Союз»Продолжительность: 01:10:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7934BAD4E612EF48F1B3DFA9E5B3402D7762592
+magnet:?xt=urn:btih:56D4D902D4BC9AA23C2CFC80B114AF246A6BEFF6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764052   (102752) от 05.12.2024
+###  Публикация: 1674823   (54097) от 07.06.2024
 
-Anna Black - Jammin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Очень синяя борода (2023) WEBRip [H.264] (сезон 1, серии 1-3 из 3)
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fire It Up (4:02)
-02. Blues Man (6:55)
-03. Drinkin' Daddy (6:17)
-04. Bird (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:53
+Виктора Ветрова, преуспевающего бизнесмена, загадочный шантажист обвиняет в убийстве жены. Его жизнь превращается в ад: бизнес рушится, друзья предают, а следственные органы отчаянно роют землю, пытаясь найти хоть какие-нибудь улики и отправить Ветрова за решетку. Единственный человек, вставший на сторону Виктора, — бывшая возлюбленная, следователь СК Инга Альмэ. (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ», Кинокомпания «ВОСТОК»Жанр: Триллер, детектив, криминалРежиссер: Павел МальковАктеры: Елена Север, Дмитрий Ульянов, Андрей Барило, Виталий Кудрявцев, Маруся Климова, Артём Глухов, Юрий Сазонов, Сергей Чудаков, Иван Забелин, Ольга АнохинаСубтитры: РусскиеПродолжительность: ~00:51:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8161CEE4BAA906432056DE4AE7010808A3701B86
+magnet:?xt=urn:btih:B2A19D19E49407B795D1B89BB1CAC0F679639826
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764162   (102753) от 05.12.2024
+###  Публикация: 1716969   (54098) от 07.06.2024
 
-Athena XIX - Everflow Pt 1: Frames of Humanity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
+Blue Archive the Animation / Синий архив [2024, TV, 7 из 12] WEBRip 720p raw
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frames of Humanity (04:06)
- 02. Legacy of the World (03:55)
- 03. The Day We Obscured the Sun (04:20)
- 04. The Seed (04:41)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:54:09
+Действие происходит в городе-академии Кивотос, объединяющем множество различных школ. Город разделен на независимые районы, где высшим органом власти является Главный Студенческий Совет во главе с президентом. Однако после загадочного исчезновения президента Совет потерял способность управлять городом. Жизнь Кивотоса парализовали беспорядки. Чтобы избежать катастрофы, (   Читать дальше...   )Жанр: приключения, боевик, экшн, повседневность.Режиссер: Ямагиси ДайгоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DDF309E5FC518597403BA22195DCCEA8424B2F9
+magnet:?xt=urn:btih:28F8D174C45FA6318B877F54FFBA3E7A2C01B338
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764063   (102754) от 05.12.2024
+###  Публикация: 1728514   (54099) от 07.06.2024
 
-Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Павел Шуравин | Ключевые навыки. Как научиться чему угодно, сменить профессию и начать новую жизнь (2022) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blues All over You (2:45)
-02. Dance the Blues Away (2:31)
-03. I Am the Blues (3:38)
-04. Love Story (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
+Самообразование - сложная, но чрезвычайно увлекательная деятельность. Она требует от человека большой отдачи и самодисциплины, давая взамен современные знания, актуальные навыки и уверенность в завтрашнем дне.
+Самообучение дается не всем: кому-то не хватает усидчивости, кому-то - мотивации, а кто-то регулярно попадает в ловушку перфекционизма. В этой книге рассматриваются (   Читать дальше...   )Жанр: Самообразование, ПсихологияИздательство: ПитерФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:287C33BDAD2538EE93DFBF899EA453294D6D0940
+magnet:?xt=urn:btih:08183C2706280E86E80FCC0678D891C6E1DC8492
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764072   (102755) от 05.12.2024
+###  Публикация: 1728456   (54100) от 07.06.2024
 
-Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Hotel Business Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Win Игры
+>>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soul in the City (4:01)
-02. Moonlight in My Eyes (2:58)
-03. Twilight Groove (2:02)
-04. Midnight Reverie (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:15
+Hotel Business Simulator ставит вас на место владельца отеля, поручая построить свою гостиничную империю с нуля. Однако это не только обслуживание номеров и полотенца для бассейна. Вам придется принимать сложные решения, например, сколько брать за номер или стоит ли тратиться на новую люстру в холле. Довольство гостей - это ключевой момент, но не менее важно и получение (   Читать дальше...   )Тип издания: RepackРазработчик: GeekonЖанр: Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:972C4E00295FE7FE7EE25C5395916DE8D7E10626
+magnet:?xt=urn:btih:2E8E565805ECD532070B469217CD4C7DE553C548
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764062   (102756) от 05.12.2024
+###  Публикация: 1655261   (54101) от 07.06.2024
 
-Innes Sibun - The Preacher (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Дама с камелиями / Camille (1936) BDRemux [H.264/1080p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Incantation (4:38)
-02. The Preacher (5:44)
-03. I Found Your Letter (6:43)
-04. Time Is Tight (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:39
+Веселая, циничная, любящая шампанское и драгоценности, мужчин и развлечения, Маргарита Готье знакомится в театре с молодым дворянином Арманом Дювалем и известным светским львом бароном де Варвилем.
+Арман красив, беден и идеализирует Маргариту, барон же знает ей цену, немолод, некрасив, но очень богат и готов оплачивать все ее прихоти в обмен на радости совместной (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрамаРежиссер: Джордж КьюкорАктеры: Грета Гарбо, Роберт Тейлор, Лайонел Бэрримор, Элизабет Аллан, Джесси Ральф, Генри Дэниелл, Ленор Ульрик, Лаура Хоуп Крюс, Рекс О’Мэлли, Мариска ОлдричПеревод: двуголосый профессиональный, многоголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH), французские, немецкие, португальские, испанскиеПродолжительность: 01:49:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7ADF260A7BD9DC270F3B4396F517D3DFBA04ECEC
+magnet:?xt=urn:btih:6DB2CF303AA7614559A7EE810E7390BDBA558BAA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764054   (102757) от 05.12.2024
+###  Публикация: 1728246   (54102) от 07.06.2024
 
-Chocolate George - House of Make Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Глубоководный горизонт / Deepwater Horizon (2016) UHD BDRemux H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [Hybrid]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ain't No Sign (3:22)
-02. Detroit Crank (3:14)
-03. Bloomer Pudding (3:20)
-04. House of Make Believe (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:41
+Отправляясь на очередную вахту и прощаясь с семьями, они не подозревали, что могут не вернуться. История о страшной аварии на нефтяной платформе «Глубоководный горизонт», которая произошла в 2010 году в Мексиканском заливе. Хроника беспримерного мужества и отваги перед лицом одной из самых страшных техногенных катастроф в мировой истории.Производство: США, Гонконг / Summit Entertainment, Participant, TIK FilmsЖанр: боевик, триллер, драма, историяРежиссер: Питер БергАктеры: Марк Уолберг, Курт Рассел, Джон Малкович, Джина Родригес, Дилан О’Брайен, Кейт Хадсон, Итан Сапли, Генри Фрост, Джереми Сэнд, Дуглас М. ГриффинПеревод: Дублированный, Авторский, одноголосый закадровыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Full), АнглийскиеПродолжительность: 01:47:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CF32B08FADBB669939382A6E9FE3D3D50788152
+magnet:?xt=urn:btih:11967A59CDA55609A5A996F135E5F60C4E4B4D49
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764066   (102758) от 05.12.2024
+###  Публикация: 1681883   (54103) от 07.06.2024
 
-Olivier Mas - One Man Swamp Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Город Эйбилен / Abilene Town (1946) BDRemux [H.264/1080p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Fun (2:59)
-02. Six Strings Down (3:14)
-03. I'm a Man (3:17)
-04. Hey, Hey (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:13
+Канзас, первые годы после окончания Гражданской войны в США. Поселенцы переселяются в окрестности города Эйбилен. Вскоре возникают конфликты между ними и скотоводами, которые уже живут там много лет.Производство: США / Guild Productions Inc., Jules Levy presentsЖанр: мелодрама, вестернРежиссер: Эдвин Л. МаринАктеры: Рэндольф Скотт, Энн Дворак, Эдгар Бьюкенен, Ронда Флеминг, Ллойд Бриджес, Хелен Бойс, Ховард Фриман, Ричард Хейл, Джек Ламберт, Дик КертисПеревод: двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английские (Full, SDH) + pgsПродолжительность: 01:30:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AD0A66A48EC7B806B2D4D3AC543BB0DC7BCF3D7
+magnet:?xt=urn:btih:8F26E785A827E8E5621E24C8D8F02A397E99454E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764064   (102759) от 05.12.2024
+###  Публикация: 1728157   (54104) от 07.06.2024
 
-Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+В России испытали напечатанные на 3D-принтере космические двигатели малой тяги
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>След.
+>>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Old Enough to Know (3:57)
-02. Taboo Love (4:45)
-03. You Hurt Me (3:35)
-04. Crazy over You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
+Российские специалисты провели первые испытания двигателей малой тяги, предназначенных для космических аппаратов. Тесты прошли успешно и, как подчеркнул ректор Сибирского государственного университета науки и технологий имени академика М. Ф. Решетнева Эдхам Акбулатов, подтвердили, что создание подобных изделий при помощи аддитивных технологий действительно возможно.Непосредственным (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12BF8EC7981603EDB786F053E7D7EF704E36E6BB
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728492   (54105) от 07.06.2024
+
+К.Х. Кекчеев | Психофизиология маскировки и разведки (1942) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54105.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге обобщаются данные по всем видам чувствительности и даются рекомендации для управления чувствительностью - снижения порогов восприятия для разведчиков, "слухачей", и, наоборот, повышения порогов чувствительности наблюдателей при задачах маскировки. Предлагаются способы борьбы с различными негативными явлениями, связанными с процессами восприятия (   Читать дальше...   )Жанр: учебное пособиеИздательство: Советская наукаФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32B12EA7A74ACE3407204C2AF885B4ECDDFF55D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728414   (54106) от 07.06.2024
+
+Годзилла и Конг: Новая империя / Godzilla x Kong: The New Empire (2024) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два древних титана, Годзилла и Конг, сражаются в эпической битве, пока люди разгадывают их происхождение и связь с тайнами Острова черепа.Производство: США, Австралия / Legendary Pictures, Screen Queensland, Warner Bros.Жанр: фантастика, боевикРежиссер: Адам ВингардАктеры: Ребекка Холл, Брайан Тайри Генри, Дэн Стивенс, Кэйли Хоттл, Алекс Фернс, Чэнь Фала, Рэйчел Хаус, Рональд Смик, Чантелл Джемисон, Грег ХаттонПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Full, Forced), Украинские, АнглийскиеПродолжительность: 01:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980FB16206CBCC307E237AA4D8ED3E458CAC11B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728535   (54107) от 07.06.2024
+
+Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Pine Hearts разворачивается в залитых солнцем объятиях караван-парка, приглашая игроков вступить в поход в сапогах Тайка, персонажа, возвращающегося в пейзаж, овеянный воспоминаниями детства. Эта повествовательно-приключенческая игра навевает мягкие чары, в центре внимания которой - исследования, открытия и спокойное созерцание ушедших дней. Тропинки проложены (   Читать дальше...   )Тип издания: RepackРазработчик: Hyper Luminal Games LtdЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99CFB79C72B4BBFDCDE8FD99122EAC0AC99EF6FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728547   (54108) от 07.06.2024
+
+Windows Manager 2.0.1 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексное решение для оптимизации, настройки, ремонта и очистки Windows 10/11.
+Windows Manager - это универсальная утилита для Microsoft Windows 10/11, включающая в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и ремонта Windows 10/11, помогающая ускорить работу системы, устранить системные ошибки, повысить стабильность и безопасность, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0724310A0A72EF87CA82EB0927623A2C742C0411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242094   (54109) от 07.06.2024
+
+X3: Litcube's Universe (2008-2018) [Ru] (3.3/1.7.2) Repack/Mod alexalsp
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Litcube's Universe представляет собой глобальную модификацию X3: Albion Prelude. Это детище, которому автор посвятил 7 лет разработки. Модификации подверглись очень многие аспекты игры – начиная от полного переписывания скриптов и заканчивая игровыми моделями. Многое из того, что было сделано для LU, берет свое начало из совместной работы с командой XTL (TrixX, Jack08).Тип издания: Repack/ModЖанр: Simulator (Space), 3D, Privateer, TraderЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD71DA69E5D16B6C6C7631EA31172E89EA05030
 ```
 
 

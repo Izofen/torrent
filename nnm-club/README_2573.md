@@ -1,666 +1,665 @@
-###  Публикация: 1702291   (115952) от 24.02.2024
+###  Публикация: 1792517   (67649) от 19.04.2025
 
-Затерянные в Рио Браво / Taken from Rio Bravo (2024) WEBRip [H.264]
+VA - Nothing But... Trancetopia, Vol. 25 (2025) [MP3|320 Kbps] <Trance>
 
->>След.
->>Зарубежные Фильмы (SD)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1874 год, Восточный Техас. Двое друзей преследуют группу садистов-торговцев людьми, которые похитили пять женщин. Вместе с индейским разведчиком они должны как можно быстрее найти и освободить женщин, пока торговцы не продали их в качестве секс-рабынь на мексиканской границе.Производство: США / Hollywood StormЖанр: боевик, вестернРежиссер: Джо КорнетАктеры: Александр Невский, Джо Корнет, Синтия Ротрок, Маттиас Хьюз, Дон Уилсон, Ирина Антоненко, Джон Мак, Джеймс Чок, Мария ПэрисПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:06
+01. Ron with Leeds - Even (Original Mix) [3:46]
+02. FAWZY & Andy Lizard - Eventide (Original Mix) [3:27]
+03. Mike Bound - One Hundred Light Years Ago (Radio Edit) [2:39]
+04. Novel & DJ Spaceman & Dj X-Tromic - Sigmaland Q1 (Extended Mix) [7:33](   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E828084199EDFB2CBC3095323436ED98ACB511BD
+magnet:?xt=urn:btih:E344FC10E6B53D663BDEC1E05A66F57E0938259C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702281   (115953) от 24.02.2024
+###  Публикация: 1792418   (67650) от 19.04.2025
 
-ZBrush 2024.0.2 [Multi]
+Растровый клипарт - STCrafts - Creative Fabrica - Turquoise Teal Pastel Flowers Mug Wrap Sublimation Design [PNG]
 
->>Архив торрентов
->>Архив Программ
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ZBrush — программа для 3D моделирования, созданная компанией Pixologic. Отличительной особенностью данного ПО является имитация процесса «лепки» трёхмерной скульптуры, усиленного движком трёхмерного рендеринга в реальном времени, что существенно упрощает процедуру создания требуемого трёхмерного объекта. Каждая точка (называемая пиксель) содержит информацию не только (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и пр.
+Изображения с бирюзовыми цветами для сублимационного дизайна.Формат: PNGРазрешение файлов: 2925 × 1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DF52940AF6690679C1BDEC7BAD2EB15EFDEF504
+magnet:?xt=urn:btih:B3A0EDD24B7554B9580A3985FBAB51395AA5DD57
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702234   (115954) от 24.02.2024
+###  Публикация: 1792577   (67651) от 19.04.2025
 
-Карающая длань / Red Right Hand (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэш живет скромной и мирной жизнью, помогает мужу покойной сестры воспитывать племянницу Саванну и управляться с фермой в небольшом городишке в Аппалачах. Но когда Кошка, глава местной банды и садистка, начинает угрожать его семье, Кэш понимает, что готов на все ради их защиты. И чем дольше длится противостояние, затягивая Кэша в водоворот насилия, тем сильнее стирается (   Читать дальше...   )Производство: США / Asbury Park Productions, Studio 507, Sweet Tomato FilmsЖанр: боевик, триллерРежиссер: Эшом Нелмс, Иэн НелмсАктеры: Орландо Блум, Энди Макдауэлл, Гаррет Диллахант, Брайан Джерати, Джеймс Лэфферти, Скотт Хейз, Джереми Рэчфорд, Александра Парк, Николас Логан, МоПеревод: Дублированный (Мосфильм-Мастер (OKKO))Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB85042797FA310FB825B8146837BE009C479EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702431   (115955) от 24.02.2024
-
-Иллюзия превосходства / Т.И.М. / T.I.M. (2023) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аби — гениальная разработчица андроидов — создает революционную модель, в которой искусственный интеллект синхронизирован со всеми гаджетами человека и способен мгновенно просчитать все его желания. Она забирает экспериментальный образец в свой дом. Неожиданно андроид узнает, что муж Аби изменяет ей и решает сам стать для нее идеальным партнером, ведь он абсолютно (   Читать дальше...   )Производство: Великобритания / Arthrofilm, Bait Studio, Capture, Quickfire Films, Shout Loud Creative, Shoutloud Creative, Stigma Films, Trigger FilmsЖанр: фантастика триллерРежиссер: Спенсер БраунАктеры: Джорджина Кэмпбелл, Эймон Фэррен, Марк Роули, Амара Каран, Натаниель Паркер, Том Белл, Элиза Глок, Эдмунд Кингсли, Адиль Акрам, Дженис АхернПеревод: Дублированный (Мосфильм-Мастер), Профессиональный двухголосый (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (SDH)Продолжительность: 01:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8905B28ECE052C13BF5459666B8E8FF685B3BC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688554   (115956) от 24.02.2024
-
-Цифровое ТВ v3.9.1 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, сериалы, мультфильмы, новости, музыка и спорт - это прямой эфир самых популярных общероссийских телеканалов в отличном качестве специально для Вас! С приложением Цифровое ТВ популярные программы доступны круглосуточно и абсолютно бесплатно. Теперь Вы не пропустите любимые передачи или прямой эфир матчей, стоя в пробке, отдыхая на даче или ожидая рейс в аэропорту. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.02.2024Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE86D23AF7F33243AF0FF5BE81917FFE3D5EA737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702238   (115957) от 24.02.2024
-
-Sons of the Forest (2023) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sons of The Forest - многопользовательский хоррор от первого лица с элементами выживания. Игра выступает сиквелом нашумевшего хита The Forest. Как и в предыдущей части, вам необходимо исследовать таинственный лес, который населяют кровожадные монстры. Выживайте, прячась от врагов и внимательно изучайте окрестные территории. Вооружитесь мощным оружием, чтобы противостоять (   Читать дальше...   )Тип издания: RepackРазработчик: Endnight Games LtdЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1AB88DE4386A6CFED1B940D8DE1FE9A41BB4C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702395   (115958) от 24.02.2024
-
-CrystalDiskMark 8.0.5 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115958.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalDiskMark - утилита для сравнительного анализа (тестирования) быстродействия жестких дисков и других накопителей, позволяет измерить скорость различных операций, а именно копирования и записи блоков, заданных пользователем, на определенных разделах физических накопителей. После непродолжительного тестирования будет выдана средняя скорость чтения и записи на (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F2A99A9B98AE0C42B328B43BAE0F3931B359EBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702180   (115959) от 24.02.2024
-
-Карающая длань / Red Right Hand (2024) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэш живет скромной и мирной жизнью, помогает мужу покойной сестры воспитывать племянницу Саванну и управляться с фермой в небольшом городишке в Аппалачах. Но когда Кошка, глава местной банды и садистка, начинает угрожать его семье, Кэш понимает, что готов на все ради их защиты. И чем дольше длится противостояние, затягивая Кэша в водоворот насилия, тем сильнее стирается (   Читать дальше...   )Производство: США / Asbury Park Productions, Studio 507, Sweet Tomato FilmsЖанр: боевик, триллерРежиссер: Эшом Нелмс, Иэн НелмсАктеры: Орландо Блум, Энди Макдауэлл, Гаррет Диллахант, Брайан Джерати, Джеймс Лэфферти, Скотт Хейз, Джереми Рэчфорд, Александра Парк, Николас Логан, МоПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C08D0CBFA567235D8AAE50D79D167850C1353F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701960   (115960) от 23.02.2024
-
-Konrad Zolnierek (Zołnierek) - Jazz-Rock Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fingerprints (5:53)
-02. Scafender (7:13)
-03. Finish (8:44)
-04. Wrinkle (7:11)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27B6F3EF8B088089D98350B68939CB8915518A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701957   (115961) от 23.02.2024
-
-Austrian Death Machine - Quad Brutal (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Pain, No Gain 04:06
-02. Conquer 03:08
-03. Hey Bro Can You Spot Me? 03:49
-04. Judgement Day 04:06(   Читать дальше...   )Жанр: Modern Groove MetalПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C918551E7726BF117621ED5E4DC40553976502EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702040   (115962) от 23.02.2024
-
-Rifforia - Axeorcism (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Game That You Don't Understand (3:34)
-02. Sea of Pain (3:30)
-03. Well of Life (4:29)
-04. Built to Destroy (3:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390EF00F7AC7BC2D39DB59C4422C50543D567027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701836   (115963) от 23.02.2024
-
-Headhunter - Studio Albums (4 releases) (1990-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Headhunter — немецкая трэш-метал группа, образованная в 1990 году.
-Группа была создана Марселом Ширмером, после его ухода из Destruction в 1989 году.1990 - Parody Of Life
-1992 - A Bizarre Gardening Accident
-1994 - Rebirth
-2008 - Parasite Of SocietyЖанр: Power/Thrash MetalПродолжительность: 03:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2364FAFC97CE75CAEDDFFB54781869A17344C562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701924   (115964) от 23.02.2024
-
-Donald Byrd & Gigi Gryce - The Complete Jazz Lab Sessions (1955 - 1957) 4CD, 2013, Jazz Dynamics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Splittin' (aka Ray's Way) (Live) [8:31]
-02. Batland (Live) [7:22]
-03. Love for Sale (Live) [7:37]
-04. Kamman's A'Comin' [4:12](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3ABB7D449E768CAF27A064EA9047E6E92FDFC95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702050   (115965) от 23.02.2024
-
-Lionheart - The Grace of a Dragonfly (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Declaration (5:02)
-02. Flight 19 (4:40)
-03. V Is For Victory (4:33)
-04. This Is A Woman's War (4:41)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC6FE0E00B9C318F61BD2CBD9F5671EC1326867
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701949   (115966) от 23.02.2024
-
-Пятеро на одного (23.02.2024) WEBRip [H.264/720p-LQ]
+Своя игра (19.04.2025) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Ольга Дубровская, Владимир Автайкин, Григорий ЕрдомаевЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74C149D244D3D0B0B80F9AB0B327CFA4020692C3
+magnet:?xt=urn:btih:4BB4EAC370D35E0ECAE8A7AEC4E71BB2DA8FB675
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702008   (115967) от 23.02.2024
+###  Публикация: 1792552   (67652) от 19.04.2025
 
-Деревянный орел (2024) [MP3, Совушка Сонюшка]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер и столяр решили порадовать царя своими умелыми изделиями из золота, чтобы определить, кто из них лучше владеет мастерством.Жанр: СказкаИздательство: Аудиокнига своими рукамиПродолжительность: 00:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10E931F89953F67B4BA26340C58BBAC021E95AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701973   (115968) от 23.02.2024
-
-The Erickson Syndicate - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+Pepe Bueno & Os Estranhos - Confissões e Outros Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dancer Within (5:22)
-02. Living, Breathing, Stirring, Searching (5:53)
-03. Now Is The Time (6:26)
-04. Of Miles (6:24)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:56:05
+01. Diablues (3:20)
+02. Denny Caldeira - Atrás do Pôr do Sol (3:12)
+03. O Blues e a Prancha (4:06)
+04. Real Valor (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8EE9890E19E21BBAA4D5583F71057FC7C34F9A2
+magnet:?xt=urn:btih:E6B4EC49055A9B2452094F3CAC766272A7EBAA58
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702077   (115969) от 23.02.2024
+###  Публикация: 1792559   (67653) от 19.04.2025
 
-Сергей Козлов, Доктор Съюз | Сказки про Африку (1981) [MP3, Олег Анофриев, Георгий Вицин и др.]
+Tracy Weinberg & Friends - Another Saturday Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: «Мелодия – детям».
-Много сказок живет на свете – старых и молодых. Эти «Сказки про Африку» – молодые, потому что их написали наши современники - Сергей Козлов и Доктор Съюз. Если посмотреть на карту – увидишь среди синего океана желто-оранжевый материк, похожий на грушу. Это – Африка, и там никогда не бывает зимы. В Африке есть и желтые песчаные пустыни, (   Читать дальше...   )Жанр: Литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:38:48
+01. Side Effects of Love (3:38)
+02. Satan's Salon (3:21)
+03. Scarlet Woman (4:29)
+04. Baby, Oh Baby (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:888C8C939A3EFE5F876ECDE3178B476EB8DE95BB
+magnet:?xt=urn:btih:54E267B896B5DCB591DDEC1904E7E5952A583BFA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701719   (115970) от 23.02.2024
+###  Публикация: 1792554   (67654) от 19.04.2025
 
-Cynic - Focus (1993) Reissue, 2013, Roadrunner Records [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+Sir Dinha Blues Band - VISO (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Águas Lamacentas (4:00)
+02. Wanna Make it Right (3:35)
+03. Rita (4:00)
+04. Betinho de Alvalade (Não Me Traias) (2:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDFE748679067013B7FDE76AA2FFE8409F28A91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792600   (67655) от 19.04.2025
+
+Confidence Man - 5AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Veil Of Maya (05:20)
-02. Celestial Voyage (03:37)
-03. Eagle Nature (03:27)
-04. Sentiment (04:27)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:35:55
+01. Who Knows What You’ll Find? (Spriitzz Remix) [00:04:16]
+02. I Can’t Lose You (Airwolf Paradise Remix) [00:03:10]
+03. Control (Paige Tomlinson Remix) [00:05:31]
+04. So What (Prozak Remix) [00:04:01](   Читать дальше...   )Жанр: DanceПродолжительность: 01:10:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FFF36659263DD0B4D0434187BE7721CB0DE67DF
+magnet:?xt=urn:btih:8764281EB7BCD45DEA34AFCD08A30D969FE308AE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701757   (115971) от 23.02.2024
+###  Публикация: 1792528   (67656) от 19.04.2025
 
-Cynic - Traced in Air (2008) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+Пасхальный выпуск: путешествие по самым главным святыням России | «Поедем, поедим!» (19.04.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» готовятся к Светлому празднику Пасхи. Поэтому ведущий отправился в путешествие по самым главным святыням России: прошел подземные лабиринты и поднялся в горы, стал звонарем-паломником, попробовал кофейный сыр и пельмени с кальмарами и приготовил рыбную кулебяку с тремя видами блюд.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D329B5315AA24B403CCAAE3797E9DCA2CF9366
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792450   (67657) от 19.04.2025
+
+Пятеро на одного (19.04.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE6507C077FE6B46962E393728517D157C917DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792392   (67658) от 19.04.2025
+
+The Quill - In Triumph (2006) Remastered and Expanded Edition, 2025, Metalville Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep the Circle Whole [00:03:34]
+02. Yeah [00:03:38]
+03. Slave Master [00:05:02]
+04. Broken Man [00:03:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1E6272288631BD2B9927E7DD18B26F40DC9C98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792560   (67659) от 19.04.2025
+
+Buddy Rich - Trios (1976, 1977) 2023, Lightyear [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Friends [7:32]
+02. There Will Never Be Another You [6:14]
+03. Like Someone in Love [9:11]
+04. Groovin' High [4:20](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, BopПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B40E473A5413B1D86F4ECFAE7D00DDA15E859C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792371   (67660) от 19.04.2025
+
+Beirut - A Study of Losses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Folk, Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nunc Fluens
-02. The Space For This
-03. Evolutionary Sleeper
-04. Integral Birth(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:34:01
+01 – Disappearances and Losses
+02 – Forest Encyclopedia
+03 – Oceanus Procellarum
+04 – Villa Sacchetti(   Читать дальше...   )Жанр: Indie Folk, Alternative RockПродолжительность: 00:57:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55BF23EB3021C8679F65DB84E96ABDD24B9F1548
+magnet:?xt=urn:btih:C566F7A30D52936C8D0BE0E94B61CB4896F7BF3F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701929   (115972) от 23.02.2024
+###  Публикация: 1792576   (67661) от 19.04.2025
 
-The Marian McPartland Trio - Live At Yoshi's Nitespot (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+Storm Orchestra - Get Better (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bright Soul [00:02:59]
+02. Drummer [00:03:32]
+03. Crush The Mirrors (feat. Chunk! No, Captain Chunk!) [00:03:56]
+04. Superplayer [00:02:48](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF51C365EDBF8D32DDD10A227E2B03E09AFF2FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792491   (67662) от 19.04.2025
+
+Cold Iron - Return To Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Return To Darkness (03:30)
+ 02 - Shipwreck In Hell (04:41)
+ 03 - One Sided (03:53)
+ 04 - Rise (04:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3D9B06EB26988EF3352EBCA96CA0A3E6EB0D1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792558   (67663) от 19.04.2025
+
+Buddy Rich - Birdland (2015) Lightyear [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Like Someone in Love [5:01]
-02. In a Sentimental Mood [5:53]
-03. Pretty Women [4:28]
-04. Chasing Shadows [5:17](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:11:24
+01. Mexicali Nose [3:16]
+02. Birdland [7:07]
+03. Milestones [5:41]
+04. Just Friends [7:37](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:58:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABA0BCBF554F08B1A5B7677EA61D41F7DD95CCD3
+magnet:?xt=urn:btih:ED1992EA115AE95E1965700AAA417881A6494629
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701855   (115973) от 23.02.2024
+###  Публикация: 1792602   (67664) от 19.04.2025
 
-Avulsion - Dimensions of Darkness (1997) [FLAC|Lossless|image + .cue] <Death Metal>
+Трилби / Trilby (1915) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм является экранизацией очень популярного некогда романа. Очень драматическая и немного мистическая история. Во Франции красивая молодая модель по имени Трилби встречает трех представителей богемы (Малыша Билли, Лэрда и Таффи), и все они становятся друзьями. Трилби и Билли влюбляются, но их счастью мешает злой гипнотизер по имени Свенгали , который становится (   Читать дальше...   )Производство: США / Equitable Motion Pictures CorporationЖанр: драма, немое киноРежиссер: Морис ТурнёрАктеры: Wilton Lackaye, Клара Кимболл Янг, Пол МакАллистер, Честер Барнетт, D.J. Флэнеган, Филлис Нильсон-Терри, Джеймс ЯнгПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 01:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FCD7816D911DCAD218A0FE53E40062EED13E7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792648   (67665) от 19.04.2025
+
+Фоны - Artnoy - Creative Fabrica - Digital Paper Watercolor Background [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельные фоны на цифровой бумаге.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB734BCD12299F7C691D3A0998E7D938B20C547B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792557   (67666) от 19.04.2025
+
+Живая еда с Сергеем Малозёмовым (19.04.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творожная пасха: сырая, заварная, ленивая, из творога, тофу и в виде эскимо! Почему на юге и на севере России «пасхой» называют совершенно разные блюда, какой рецепт одобряет церковь, а какой — диетологи, как выбрать самый подходящий творог и неужели этим десертом легко отравиться?
+ Луковая шелуха: от чего ею лечатся и чем опасны такие процедуры? Правда ли, что в (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CB502662486B1B1939716B1E541095EA890364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792550   (67667) от 19.04.2025
+
+Meredith Brooks - Meredith Brooks: I Wouldn’t Want It Any Other Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nocturnal Wrath (04:16)
-02. Disgorged Entrails (04:10)
-03. Skin Defilement (04:52)
-04. Inexorable Suffering (03:44)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:31
+01. Bitch (4:13)
+02. Bad Bad One (4:46)
+03. Shatter (4:00)
+04. Queen Latifah - Lay Down (Candles In The Rain) (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38EA9999388491DE1004D1278F5013CB6B36F651
+magnet:?xt=urn:btih:CB47C5D484FE67266D0AFFEBAB187A76F23123FF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701927   (115974) от 23.02.2024
+###  Публикация: 1792354   (67668) от 19.04.2025
 
-Dick Haymes - You'll Never Know: The Best Of Dick Haymes (1943 - 1950) 1990, MCA Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+VA - Black Hole House Music 04 - 25 (2025) [MP3|320 Kbps] <House, Progressive House>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'll Get By (As Long as I Have You) (with Harry James) [2:46]
-02. You'll Never Know [2:47]
-03. Where or When [2:52]
-04. I'll Buy That Dream (with Helen Forrest) [3:02](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:08:51
+01. Krismi - Set Me Free (Extended Mix) (06:22)
+02. PARAFRAME & Avis Vox - Bird Life (Extended Mix) (06:06)
+03. Dennis Sheperd, Freak E Beatz & Katty Heath - Afraid to Feel (Extended Mix) (03:48)
+04. Amun Starr, DirtyHertz & ARANAVA - Dreaming (Extended Mix) (04:58)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:15:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F0FAF7591D0EB7CB0FC98198C1C1617A73D7BA5
+magnet:?xt=urn:btih:084774244322BC4BE213EB0A4BF1224D0AAD6867
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701858   (115975) от 23.02.2024
+###  Публикация: 1792417   (67669) от 19.04.2025
 
-Avulsion - Indoctrination into the Cult of Death (2002) Reissue, 2003, Deathgasm Records [FLAC|Lossless|image + .cue] <Death Metal>
+Фоны - Artnoy - Creative Fabrica - Unicorn Blur Background Digital Papers [JPG]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undeniable Evidence For Sickness (03:24)
-02. When The Time Has Come (03:41)
-03. Moronic Inclinations (02:08)
-04. As The World Burns (02:50)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:29:58
+Цифровая бумага с размытыми фоном.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E414EFC805B6E07459E0429AC7BE19CAA376A25
+magnet:?xt=urn:btih:C50382CD4A6B12FAD87967405F2AAB35CC2713DA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701933   (115976) от 23.02.2024
+###  Публикация: 1792605   (67670) от 19.04.2025
 
-Jesse Davis - Horn Of Passion (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+VA - Trancespotting Vol.9 (2025) [MP3|320 Kbps] <Trance>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. C.P. Time [4:00]
-02. Here's That Rainy Day [8:02]
-03. Star Dust [8:38]
-04. Stop & Go [4:57](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:34
+01. Rene Ablaze - Legends (Original Mix) (03:01)
+02. Alex Byrka - Now & Ever (Original Mix) (02:39)
+03. Yepzone & Andy Elliass - Suburbian Mist (Original Mix) (03:28)
+04. Plutian & Dalmoori - Frigoris (Original Mix) (04:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2934A9BB9BF89620E832EF33279664518767868F
+magnet:?xt=urn:btih:4E33D16CE1AD7A4CD69D2924A0FA6067D0621D52
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701908   (115977) от 23.02.2024
+###  Публикация: 1792422   (67671) от 19.04.2025
 
-Aiseesoft FoneEraser 1.0.20 [Multi/Ru]
+Растровый клипарт - STCrafts - Creative Fabrica - Pink and Purple Flowers Mug Wrap Sublimation Design [PNG]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft FoneEraser — самая мощная утилита для постоянного и полного удаления всего содержимого и настроек iPhone. Предлагая три дополнительных уровня стирания, вы можете удалить любые данные на iPhone/iPad/iPod, чтобы защитить свою конфиденциальность.Тип издания: macOS SoftwareРелиз состоялся: 11.12.2023Разработчик: © 2023 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+Дизайн сублимационной упаковки с розовыми и фиолетовыми цветами для кружек .Формат: PNGРазрешение файлов: 2925×1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:701E3082C0ECF7BD422DEE8555E36006C574EE1B
+magnet:?xt=urn:btih:CEEC43F764C6AD7F5215A12F91DC294650CCA214
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792393   (67672) от 19.04.2025
+
+Растровый клипарт - Creative Store - Creative Fabrica - Cherry Blossom Flowers Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с цветами вишни.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10D99B8579A7124BF50BB08DB6D3FECFE0AB988
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792421   (67673) от 19.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Polka Dots 3d Flowers Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн сублимационной упаковки кружки в горошек с 3D цветами.Формат: PNGРазрешение файлов: 2925 × 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7CE7B76A68D6BE77788DFE8100699E5A674F00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792419   (67674) от 19.04.2025
+
+Растровый клипарт - Artnoy - Creative Fabrica - Sliver Metallic Glitter Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с серебристым металлическим блеском.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8E2B91F077EBE8688D96C2FBF007FBBCA54944
 ```
 
 

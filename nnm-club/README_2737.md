@@ -1,665 +1,684 @@
-###  Публикация: 1695538   (120244) от 29.01.2024
+###  Публикация: 1771264   (71913) от 05.01.2025
 
-Twilight Aura - For A Better World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aura (Intro) 01:20
-02. Inner Prison 04:33
-03. Prayer 04:16
-04. One Day 05:29(   Читать дальше...   )Жанр: Melodic Power, Female VocalПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FF6BB51F5D23EF2DDD3C7713D7A44678845DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695412   (120245) от 29.01.2024
-
-Felix Tellier Pouliot - Hometown Zero (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hometown Zero (4:15)
-02. World (5:05)
-03. 7 O'Clock (6:29)
-04. Upsy Daisy (6:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:27
+01.  Crisis (4:42)
+02.  First Light (4:19)
+03.  Latina (4:04)
+04.  Brigitte (4:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDE838EFBCA08057D27DD72C2C18591B14FBDD12
+magnet:?xt=urn:btih:11A918C443F12BF82E1F6A74FE8D0A8F1AEC320D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695534   (120246) от 29.01.2024
+###  Публикация: 1770543   (71914) от 05.01.2025
 
-OmniReader Pro for Mac 2.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120246.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2024Разработчик: © 2024 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C7B789A94A961B1043075C57236D88736D54A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695604   (120247) от 29.01.2024
-
-Mimestream 1.2.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mimestream сочетает в себе мощь macOS с расширенными функциями Gmail для нового типа почтового клиента, который позволяет вам легко перемещаться по электронной почте.
-Как собственное приложение, написанное на Swift, Mimestream использует всю силу macOS, чтобы обеспечить быстрый и мгновенно знакомый опыт. Вместо использования протокола IMAP Mimestream использует API (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Mimestream, LLC.Поддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACFA0809BB64FF06A426F691B3E25B06716565B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695425   (120248) от 29.01.2024
-
-Scheen Jazzorkester, Cortex & Thomas Johansson - Frameworks (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoo-Hah (12:06)
-02. Weaving (4:46)
-03. Strings (11:37)
-04. Inklings (9:32)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44599DEA987940069B49E810BAAA5886A57C891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695422   (120249) от 29.01.2024
-
-Qow Trio - The Hold Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Noon (4:18)
-02. The Hold Up (5:10)
-03. I Gotta Grape Drink (4:42)
-04. The Star-Crossed Lovers (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F39EBDCF3F6BE2237AF6B7844464888306D575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695418   (120250) от 29.01.2024
-
-Jonas Cambien - Maca Conu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Terrible Misunderstanding (4:24)
-02. Holy Fishtail (8:26)
-03. Once Low Now High (5:31)
-04. Pseudoscience (3:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B9E314BBF12463D126D215526F4AC993B1D24F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695492   (120251) от 29.01.2024
-
-Indignatio - Principium (2023) [MP3|320 Kbps] <Groove Metal>
+Эсента - Вечность (2018) [MP3|320 Kbps] <Symphonic, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Destilando Odio (03:40)
-02. Mi Silencio (03:24)
-03. Indignación (04:38)
-04. Oscura Traición (03:57)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:33:52
+◈ 01 - Не Сейчас (00:04:54)
+◈ 02 - Высь (00:03:38)
+◈ 03 - Путь (00:04:35)
+◈ 04 - На Краю Земли (00:04:42)(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 00:47:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0656B3D43E56B7107FA91407370B7E51B552D965
+magnet:?xt=urn:btih:05B7CD5810A2263AE63FB2291FF0C36F0A34027B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695578   (120252) от 29.01.2024
+###  Публикация: 1770989   (71915) от 05.01.2025
 
-Amadine 1.5.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
-Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: ©2022 BeLight Software LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE46CB47B8987A79A0DF5EB6976E84E1EE35F55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695592   (120253) от 29.01.2024
-
-iReal Pro 2024.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение предлагает простой в использовании инструмент, чтобы помочь музыкантам всех уровней освоить свое искусство, а также - предоставит вам имитацию реально звучащего «бэнда» так, как вы этого ожидаете.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 Technimo LLC.Поддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5AC2A1C2024FE8AA30284127DF0FC83FF4C06D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695507   (120254) от 29.01.2024
-
-JD Allen - Americana, Vol. 2 (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up South [6:30]
-02. This World Is a Mean World [5:45]
-03. The Werk Song [4:48]
-04. Hammer and Hoe [4:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99E7160481DFBE26D15DAF652DF350B19C319AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695536   (120255) от 29.01.2024
-
-PullTube 1.8.5.24 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AF671403485BB3EEBDFF7C28D3512E71F645C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695558   (120256) от 29.01.2024
-
-Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Serpent
-02. The Wax Walls of an Empty Room
-03. Stay Captive
-04. Anemia in Your Sheets(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418ACE6BF65EEF9BB925C1254AAFAB010D346F2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695587   (120257) от 29.01.2024
-
-GraphicConverter 12 for Mac 12.1 Beta [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120257.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA40FDFC9FD9FF41EAA7B2003AAE5F1C82F5A129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695602   (120258) от 29.01.2024
-
-doubleTake 2.6.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120258.jpg" />
-</div>
-
-
-###  Подробнее
-
-DoubleTake - приложение предназначено тем пользователям, которым нравятся компактные фотокамеры, но какие мечтают о широкоугольном объективе. DoubleTake позволяет одним перетаскиванием решить эту проблему и получить снимок не хуже, а в некоторых случаях и лучше, чем снятый широкоугольной камерой.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2023 Echo OneПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC965F71C70A43CD508A02A18CD639E704A0B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695486   (120259) от 29.01.2024
-
-Indignatio - Principium (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
+WhoreMother - Slayed in Poland (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Destilando Odio (03:40)
-02 - Mi Silencio (03:24)
-03 - Indignacion (04:38)
-04 - Oscura Traicion (03:57)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:33:51
+01. Bunker 44 [00:03:38]
+02. 13 Plastic Bags [00:04:57]
+03. Devil's Death [00:03:27]
+04. In the Candle Light [00:04:23](   Читать дальше...   )Жанр: Black Metal, Melodic Death MetalПродолжительность: 00:29:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F91C4EFB93B82A852E263AA3679E4BE08CE641EE
+magnet:?xt=urn:btih:263FEEAD060356FC2747DE2ABC2D117BA28B5A03
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695594   (120260) от 29.01.2024
+###  Публикация: 1770904   (71916) от 05.01.2025
 
-Boxy SVG 4.23.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2012-2024 Jaroslaw FoksaПоддерживаемая ОС: macOS 11.1 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561A15547FEC06C2631A85259F3B645C4717EF26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695595   (120261) от 29.01.2024
-
-EdgeView 4.4.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120261.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D74A68242F91B33ED82A73513955B00758166AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695573   (120262) от 29.01.2024
-
-В. И. Горшенин | Машины для уборки зерновых культур (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие написано в соответствии с программой по дисциплинам: «Технологические машины и оборудование», раздел «Машины и оборудование в растениеводстве» для специальности 311900 – «Технология обслуживания и ремонта машин в АПК»; «Сельскохозяйственная техника и технологии» для специальности 311500 – «Механизация переработки сельскохозяйственной продукции». В (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Мичуринский  государственный  аграрный  университетФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17B43A2D7E8BF57B239EEE59FCD37891C97A179
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695496   (120263) от 29.01.2024
-
-Hazel 5.3.2 U2B [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D96ED96BD97F3ED2E738DC4668C49B7712327A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695608   (120264) от 29.01.2024
-
-Noir – Dark Mode for Safari 2024.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Noir — это расширение для Safari, которое автоматически добавляет темный режим на каждый посещаемый вами веб-сайт.
-Это делает просмотр веб-страниц ночью намного лучше. С Noir вы больше никогда не будете ослеплены яркими веб-сайтами.
-И результаты тоже выглядят великолепно. Noir создает собственный темный стиль для каждого посещаемого вами веб-сайта на основе цветов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2021-2024 Jeffrey KuikenПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CC99AB9B8E6C557153E2AD5D42FCFF6F2A9C2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695430   (120265) от 29.01.2024
-
-Magnum - Here Comes The Rain (2024) [FLAC|Lossless|tracks] <Melodic Hard Rock>
+Reminor - 2 альбома (2011-2013) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Run into the Shadows
-02. Here Comes the Rain
-03. Some Kind of Treachery
-04. After the Silence(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:02
+01. Априори
+02. Затмение
+03. Страна контрастов
+04. Отражения(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A66E8C675532E7D130F0928A059E512A8359620E
+magnet:?xt=urn:btih:07E02AE4211D5C5FF0993FA52E0DC9BEBB3EBB3F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695547   (120266) от 29.01.2024
+###  Публикация: 1771270   (71917) от 05.01.2025
 
-Beyond Border - Gathering (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Futurepop, Synthpop>
+Grace In Sand - Homeless Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Get free (2:27)
+02.  Homeless Moon (3:38)
+03.  Sweet Sibilla (3:35)
+04.  Redemption in hell (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843A427EEA8008662A37AA9C4A5762347C082217
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771223   (71918) от 05.01.2025
+
+Ari Karason - Melodies for us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Journey [00:05:16]
-02. Radiant [00:04:05]
-03. Hate Myself [00:04:11]
-04. Part Of Me [00:04:54](   Читать дальше...   )Жанр: Futurepop, SynthpopПродолжительность: 01:06:30
+01.  Lovely Day (3:32)
+02.  It Runs Through Me (3:04)
+03.  Until The End of Time (4:30)
+04.  Stars (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE52484C67F194508BEF81677CE3A37703D9DE9B
+magnet:?xt=urn:btih:B9E642651C4DF980AF9352640FC5EAC9F5F96D0B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695571   (120267) от 29.01.2024
+###  Публикация: 1771253   (71919) от 05.01.2025
 
-Святитель Игнатий (Брянчанинов) | Собрание творений [7 томов] (2015) [PDF, FB2, EPUB, MOBI, TXT]
+Pacho Brea - 4CD (2013-2019) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Corazón helado
+02 Recuerdo amargo
+03 Mi tierra
+04 Más que vivos(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 03:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6D3AC84609074368091D8C074F31475A0C0FBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771267   (71920) от 05.01.2025
+
+Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't Misbehavin' (5:14)
+02.  East of the Sun (and West of the Moon) (5:42)
+03.  Out of Nowhere (5:14)
+04.  'S Wonderful (5:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBBFCFE143D39FB00C5AA26E61B64646694A4AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771206   (71921) от 05.01.2025
+
+Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Death Took a Holiday - 6:36
+02 - Danny - 4:48
+03 - Sonny & Lorraine - 5:40
+04 - Downtown - 3:48(   Читать дальше...   )Жанр: Acid Jazz, Future JazzПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFB0425225DCD523FC49FDA788DE8E8F4BD6AEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771224   (71922) от 05.01.2025
+
+Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Algebra Anthem (2:50)
+02.  Automatic arithmetic (1:57)
+03.  Coordinate geometry (2:36)
+04.  The geometry (1:49)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AEFEE339C1F26921DF86BBA4BEA552CD0F3269
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771249   (71923) от 05.01.2025
+
+Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Giant Steps (2:37)
+02.  The Times They Are A-Changin' (2:38)
+03.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - O Amor Em Paz (3:21)
+04.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Sunny (4:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C73B9F14303A3BE0ABB133C41D2CB2EF7B22878
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771221   (71924) от 05.01.2025
+
+НХЛ 2024-2025. Нью-Йорк Рейнджерс - Вашингтон Кэпиталз (04.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71924.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 января 2025, суббота. 20:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Брэд Ковачик (Вудсток, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B3C4D43290AECE33320DD353CBAD3C95E17087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771176   (71925) от 05.01.2025
+
+Николай Гоголь | Мертвые души (2021) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Васильевич Гоголь – знаменитый русский писатель, произведения которого входят в золотой фонд отечественной словесности и являются неизменными составляющими школьной программы по литературе. Его романы, повести и пьесы имеют огромное количество постановок и экранизаций.
+
+Одним из самых сильных его произведений является книга «Мёртвые души». Вышел только первый (   Читать дальше...   )Жанр: Русская классика, поэмаИздательство: 1С-ПаблишингПродолжительность: 11:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64D686A51751E92BF4182623994E1DCC5953667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771010   (71926) от 05.01.2025
+
+Pink Floyd - Live at Empire Pool (Wembley, London, UK, 16 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shine On You Crazy Diamond (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [21:58]
+02 - Raving And Drooling (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [12:30]
+03 - You've Got To Be Crazy (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [18:05]
+04 - Speak to Me (Live at Empire Pool, Wembley, London, UK, 16 November 1974) (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198FD7233595B57A073BACF71B3816C9E87A618B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771259   (71927) от 05.01.2025
+
+VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase - Om Shivam (Original Goa Mix) [6:34]
+02. A-Mase & Vika Grand - Fever (Melodic Techno Mix) [5:18]
+03. A-Mase & Sharliz - Beautiful Things 2.0 (Original Mix) [7:04]
+04. A-Mase - Imagine 2.0 (Original Mix) [8:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771215   (71928) от 05.01.2025
+
+Сеанс дождливым вечером / Seance on a Wet Afternoon (1964) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по роману Марка Макшейна (1961)... Медиум-самозванка Майра Сэвидж придумывает, как стать знаменитой. Она уговаривает мужа Билли похитить дочь богатых людей, потребовать выкуп, а потом «найти» её. План похищения срабатывает, но Билли вдруг понимает, что супруга не собирается оставлять ребёнка в живых...Производство: Великобритания / Beaver Films, Allied Film Makers (AFM)Жанр: драма, криминал, триллерРежиссер: Брайан ФорбсАктеры: Ким Стэнли, Маргарет Лейси, Мари Бурк, Мария Кэзан, Лайонел Гамлин, Мэриэн Спенсер, Ричард Аттенборо, Годфри Джеймс, Джудит Доннер, Рональд Хайнс, Хэйджни Биро, Марк Иден, Нанетт Ньюман, Диана Ламберт, Франк СингиноПеревод: профессиональный многоголосый (Intra Communications по заказу 100ТВ)Язык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C915A8F384B5C4C61383A2CD50435DBA8EE150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771231   (71929) от 05.01.2025
+
+Архимандрит Лазарь (Абашидзе) | В пещи вавилонской. О грехе блуда (1998) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание представляет собрание творений Святителя Игнатия (Брянчанинова) в 7-ми томах.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+«Каждому православно-верующему христианину, вероятно, хорошо знакома история прохождения мытарств святой Феодорой Цареградской (Житие ее см. 30 декабря), сколько страха натерпелась она, узнав на собственном опыте, какой грозный экзамен проходит человеческая душа по исходе из сего мира. Но многие ли, читая это Житие, обратили внимание на один весьма значительный эпизод: (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:787FF47B148757870F3D44BA2632F95663D4BB46
+magnet:?xt=urn:btih:F23AA4FE21517542B8F3DC3D643C957BBFB66CBB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695419   (120268) от 29.01.2024
+###  Публикация: 1771033   (71930) от 05.01.2025
 
-Kinga Glyk (Kinga Głyk) - Real Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fast Life (3:59)
-02. Unfollower (3:48)
-03. Who Cares (3:42)
-04. Island (5:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:17
+01. Mongo Santamaria - Grass Roots [00:04:14]
+02. Freddie Hubbard - The Return of the Prodigal Son [00:05:42]
+03. Herbie Mann - Kidnappin' Lover [00:07:40]
+04. Eddie Harris - Time to Do Your Thing [00:06:08](   Читать дальше...   )Жанр: JazzПродолжительность: 01:59:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7A89BDAF64E21A089735D05304C20D8D7F21FC4
+magnet:?xt=urn:btih:05129CC36F14181EBD7F3C3BA162BA0DA5244E38
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695407   (120269) от 29.01.2024
+###  Публикация: 1771252   (71931) от 05.01.2025
 
-Arve Henriksen - Touch of Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+Mariah - Mystic Lady (1975) 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Melancholia (4:01)
-02. The Beauty of Sundays (3:28)
-03. Redream (8:47)
-04. The Dark Light (4:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:17
+01.  Hey Mama (3:08)
+02.  Rock and Roll Band (4:13)
+03.  Mystic Lady (2:41)
+04.  Reunion (6:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2B20A89740574934254C16334E1C8D7DBCF67E7
+magnet:?xt=urn:btih:ECC4C0B4BDE412B14238C6CF08FC0877D1E227CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771018   (71932) от 05.01.2025
+
+Pink Floyd - Live At The Empire Theatre (Liverpool, UK, 29 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Raving And Drooling (Live At The Empire Theatre, Liverpool, UK, 29 November 1974) [12:01]
+02 - You've Got To Be Crazy (Live At The Empire Theatre, Liverpool, UK, 29 November 1974) [16:27]
+03 - Shine On You Crazy Diamond (Live At The Empire Theatre, Liverpool, UK, 29 November 1974) [21:09]
+04 - Speak to Me (Live At The Empire Theatre, Liverpool, UK, 29 November (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283393551E9D6F8C975EAD7D95706CC251BAEBD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771017   (71933) от 05.01.2025
+
+Pink Floyd - Live At Palais De Sports (Paris, France, 24 June 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shine On You Crazy Diamond (Live At Palais De Sports, Paris, France, 24 June 1974) [20:58]
+02 - Raving And Drooling (Live At Palais De Sports, Paris, France, 24 June 1974) [10:16]
+03 - Echoes (Live At Palais De Sports, Paris, France, 24 June 1974) [22:58]
+04 - Speak to Me (Live At Palais De Sports, Paris, France, 24 June 1974) [3:56](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69535DF239675737F24449D959DD073C414B3D23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771235   (71934) от 05.01.2025
+
+Иеромонах Василий Лавриот | Покаяние и исповедь. Таинство милосердия Божия (2008) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мое пребывание в монастыре Великой Лавры на Афоне (свыше сорока лет), опыт духовничества и беседы с паломниками, посещающими Святую Гору, оплот Православия и центр всеправославного монашества, убедили меня в необходимости издания краткого практического руководства в помощь готовящимся к святому Таинству Покаяния. Именно поэтому я с радостью приступил к составлению (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D15ACEE0176B9ADEC33AA1D087598B6B7F5E665
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771225   (71935) от 05.01.2025
+
+Святитель Василий Великий | Толкование на книгу пророка Исаии (2002) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитое толкование святителя Василия Великого на книгу пророка Исаии. Вот уже много веков данная книга служит неисчерпаемой сокровищницей для всех ищущих истинного знания и стремящихся к духовному совершенству. В ней каждый, как живущий монашеской жизнью, так и мирской, находит бесценные сокровища Святого Духа, оставленные нам в наследие Великими учителями нашей (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A153EDFD2A6CFC52E6526466DC99CA111990792B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771015   (71936) от 05.01.2025
+
+Pink Floyd - Live at Palace Theatre (Manchester, UK, 9 Dec 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Raving And Drooling (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [13:49]
+02 - You've Got To Be Crazy (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [16:34]
+03 - Shine On You Crazy Diamond (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [22:16]
+04 - Speak to Me (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [3:18](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F85E0AA18F73751AAC4FC354875B7405F33EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771258   (71937) от 05.01.2025
+
+Nenei - Sunset Grooves (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dream a Little Dream of Me (3:14)
+02.  Nenei & The Cooltrane Quartet - Don't You Worry 'bout a Thing (3:29)
+03.  Nenei & Groove Da Praia - I'm Not Here to Make Friends (3:12)
+04.  Houdini (3:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4AEE1CB13D70994D3AB6CC96BC6CEC9029600A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771233   (71938) от 05.01.2025
+
+Сатисъ | Чудеса и видения (2000) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родилась эта книга необычно. Была найдена старая записная книжка священника, в которую он в течение многих лет собирал изречения святых отцов церкви и подвижников благочестия.
+
+Кто знает, может быть, какие-то из них он произносил в проповедях или в духовных беседах с прихожанами… Но, наверняка, каждое служило толчком к движениям собственной души, являлось отправной (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890A08B7429F6BC536E06F854E2F67ED68517592
 ```
 
 

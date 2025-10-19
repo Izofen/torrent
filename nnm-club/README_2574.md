@@ -1,667 +1,652 @@
-###  Публикация: 1701967   (115978) от 23.02.2024
+###  Публикация: 1792394   (67675) от 19.04.2025
 
-Amaranthe - The Catalyst (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Melodic Metal>
+Растровый клипарт - Creative Store - Creative Fabrica - Bohemian Seamless Pattern Digital Papers [JPG]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Catalyst
-02. Insatiable
-03. Damnation Flame
-04. Liberated(   Читать дальше...   )Жанр: Modern Melodic MetalПродолжительность: 00:38:39
+Цифровая бумага с богемным бесшовным рисунком.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF34CDA95A227E06410F9E1A03D7D9C33A231EB3
+magnet:?xt=urn:btih:E9B798B5DD38216591E69F35B34EF8ED5ACCB48F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701843   (115979) от 23.02.2024
+###  Публикация: 1792649   (67676) от 19.04.2025
 
-VA - Ancient Egypt Seasons - Akhet (2023) [MP3|320 Kbps] <Trance>
+Растровый клипарт - MutchiDesign - Creative Fabrica - Fantasy Watercolor Digital Paper Set [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельные изображения на цифровой бумаге.
+Материал раздаётся с официальной документациейФормат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16C06DE47BA914A7CA75DBB77B99D3B46D3A782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792215   (67677) от 19.04.2025
+
+Legacy Pilots - Night Flight (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Days (Live) [00:05:05]
+02. Nemesis (Live) [00:04:24]
+03. Ghosts of the Ocean (Live) [00:05:00]
+04. True Spirit (Live) [00:05:29](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794CA643B7964006A4A206DB8097E193ADA08B14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792391   (67678) от 19.04.2025
+
+Растровый клипарт - Creative Store - Creative Fabrica - Vintage Cottagecore Flowers Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винтажные цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D40AFE87DF44E2EE37B8A98B09E0833588BBDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792515   (67679) от 19.04.2025
+
+VA - Keep It Trance Vol. 28 (2025) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aly & Fila x Chapter 47 x Richard Bedford - Edge Of Tomorrow (Extended Mix) [8:57]
-02. Giuseppe Ottaviani - Conscious Mind (Extended Mix) [5:53]
-03. Bryan Kearney - Encanta (Extended Mix) [6:44]
-04. John Askew - Bat Shit Crazy (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:03
+01. Tempo Giusto & Gabriel Thomas - Ikaros (Original Mix) [3:28]
+02. ARQLYTE - Foster Avenue (Extended Mix) [5:47]
+03. Denis Airwave & Ria Joyse - Гипноз (Extended Mix) [5:52]
+04. Chris Krystal - Guilty Art (Extended Mix) [5:54](   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B17840FC1C0363FD4CA4F7F8177095FBF863CD8
+magnet:?xt=urn:btih:410BA0DFDF2408D5C4B77B479D74709A24F72B25
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702205   (115980) от 23.02.2024
+###  Публикация: 1792420   (67680) от 19.04.2025
 
-D'Luna - Monster (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
+Растровый клипарт - STCrafts - Creative Fabrica - Purple & Gold Floral Mug Wrap Sublimation Design [PNG]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Monster
-02. Zombie
-03. Rabbit Hole
-04. Believe(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:46:23
+Фиолетово-золотой цветочный дизайн сублимационной упаковки для кружек.Формат: PNGРазрешение файлов: 2925 × 1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E309CAAE3F65968A2F47C499BE063FA394E9FD67
+magnet:?xt=urn:btih:5682CD2DD8CE71575C74FB884A47E6527131E119
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702076   (115981) от 23.02.2024
+###  Публикация: 1792510   (67681) от 19.04.2025
 
-Изгоняющий дьявола: Верующий / The Exorcist: Believer (2023) BDRip [H.264/1080p] [UKR, EN / UKR, EN Sub]
+VA - Progressive Trance Awakening, Vol. 04 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Зарубежное кино
->>Фильмы с переводом на др. языках
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Две 13-летние подружки после школы пошли в лес, чтобы вызвать дух погибшей мамы одной из них, и пропали. Их семьи ставят на уши полицию и расклеивают объявления, когда вдруг через три дня потеряшки внезапно обнаруживаются в фермерском сарае в 30 км от дома. Родители вне себя от радости, но с девочками что-то не так — обе начинают вести себя очень агрессивно.Производство: США / Universal Pictures, Morgan Creek EntertainmentЖанр: ужасыРежиссер: Дэвид Гордон ГринАктеры: Лесли Одом мл., Лидия Джюэтт, Оливия О’Нилл, Энн Дауд, Норберт Лео Бац, Дженнифер Неттлз, Рафаэль Сбардж, Оквуи Окпоквасили, Дэнни Маккарти, Эллен БёрстинПеревод: Дублированный (укр. Le Doyen)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:51:07
+01. Soundtoys - Around Us (Original Mix) [7:03]
+02. OLBI - Moon (Original Mix) [3:34]
+03. The Trance Ensemble & AFTERUS - Dark (Extended Mix) [6:01]
+04. g-herb - Reflections (Original Mix) [5:47](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:16:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A65A8C375E5B06863C9E67D081D55E9449C2CB03
+magnet:?xt=urn:btih:4B2DEEA9D38DAC22696535A8134322F01C3214F6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701943   (115982) от 23.02.2024
+###  Публикация: 1792607   (67682) от 19.04.2025
 
-CloudMounter 4.4 [Multi/Ru]
+VA - Trancespotting Vol.10 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diago - Sequentia (Original Mix) (03:15)
+02. Guava Project - New Horizons (Original Mix) (03:59)
+03. MakeFlame & DJ Frost - Acid Rain 303 (Original Mix) (04:58)
+04. Rene Ablaze, Fischer & Miethig - Follow Me (Original Mix) (02:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE331B397ACEE4379F2D13BBA0D89A28277FEF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792389   (67683) от 19.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Floral Medley Seamless Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67683.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 бесшовных цветочных узоров в пастельных тонах.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DAD94C35FC72408F03DB79939C72FE49F79C25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792377   (67684) от 19.04.2025
+
+YOTTO - Live @ We Belong Here (Historic Virginia Key Beach Park Miami) (2025-03-01) [MP3|320 Kbps] <Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Böhmer - Wall Of Strings (YOTTO Edit)
+02. Kadosh & Severin Su - Let Me See You (Enamour Remix)
+03. Kaufmann - John Otto
+04. YOTTO - Heartbeat(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E5E7C0B863A95A918040FC70A02CDEBDA7FB84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792568   (67685) от 19.04.2025
+
+Схождение Благодатного огня (2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раз в год в Великую субботу в Иерусалиме сходит Благодатный огонь. Произошло чудо и в этом году. В честь этого знаменательного события тысячи паломников в канун православной Пасхи собирались в храме Гроба Господня. Благодатный огонь считается символом благословения Божия роду человеческому. Он разносится паломниками по всему православному миру. Из Иерусалима его (   Читать дальше...   )Телекомпания: «НТВ»Жанр: ДокументальныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C49C6BAC1D088B15D7D67072696E3AC2B240AF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792464   (67686) от 19.04.2025
+
+TikTok Private Plus v39.6.2 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CloudMounter - это централизованный сервис, который позволяет монтировать облачные хранилища как локальные диски и работать с online файлами так же как с локальными. При этом сохраняя их защищенными от внешнего доступа. Приложение обеспечит Вам непосредственный доступ к online данным на сервере, прямо из Finder на Вашем Mac, а так же позволит защитить их с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2024 Electronic Team, Inc.,Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+В этом Моде можно выкладывать видео для РФ.
+TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 18.04.2025Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1122B74D9A53AC1014A387B322F32EE326BD23CC
+magnet:?xt=urn:btih:2A04096E85B169F3612AEB812C89D48501A8AB51
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702101   (115983) от 23.02.2024
+###  Публикация: 1792532   (67687) от 19.04.2025
 
-Чингиз Абдуллаев | Дронго (Книга 53). Закат в Лиссабоне (2024) [MP3, Маркиза]
+Hellsmoke - Hellucination (2025) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wasted Times (03:31)
+ 02 - Now You See Me (03:24)
+ 03 - Hellucination (04:32)
+ 04 - Shellshocked (03:17)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FCA2B1A51141C24619AF7FCDA606D3D6CBD955
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792461   (67688) от 19.04.2025
+
+VivaCut v4.1.6 Mod by MustHave [Ru/Multi]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лиссабон. Финал чемпионата Европы по футболу. Мечта миллионов болельщиков, событие в мире спорта… Почему туда с новым заданием отправляется агент Дронго? Отправляется, зная только, что обязан обезвредить многоопытного международного террориста из бывшего Советского Союза, но не подозревая ни как выглядит этот террорист, ни на кого нацелен его удар! Известны лишь (   Читать дальше...   )Жанр: Боевик, триллерИздательство: ЛитРес: чтецПродолжительность: 02:12:32
+VivaCut для Android - это профессиональный видеоредактор с эффектами и бесплатное программа для монтаж видео. Обработка видео для ютуба с использованием многослойной временной шкалы и высококачественных функций редактирования. Редактировать видео для ютуба и инстаграм, вырезая или комбинируя клипы с удивительными стикерами и фильтрами. Отложите в сторону свой Афтер (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.04.2025Разработчик: VivaCut professional video editorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A80F3DCB9CD5F0A288EE9F782BA43B780E7B17F8
+magnet:?xt=urn:btih:76803320A6AC659B14F13F470FD0B934083392B3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702035   (115984) от 23.02.2024
+###  Публикация: 1792526   (67689) от 19.04.2025
 
-Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|tracks] <Melodic Hard Rock, AOR>
+Дом мечты / Home Jacking (2024) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как только предыдущий альбом "The Reality Of Miracles" появился на полках магазинов в 2020 году, Lionheart принялись записывать следующий. С самого начала они решили, что на этот раз они создадут концептуальный альбом. Альбом посвящен Второй мировой войне, но группа очень хотела сделать этот альбом антивоенным, в то же время помня о тех, кто боролся за (   Читать дальше...   )01. Declaration (5:02)
-02. Flight 19 (4:40)
-03. V Is For Victory (4:33)
-04. This Is A Woman's War (4:41)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:02
+В модный дом супружеской пары буржуа вламывается человек в маске. Его истинные мотивы неизвестны: что это - кража, убийство или нечто совершенно неожиданное? Может, жертвы и преступник - не те, за кого себя выдают?Производство: Франция / Lincoln TVЖанр: триллерРежиссер: Эрве АдмарАктеры: Merwane Tajouiti, Мари Домпнье, Янник ШуараПеревод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:30:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FDB23EB37B634B0134807D0FA3B841564213CD7
+magnet:?xt=urn:btih:CE94EE09B49394072DF3B0FD8AF8D81A7095BE3F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702129   (115985) от 23.02.2024
+###  Публикация: 1792508   (67690) от 19.04.2025
 
-Чингиз Абдуллаев | Дронго (Книга 113). Жертва здравого смысла (2024) [MP3, Павел Краб]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медиамагнат Антон Кульчицкий устраивает шикарную вечеринку на острове Родос по случаю собственного юбилея. Многочисленные родственники и друзья бизнесмена веселятся всю ночь напролет. Утром, опьяненные и счастливые, они отправляются на прогулку и, к своему ужасу, обнаруживают на берегу тело одного из охранников с явными следами насильственной смерти. Волею судеб (   Читать дальше...   )Жанр: Боевик, триллерИздательство: ЛитРес: чтецПродолжительность: 06:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11452E748763557AFF7F435232551F05C7C359DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701942   (115986) от 23.02.2024
-
-OmniZip - Universal Extractor Pro for Mac 2.1.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент супердекомпрессии, поддерживает распаковку RAR, 7Z, ZIP, TAR, GZIP и более 100 форматов файловТип издания: macOS SoftwareРелиз состоялся: 22.02.2034Разработчик: © 2024 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27193A857203F42377580EB6F3272DFAA5C3A59E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702001   (115987) от 23.02.2024
-
-Ace Frehley - 10,000 Volts (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10,000 Volts
-02. Walkin' On The Moon
-03. Cosmic Heart
-04. Cherry Medicine(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEDB458E7072927135C3EDAC7937939DAE54DC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701906   (115988) от 23.02.2024
-
-TinkerTool System 7 v.7.98 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115988.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2024 Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3325496CE73B744D23D9CB6E8514F8DCCF2700D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701909   (115989) от 23.02.2024
-
-Iridient Developer for Mac 4.2.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2024 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.13 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA34F8A3A7FF9F35152EE4102B8926D13EAE87B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702178   (115990) от 23.02.2024
-
-Iron Curtain - Savage Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Aftermath (Intro)
-02. Devil's Eyes
-03. Gypsy Rocker
-04. Thy Wolf(   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C416A5313BE2202C1FFB7280F5E064D9CEBE064
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701873   (115991) от 23.02.2024
-
-Genevieve (Geneviève) Leclerc - Big Band (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Swing. Jazz>
+Marilyn Manson - In The Air Tonight (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sing, Sing, Sing (00:04:02)
-02 - Cheek To Cheek (00:03:36)
-03 - L.O.V.E. (00:03:30)
-04 - It's A Good Day (00:02:28)(   Читать дальше...   )Жанр: Swing. JazzПродолжительность: 00:37:11
+1. In The Air Tonight
+2. As Sick As The Secrets Of (Sleep)Жанр: Industrial Metal, Alternative RockПродолжительность: 00:10:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5D4952AE5883B5F49C57F82C934BECA5D03C245
+magnet:?xt=urn:btih:3DB05F48FD03858E5652B81B669DF165C75EF845
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701882   (115992) от 23.02.2024
+###  Публикация: 1792397   (67691) от 19.04.2025
 
-Boulevard - Blvd. (1988) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+Текстуры - SAINT RICCHI - Behance - HOLO GLASS - FREE TEXTURES AND TUTORIAL - 173778673 [PNG]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dream On (03:41)
-02. Far from Over (04:10)
-03. Western Skies (03:40)
-04. Never Give Up (04:38)(   Читать дальше...   )Жанр: AORПродолжительность: 00:40:16
+Бесплатные голографические стеклянные текстуры.
+Материал раздаётся с официальной документацией.Формат: PNGРазрешение файлов: 2500 x 1500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACB8F9C3F96F317E0B437B2E907500F323ECBFE7
+magnet:?xt=urn:btih:537BB3F1D34736FC776D807231A7853D46FD575D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702056   (115993) от 23.02.2024
+###  Публикация: 1792522   (67692) от 19.04.2025
 
-Blaze Bayley - Live in Czech (2020) 2CD, Live [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Metal>
+VA - Summer Pool Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilnurg - Mind (03:03)
+02. V.O.P․ & BALLESTER - Tell Me That (02:43)
+03. Jayanth Ak - I Wanna Lose Control (02:12)
+04. Fly - Night Pulse (05:12)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65237096D7C1ED78DDB1C5649DB40B204E193557
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792658   (67693) от 19.04.2025
+
+Фоны - retroqueen - Creative Fabrica - Green Glitter Digital Paper Bundle [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор зелёных фонов с блёстками на цифровой бумаге.Формат: JPGРазрешение файлов: 4500 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1160BA62961EB0C74E563A81981EF8BD100B90AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792443   (67694) от 19.04.2025
+
+Журнал | Дачный спец №4 (апрель 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67694.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дачный спец» — журнал для всех, чья жизнь так или иначе связана с работой и отдыхом на земле. Независимо от уровня знаний в дачных делах, любой человек найдет в журнале именно то, что ему нужно: мнения и обзоры от известных в своей области специалистов, советы опытных дачников и садоводов, планировочные решения и мастер-классы от профессиональных дизайнеров, проверенные (   Читать дальше...   )Жанр: СадоводствоИздательство: ООО "Издательская группа "КАРДОС"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F96F7487E6F5D493F511F9014878FD1781E06B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792001   (67695) от 19.04.2025
+
+Screenshot touch v2.4.9 Mod by Alex.Strannik [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screenshot Touch – это удобное и простое приложение, которое облегчит вам создание скриншотов и видео с экрана своего смартфона. На многих телефонах нынче существует и встроенная функция создания скриншота, но таких точных и разнообразных настроек, как в Screenshot touch, вы не найдете нигде! Захватывайте любую область экрана, убирайте ненужное, делайте скриншоты (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 15.04.2025Разработчик: Daejeong KimПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C34FA927DE52345E89AAD53A98CFCD9B38C6A46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792398   (67696) от 19.04.2025
+
+Hall of Gods - A Tribute to the Gods of Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD-1
-01 - The Dark Side of Black (Live) [4:11]
-02 - A Thousand Years (Live) [3:16]
-03 - Dark Energy 256 (Live) [4:40](   Читать дальше...   )Жанр: Heavy Metal, MetalПродолжительность: 01:49:35
+01. The Requiem (feat. Zak Stevens) [00:07:45]
+02. Madness by the Moonlight (feat. Ralf Scheepers & Chris Caffery) [00:07:36]
+03. Guarany (Sons of The Forest)Жанр: Heavy MetalПродолжительность: 00:40:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EFA3489F834D4F82EC2ED27AFBE18BC5EC5ACC9
+magnet:?xt=urn:btih:2F4D1A45C9A92FC3DE5FD1CC7CD20448178E902D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701877   (115994) от 23.02.2024
+###  Публикация: 1792627   (67697) от 19.04.2025
 
-BetterMouse for Mac 1.5 [En]
+Следствие вели... (19.04.2025) WEBRip [H.264/1080p]
 
->>Архив торрентов
->>Архив 4Apple
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+«Две мамы». 1980 г., Волгоградская область. В собственном доме была жестоко убита пенсионерка. Скорее всего, преступник действовал в одиночку. Кто мог желать смерти старушке? Кому понадобились ее закрутки? Как след привел сыщиков в Сочи? И какую роль в этом деле сыграл пуховый платок?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34DE42F9064306479A90D702C12FB1CCF02614D7
+magnet:?xt=urn:btih:6249957D89761ED146BE7DFAB81157FF3D657966
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701930   (115995) от 23.02.2024
+###  Публикация: 1792641   (67698) от 19.04.2025
 
-VA - Sax For Lovers (1996) Legacy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard Bop>
+Текстуры - Ivana Tomasevic Nikolic - Behance - Linen Papers Package - 114729667 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор из 14 высококачественных цифровых листов бумаги с текстурой холста в пастельных тонах.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0411DCF707816291DBCDB7DD7E19C39C1EA66945
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792650   (67699) от 19.04.2025
+
+Фоны - retroqueen - Creative Fabrica - Golden Glittering Background Bundle [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор золотых фонов с блёстками.Формат: JPGРазрешение файлов: 4500 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1BB622B0BDEF159542DA9FF76B46970F756DA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792553   (67700) от 19.04.2025
+
+Pixel Music AI - Electro Swing, but in Japanese (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz,  Electro Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ben Webster - My Romance (4:16)
-02. Gerry Mulligan - My Funny Valentine (4:08)
-03. Stan Getz - Misty (5:27)
-04. Dexter Gordon - Laura (7:40)(   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 00:59:40
+01. Breaking the Loop v2 (3:39)
+02. The Train That Never Stops (2:48)
+03. Green Robot (2:18)
+04. Usoko No Kage (3:05)(   Читать дальше...   )Жанр: Jazz,  Electro SwingПродолжительность: 00:35:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:500831FA651A4FDD229A233F16A97C5A4AFD76CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701880   (115996) от 23.02.2024
-
-Boulevard - Into the Street (1990) [FLAC|Lossless|WEB-DL|tracks] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk to Me (04:46)
-02. Where Is the Love (05:04)
-03. Lead Me On (05:05)
-04. Eye of the Hurricane (03:48)(   Читать дальше...   )Жанр: AORПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3AEC875C5F81F978ACD3B0F78656B60C264DB44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702073   (115997) от 23.02.2024
-
-Amaranthe - The Catalyst (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metal, Power Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Catalyst [3:41]
-02 - Insatiable [3:00]
-03 - Damnation Flame [3:34]
-04 - Liberated [3:07](   Читать дальше...   )Жанр: Melodic Metal, Power Metal, MetalcoreПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2102EE3B978E35804D1EF36ED596AFA31BD8B30D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701901   (115998) от 23.02.2024
-
-Metalite - 4 Albums, 1 Live, 5 Singles (2017-2024) [MP3|320 Kbps] <Modern Metal, Power Metal, Female vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115998.jpg" />
-</div>
-
-
-###  Подробнее
-
-2017 Heroes In Time (Japan)
-2018 Afterlife (Piano Version) (Single)
-2018 Nightmare (K-Line Sandmaniac Remix) (Single)
-2019 Biomechanicals (Japan)Жанр: Modern Metal, Power Metal, Female vocalПродолжительность: 04:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E17CEC2CCDF96C8D9F27031232A043D80B6CCB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702019   (115999) от 23.02.2024
-
-Николай Эрденко и ансамбль Джанг - Лучшие цыганские песни (2000) [MP3|320 Kbps] <Folk>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москва златоглавая 4:05
-02. Пойте, цыгане... 4:14
-03. Дорогой длинною 3:50
-04. Ехали цыгане 1:46(   Читать дальше...   )Жанр: FolkПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76558602654603E9CB02DD5944C2E6FACF766C2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701887   (116000) от 23.02.2024
-
-Обмани глаз / Trompe l'oeil / The Broken Mirror (1975) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энн живет со своим мужем в Бельгии, где работает реставратором картин. Когда она забеременела, она обнаружила, что вспоминает картину, которую написала некоторое время назад и о которой у нее нет никаких воспоминаний, никаких воспоминаний о том, что с ней случилось. Ее целью становится обнаружить и прояснить тайну, стоящую за этой картиной, в то же время она замечает (   Читать дальше...   )Производство: Франция, Бельгия / Kaldea, Kobra, Office de Radiodiffusion Television Française (ORTF)Жанр: драмаРежиссер: Клод д’АннаАктеры: Макс фон Сюдов, Лора Дешанель, Мишлин Прель, Франсуа Арналь, Моник Флюзин, Федор Аткин, Клер Вотьон, Мари ФершуэренПеревод: Авторский (Алексей Яковлев)Язык озвучки: русский, английский, французскийСубтитры: английские (Full, SDH)Продолжительность: 01:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB701EA40BE9AADB03001ED29E7A5A126E57FDFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701989   (116001) от 23.02.2024
-
-Наталья Сенчукова - Мама Луна (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дежавю (feat. Виктор Рыбин)
-02. Мама Луна
-03. Я полечу за тобою в Рай
-04. Прочерки(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A49E0B087A74A38C7A762601B59EFA4484DC65C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702122   (116002) от 23.02.2024
-
-Карманник / Pickpocket (1959) BDRip [H.264] [MVO/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мишель начинает карьеру карманного воришки - от безделья. Криминальному хобби вскоре приходит конец - вора-дилетанта быстренько «заметает» полиция. Но из-за отсутствия улик Мишеля отпускают. Оставшийся без матери и без поддержки своих друзей, он вновь возвращается к мелкому воровству. Но на этот раз ему везёт больше, потому что он берёт уроки у мастера... Самый необычный (   Читать дальше...   )Производство: Франция / Compagnie Cinématographique de FranceЖанр: драма, криминалРежиссер: Робер БрессонАктеры: Мартин ЛаСалль, Марика Грин, Жан Пелегри, Долли Скаль, Пьер Лемари, Кассажи, Пьер Этекс, Сезар Гаттеньо, Софи Сен-Жюст, Доминик ЗардиПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDFFE74E0C317A818B92062F8E5F341DE373A67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702165   (116003) от 23.02.2024
-
-О.М. Аншелес | Вычислительные и графические методы кристаллографии (1939) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство по вычислительным и графическим методам кристаллографии.Жанр: КристаллографияИздательство: Издательство Ленинградского университетаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9D5E8CAA104D1A61084FA1E1CF18987FC07B29
+magnet:?xt=urn:btih:E34BD715212B5B3B40C365F119739950B7180631
 ```
 
 

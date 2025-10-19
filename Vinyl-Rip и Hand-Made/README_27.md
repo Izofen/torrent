@@ -1,700 +1,689 @@
-###  Публикация: 1708548   (113037) от 21.03.2024
+###  Публикация: 1742196   (105577) от 10.08.2024
 
-Здравствуй, песня - Марафон (1982) [FLAC 24/192|Lossless|tracks] <Pop>
+Студия «Заман» - Приятного Вам Отдыха По-нашему (1998) На татарском языке [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-1. Марафон (А. Хаславский)
-2. Просили вы (О. Фельцман — В. Харитонов)
-3. Лепестки в снегу (А. Хаславский — Б. Дубровин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:24
+Сторона А:
+01. Ветер с моря дул
+02. Позови меня с собой
+03. Чашка кофею(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3820322A8D347D377B3D897E77FD31F8C105AF7C
+magnet:?xt=urn:btih:8A98C20DB095FA2A7277AFDC4D03D07D1C29F874
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708542   (113041) от 21.03.2024
+###  Публикация: 1742174   (105586) от 10.08.2024
 
-Евгений Мартынов - Евгений Мартынов поет свои песни (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+Textures - Studio Albums (5 releases) (2003-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Metalcore, Djent>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01 - У Есенина день рождения. (А.Дементьев)
-02 - Свадебный вальс. (Р.Рождественский)
-03 - Трава лебеда. (Н.Добронравов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:36:15
+Textures - голландская прогрессив-метал-группа, образованная в 2001 году.2003 - Polars
+2006 - Drawing Circles
+2008 - Silhouettes
+2011 - DualismЖанр: Progressive Metal, Djent, Math MetalПродолжительность: 04:17:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C69486AF18C6B151EA75ABFED52C83CF7D2FCE59
+magnet:?xt=urn:btih:9D1FC67FD175EE2A83B2ED2907AE2E8287620BB1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708344   (113073) от 20.03.2024
+###  Публикация: 1741516   (105611) от 08.08.2024
 
-Дельта-Оператор - Дельта-2 (1991) [FLAC 24/192|Lossless|tracks] <Hard-Rock>
+Frozen Land - Studio Albums (2 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Пролог (А.Лобачев)
-02. Эмигрант (А.Лобачев,В.Шаров)
-03. Друзьям (А.Лобачев,В.Шаров)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:22
+Frozen Land - пауэр-метал группа из Финляндии, сформированная в 2017 году.2018 - Frozen Land
+2023 - Out Of The DarkЖанр: Power MetalПродолжительность: 01:23:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCF69E7E60AD2D671FFF0025570499355DE7EBFF
+magnet:?xt=urn:btih:E18CC09271746C5776160CA7638CBF33E01D2B82
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708348   (113074) от 20.03.2024
+###  Публикация: 1741340   (105666) от 06.08.2024
 
-Диалог - Ночной дождь (1987) [FLAC 24/192|Lossless|tracks] <Rock>
+Derdian - Studio Albums (8 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01. Гринландия (Музыка и слова К. Брейтбурга)
-02. Рыбак (К. Брейтбург - А. Тарковский)
-03. Флейта (К. Брейтбург - А. Тарковский)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:06
+Derdian - пауэр-метал группа из Италии, Милан, образованная в 1998 году.2005 - New Era Pt. 1
+2007 - New Era Pt. 2: War Of The Gods
+2010 - New Era Pt. 3: The Apocalypse
+2013 - Limbo(   Читать дальше...   )Жанр: Power MetalПродолжительность: 08:41:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3EBBB2FA591FC39156D935BE2D5F4A3EB189C01
+magnet:?xt=urn:btih:F1A7345F8E979EFC41132885DE591AC37B3645FE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708342   (113078) от 20.03.2024
+###  Публикация: 1740289   (105892) от 01.08.2024
 
-Rockets - Wonderland (2019) [FLAC 24/96|Lossless|tracks] <Synth-pop, Space-rock>
+Twilight Force - Studio Albums (4 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Wonderland
-Featuring – Axel Cooper*, Fabrice Pascal*
-A2 Kids From Mars
-A3 Heaven(   Читать дальше...   )Жанр: Synth-pop, Space-rockПродолжительность: 00:41:26
+Twilight Force — шведская симфо-пауэр-метал группа, известная своими фантастическими текстами и костюмами в стиле LARP, в которых группа выступает на сцене.2014 - Tales Of Ancient Prophecies
+2016 - Heroes of Mighty Magic
+2019 - Dawn of the Dragonstar
+2023 - At The Heart Of WintervaleЖанр: Symphonic Power MetalПродолжительность: 03:49:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FDAD33AEFCFBD821CB7FCDEFEA566B5D52613F0
+magnet:?xt=urn:btih:AD589F083EA91A4EDC8B7244B1533D2143A25F54
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708356   (113084) от 20.03.2024
+###  Публикация: 1740125   (105924) от 31.07.2024
 
-VA - Эстрадное обозрение (2 серия) (1961) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
+Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack|Lossless|image + .cue] <Deathcore>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Мистуфль (Ф. Лемарк) — Франсис Лемарк (Франция)
-La Mistoufle (F. Lemarque) — Francis Lemarque
-02. Осёл и крестьянин (Д. Модуньо) — Франсис Лемарк (Франция)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:27:01
+01. Bonebreaker
+02. Demolisher
+03. Baba Yaga
+04. Made In Russia(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:48:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFB07C7B253ABCCEF05875B1FD89FDF0DAEF454A
+magnet:?xt=urn:btih:DD9F79DE075BDAA586E8B9EAE79829324ED6BB15
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708349   (113085) от 20.03.2024
+###  Публикация: 1740039   (105956) от 31.07.2024
 
-Дин Рид (Dean Reed) - Дин Рид (1970) [FLAC 24/192|Lossless|tracks] <Retro, World, Country>
+VA - XXXL 3. Танцевальный Размер (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Europop, Dance-pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Наш летний романс (муз. и сл. Д. Рида)
-Our Summer Romance (D. Reed)
-02. Свободная мелодия (авторы неизвестны*)(   Читать дальше...   )Жанр: Retro, World, CountryПродолжительность: 00:43:05
+Сторона А:
+A1 Тату – Я Сошла С Ума (Remix)
+A2 Жуки – Танкист (Remix)
+A3 Дискотека ''Авария'' – Новогодняя 2001(   Читать дальше...   )Жанр: Europop, Dance-popПродолжительность: 01:17:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3178E7D53CECD0476A70D3D1D5CD295709E3B208
+magnet:?xt=urn:btih:33985487BFFF65198EFA6E2744B08B10A86C2AA2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708341   (113088) от 20.03.2024
+###  Публикация: 1739595   (106014) от 28.07.2024
 
-Stone Temple Pilots - Studio Albums (10 releases) (1992-2020) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Grunge, Hard Rock>
+Abyssphere - Studio Albums (5 releases) (2008-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stone Temple Pilots — хард-рок/гранж-группа, образованная в 1986 году в Сан-Диего, Калифорния.1992 - Core
-1993 - MTV Unplugged
-1994 - Purple
-1996 - Tiny Music...Songs from the Vatican Gift ShopЖанр: Grunge, Hard RockПродолжительность: 07:54:22
+Abyssphere — российская метал-группа, основанная в 2005 году в Санкт-Петербурге.2008 - Images and masks
+2010 - Тени и Сны
+2013 - Снова и Снова (EP)
+2017 - На Пути К ЗабвениюЖанр: Gothic/Doom/Death MetalПродолжительность: 04:55:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:873AC5D9FB44DF74F8E3CDFAE423AC243C4ADCA4
+magnet:?xt=urn:btih:534FDF1537128EB9D12714476C67999D68F55DD8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708358   (113096) от 20.03.2024
+###  Публикация: 1739653   (106016) от 28.07.2024
 
-VA - Яблони в цвету (1976) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
+Mammoth WVH - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Яблони в цвету (Е. Мартынов — И. Резник)
-Евгений Мартынов
-02. Арлекино (Э. Димитров — русский текст В. Баркаса)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:36:58
+Mammoth WVH — американская рок-группа, основанная и возглавляемая Вольфгангом Ван Халеном.2021 - Mammoth WVH
+2023 - Mammoth IIЖанр: Hard RockПродолжительность: 01:59:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FE2C98E209D16FD4AEFB5BB5ED016D83B7C2CA1
+magnet:?xt=urn:btih:C43CE13EE5E9352ECB8AA0D7AE270FA96B106F88
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708241   (113113) от 19.03.2024
+###  Публикация: 1739529   (106028) от 28.07.2024
 
-Darkthrone - Panzerfaust (1995) Reissue, 2010, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
+VA - Дискотека Казанова. Dream House vol. 4 - Спецвыпуск Лето 2003 (2003) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 En Vind Av Sorg
-A2 Triumphant Gleam
-A3 The Hordes Of Nebulah
-B1 Hans Siste Vinter(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:39:01
+Side A:
+01. Kristine Blond - Love Shy
+02. London Underground - Freeze Frame
+03. Pied Pipper - Slip & Slide(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:57:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B0938C55A6F3719B733F2F9F8F41E6F6346CA58
+magnet:?xt=urn:btih:8AC15B595722C16248AC4780FB9C04F6A9546ECC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707767   (113122) от 19.03.2024
+###  Публикация: 1739464   (106046) от 28.07.2024
 
-Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+VA - Остров Сокровищ или В стиле Шансон часть 2 от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Transilvanian Hunger
-A2 Over Fjell Og Gjennom Torner
-A3 Skald Av Satans Sol
-A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
+[5:12] 01. Дрянь (Standart Vers)
+[3:58] 02. Вступление (1 часть)
+[3:30] 03. Буратино!
+[2:25] 04. 22 притопа(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 01:27:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
+magnet:?xt=urn:btih:E9873571A3E50381456E70C77DF99649360238EA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707638   (113147) от 19.03.2024
+###  Публикация: 1739369   (106077) от 27.07.2024
 
-Elektric Music - Esperanto (1993) [FLAC 24/96|Lossless|tracks] <Electronic, Synth-pop>
+KK's Priest - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 TV
-A2 Show Business
-A3 Kissing The Machine
-Lead Vocals – Andy McCluskey(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:47:27
+KK's Priest — британская метал-группа бывшего гитариста Judas Priest Кеннета Даунинга.2021 - Sermons Of The Sinner
+2023 - The Sinner Rides Again (Napalm Records – NPR1264DP)Жанр: Heavy MetalПродолжительность: 01:31:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AABAFE58EC8827D6C617A7E76DF01D18450D4CC
+magnet:?xt=urn:btih:958EDE81E0977B59B69594970F0A19673FD7AAB1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708171   (113154) от 19.03.2024
+###  Публикация: 1739107   (106160) от 26.07.2024
 
-Дельта-Оператор - Дельта-1 (1989) [FLAC 24/192|Lossless|tracks] <Hard Rock>
+Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01. Нам не вернуться назад. (А.Кришта)
-02. Одиночный боец. (Б.Аксенов)
-03. Раб. (А.Арканов)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:10
+Side 1:
+01. Comin' Home
+02. Plaster Caster
+03. Goin' Blind(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD602B5F184342A6225B180F9A1D1D34D8AE5EEA
+magnet:?xt=urn:btih:750255A87788D8E4166172FA9B201E35ECB01E99
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707834   (113177) от 19.03.2024
+###  Публикация: 1738265   (106315) от 22.07.2024
 
-Группа "Лабиринт" - Возьми мое сердце. Песни Сергея Муравьева (1988) [FLAC 24/192|Lossless|tracks] <Pop>
+Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock/Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01 - Обещаю (С. Муравьев — Л. Козлова)
-02 - Горизонт (С. Муравьев — Л. Козлова)
-03 - Возьми мое сердце (С. Муравьев — Л. Козлова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:19
+Riverside — польская рок-группа, образовавшаяся в 2001 году в Варшаве.2003 - Out of Myself
+2005 - Second Life Syndrome
+2007 - Rapid Eye Movement
+2009 - Anno Domini High DefinitionЖанр: Progressive Rock/MetalПродолжительность: 11:09:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41C5A92C810EFB082E0C0779B98530F1E9DB149E
+magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707641   (113180) от 19.03.2024
+###  Публикация: 1738483   (106330) от 22.07.2024
 
-Ganymed - Dimension No.3 (1980) [FLAC 24/96|Lossless|tracks] <Pop, Electronic, Disco>
+Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1-Bring Your Love To Me
-A2-I Want You
-A3-One Day Fool
-A4-Life Can Be Some Better(   Читать дальше...   )Жанр: Pop, Electronic, DiscoПродолжительность: 00:40:50
+Ontborg - мелодик-дэт-метал группа из Мерано, Южный Тироль, Италия.2019 - Within the Depths of Oblivion
+2023 - Following the Steps of DamnationЖанр: Melodic Death MetalПродолжительность: 01:45:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00CF73F01D3BF8E68D8E947EF532B60781A05216
+magnet:?xt=urn:btih:C58410043C9F42253DDA1B1E9CFCB3DBC512B22E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707363   (113183) от 19.03.2024
+###  Публикация: 1737833   (106397) от 20.07.2024
 
-Ансамбль «Дружба» - Ансамбль «Дружба» (Любимые Руки) (1974) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Rock, Pop>
+Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Любимые руки
-(В. Калле - Л. Ошанин)
-02. Старая мелодия
-(А. Ойт - А. Синг, русский текст Л. Дербенева)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:11:50
+Nonpoint — американская рок-группа, образованная в 1997 году в городе Форт-Лодердейл, штат Флорида.1997 - Separate Yourself
+2000 - Statement
+2002 - Development
+2004 - Recoil(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 10:29:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49E9EBCEB4D4A64833AD73429976DD3369389460
+magnet:?xt=urn:btih:8DE88F362409B874F713D03209FF37B07FB8206F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707832   (113184) от 19.03.2024
+###  Публикация: 1737952   (106419) от 20.07.2024
 
-Группа «Маки» - Одесса (1988) [FLAC 24/192|Lossless|tracks] <Pop>
+Kenny Rogers - Greatest Hits (1984) With The First Edition Group (P) 1969 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Одесса (В. Матецкий — М. Танич)
-02. Так случилось (В. Матецкий — М. Шабров)
-03. Когда, когда (В. Добрынин — Л. Дербенев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:29
+A1 Sunshine
+A2 Goodtime Liberator
+A3 Ruben James
+A4 Always Leaving, Always Gone(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
+magnet:?xt=urn:btih:4FE2EB46186F4CD03851D90B98F0696ACCAF9BA9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707843   (113185) от 19.03.2024
+###  Публикация: 1737969   (106438) от 20.07.2024
 
-Давид Тухманов. Александр Барыкин - Ступени (1985) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
+Santana - Santana's Greatest Hits (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Ступени (Д.Тухманов - И.Кохановский)
-02. Элегия (Д.Тухманов - И.Кохановский)
-03. Но все-таки лето! (Д.Тухманов - В.Харитонов)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:30
+A1 Evil Ways
+A2 Jingo
+A3 Hope You're Feeling Better
+A4 Samba Pa Ti(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:35:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75090211A0F7566C92B566FC3D3FB67DB392F90D
+magnet:?xt=urn:btih:4A15D39BD18C031583CF1CD31F6ACEC3100D84B0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707844   (113190) от 19.03.2024
+###  Публикация: 1737571   (106510) от 18.07.2024
 
-VA - От мелодии к мелодии (5 серия) - Концерт итальянской эстрады (1960) [FLAC 24/96|Lossless|tracks] <Pop, Retro, Italo>
+Shokran - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent, Math Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Карина (Поэс);
-02. Нет (Пинбени);
-03. Синьор (Мустаки);
-04. Донна (Крамер);(   Читать дальше...   )Жанр: Pop, Retro, ItaloПродолжительность: 00:16:02
+Shokran — российская рок-группа, исполняющая прогрессивный метал и джент.
+Основана в 2012 году гитаристом Дмитрием Демьяненко.2014 - Supreme Truth
+2016 - Exodus
+2019 - Ethereal
+2024 - Duat(   Читать дальше...   )Жанр: Progressive Metal, Djent, Math MetalПродолжительность: 02:49:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEACDB4145B524CA3CB294A092BD2825C47152FF
+magnet:?xt=urn:btih:3EC85FF1B7C284F0FBADE8D1A26E35EFF69222F1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708169   (113191) от 19.03.2024
+###  Публикация: 1737390   (106536) от 17.07.2024
 
-VA - Эстрадная орбита (1974) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
+Vanden Plas - Studio Albums (12 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Волшебники (Капуано) — Шейла
-Les rois mages (L. Stott, G. Capuano, M. Capuano – C. Carrere, J. Schmitt) — Sheila 1971
-02. Беззаботный (Д. Хартфорд) — Элвис Пресли(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:38:32
+Vanden Plas — немецкая рок-группа, играющая в стиле прогрессивный метал.
+Была образована в середине 80-х годов в немецком городе Кайзерслаутерн.1994 - Colour Temple
+1996 - Accult
+1997 - The God Thing
+1999 - Far Off GraceЖанр: Progressive MetalПродолжительность: 12:17:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A39791309F904E0D8D047E95DAFCD43EF6E69010
+magnet:?xt=urn:btih:8B4A4B0072D46E2BED9E476265E27A2702861E33
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707658   (113193) от 19.03.2024
+###  Публикация: 1736879   (106594) от 14.07.2024
 
-VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|tracks] <Pop>
+Bay City Rollers - 2 Albums (1974, 1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Rock & Roll>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01 - Головокружение (А. Ситковецкий, Л. Гуткин — Н. Олев) — 4.26
-Рок-группа «Автограф». Руководитель А. Ситковецкий
-02 - Две звезды (музыка и слова И. Николаева) — 3.57(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:41
+Жанр: Pop Rock, Rock & RollПродолжительность: 01:16:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BD7B0717C88D51D53C900667CA0D6A8730BF198
+magnet:?xt=urn:btih:F94BA56AEF5B4162000C2EC96B2C4C926F984449
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707846   (113194) от 19.03.2024
+###  Публикация: 1736516   (106701) от 12.07.2024
 
-VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop>
+John Hiatt - Stolen Moments (1990) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01. Байконур (нар. мелодия) – "Гунеш"
-02. Двадцать третий век (Д.Тухманов – С.Кирсанов) – "Веселые ребята"
-03. Колыбельная (О.Фельцман) – "Мелодия"(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:31
+Side One:
+A1 Real Fine Love
+A2 Seven Little Indians
+A3 Child Of The Wild Blue Yonder(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:52:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:362FEC8518B298EFCCBD0863A8736D22758C888E
+magnet:?xt=urn:btih:590B37716A3D6A4F0CAC70B6A1B75434EAD2979D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707646   (113209) от 19.03.2024
+###  Публикация: 1735823   (106821) от 10.07.2024
 
-VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192|Lossless|tracks] <Instrumental, Retro>
+Sting - Fields Of Gold: The Best Of Sting 1984 - 1994 (1994) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-01. Облади облада (Дж. Леннон — П. Маккартни)
-02. Начинай сначала (К. Портер)
-03. Любовь нельзя купить (Дж. Леннон — П. Маккартни)(   Читать дальше...   )Жанр: Instrumental, RetroПродолжительность: 00:35:05
+Side 1:
+A1 When We Dance
+A2 If You Love Somebody Set Them Free
+A3 Fields Of Gold(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:16:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B39B57FA8CCA2C0FF097955D5144BD84C4A91B8
+magnet:?xt=urn:btih:2DFC1969522EA9D7873EAFFDF3B52E02FE58BAA1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707548   (113255) от 17.03.2024
+###  Публикация: 1735247   (106911) от 08.07.2024
 
-M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
+Гелена Великанова - Великие Исполнители России XX Века (2005) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Movie Side
-A1 Goldfish From Hell
-A2 Totally Narley Talking By Katrina & Bill
-A3 Surfin' U.S.A.(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:48:39
+Сторона А:
+01. Жаль, что время ушло
+(М. Табачников - А. Завальнюк)
+02. Ты запой мне эту песню(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60AD2ED7C2A630227DB595ACE1D83F5F5EFC9E90
+magnet:?xt=urn:btih:28FE62D32C366B6937D1CFE2C5C0E2877D902BEC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707660   (113256) от 17.03.2024
+###  Публикация: 1735364   (106951) от 07.07.2024
 
-M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
+Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empire [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Land Of The Free
-A2 Devolution
-A3 Repent
-A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:44:45
+A1 - End All
+A2 - Ruina
+A3 - Acausal Paths
+A4 - (..............)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
+magnet:?xt=urn:btih:49F9D088B770907E2FB7B1472FD02776E87CE433
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707323   (113316) от 16.03.2024
+###  Публикация: 1735366   (106952) от 07.07.2024
 
-VA - Для вас, женщины! Женский портрет (1987) [FLAC 24/192|Lossless|tracks] <Pop>
+Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP, Released, 2017, W.T.C. Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-01. Женский портрет (В. Дорохин — Л. Воропаева)
-Валерий Леонтьев. Инструментальный ансамбль п/у Виктора Дорохина
-02. Я приглашаю вас на праздник (А. Пугачева — Л. Сидоровская)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:36
+A - The Burning Voice
+B - HamartiaЖанр: Black MetalПродолжительность: 00:11:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BED83AEBF4EE2AE0810CA62C2CEBE014F14B3F16
+magnet:?xt=urn:btih:B1C9D194A745C8DEC837854B8951547E5E852457
 ```
 
 

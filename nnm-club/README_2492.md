@@ -1,680 +1,691 @@
-###  Публикация: 1705024   (113846) от 08.03.2024
+###  Публикация: 1805037   (65543) от 03.07.2025
 
-V.A. - In Paris Highlights. CD, Compilation (1995) [FLAC|Lossless|image + .cue] <Jazz, Bop, Hard Bop>
+VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Joe Turner - I've Got The World On A String		02:54
-02. Gerry Mulligan - The Lady Is A Tramp		03:43
-03. VaGerry Mulligan - My Funny Valentine		04:44
-04. Lionel Hampton - I Only Have Eyes For You		03:34(   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 01:14:14
+01.  Lo Greco Bros - Folk Song Bass (4:46)
+02.  Joe Allotta - Leave Me Alone (2:43)
+03.  Tallulah Rose - Friends (4:16)
+04.  Pomante - Dancing Feet (3:54)(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 01:22:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10C68BCEA59253C13203AD6065BBFA02B09C399A
+magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705467   (113847) от 08.03.2024
+###  Публикация: 1805000   (65544) от 03.07.2025
 
-Wade Black's Astronomica - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Лауд - Электрическая Музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side A [00:00:36]
+02. Воздуха нет [00:02:17]
+03. In the Dark [00:02:46]
+04. 123 [00:02:29](   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977520269F247B963147D78FE785F3D315D6E434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804901   (65545) от 03.07.2025
+
+Rusty Sharks - Sexy Demons (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deceiver
-02. Protectors Of The Realm
-03. Destiny
-04. Monsters(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:12
+01. Lock, Stock & Two Smoking Barrels [00:03:40]
+02. One Day in Prison [00:03:45]
+03. Who's Your Neighbour? [00:03:45]
+04. Love Me Deadly [00:04:49](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:32:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D2C00F618ED029E7FD201FE89B25A68F2B62F76
+magnet:?xt=urn:btih:E4A0011A0F97B98C411B96FA7BC4A222B80FA2EF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705485   (113848) от 08.03.2024
+###  Публикация: 1804892   (65546) от 03.07.2025
 
-Генри Джеймс | Рассказы (2014) [MP3, Александр Котов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союз классика.
-Генри Джеймс (1843–1916) – классик американской литературы, писатель-экспериментатор и теоретик литературы, автор сложной психологической прозы.
-В этом сборнике вас ждут аудиоверсии некоторых рассказов писателя: «Урок мастера», «Ученик», «В клетке».
-Переводчик Алексей Матвеевич Шадрин.(   Читать дальше...   )Жанр: Зарубежная литература, классика, повесть, рассказИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 10:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8388361ADF770ED5863A5F38354B2AEACB8D4F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705286   (113849) от 08.03.2024
-
-Antar Goodwin - The Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grandma Said (3:26)
-02. Shotgun (3:57)
-03. Tired (4:00)
-04. Angels (5:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4ED0D8B93991D6FF46F9BD41CDA321625CC520
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705382   (113850) от 08.03.2024
-
-Downie 4 v.4.7.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2024Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.14.6 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4033B01BC239D33056AADE7E3185F2CD5D6115D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705440   (113851) от 08.03.2024
-
-Сто к одному (08.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113851.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Оризонт" против команды "Кантеле"Язык озвучки: РусскийПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9754B4A958649221AC652DC0C27DE45F43C618F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705315   (113852) от 08.03.2024
-
-Wynton Marsalis & The Lincoln Center Jazz Orchestra - Experience Jazz Like Never Before (2003) Marnier-Lapostolle [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oska-T [11:41]
-02. My Favorite Things [4:15]
-03. Continuous [5:04]
-04. Dizzy Atmosphere [5:41](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Big BandПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BECD51A726C324FFB7425F7893D147FE61E8F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705493   (113853) от 08.03.2024
-
-Благовест | Святые Петр и Феврония Муромские (2011) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о святых Петре и Февронии содержит их жизнеописание, историю их почитания, рассказ о Свято-Троицком монастыре, где покоятся мощи святых, акафист и молитвы святым Петру и Февронии. Также в качестве приложений даны: слово Святейшего Патриарха Кирилла в день памяти святых Петра и Февронии, «Повесть о Петре и Февронии» Ермолая-Еразма, история Мурома, где прошла (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2245E258F748109EAFD99CB1EE2789B53FB76CD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705319   (113854) от 08.03.2024
-
-EagleFiler 1.9.13 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113854.jpg" />
-</div>
-
-
-###  Подробнее
-
-EagleFiler - приложение, позволяющая собирать, организовывать и архивировать почту, веб-страницы, текстовые документы, изображения, PDF другие файлы из различных источников. Все файлы можно организовывать по папкам, добавлять к ним комментарии и заметки, прописывать тэги. А для безопасности всю эту библиотеку файлов можно зашифровать.
-EagleFiler позволяет создавать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2002–2022 C-Command Software, LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A02C94C02A594FCAEFF5805AD8EA3AD7A459A798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705387   (113855) от 08.03.2024
-
-Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Земле) (1985) 1987 [FLAC 24/192|Lossless|tracks] <Jazz, Pop, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Звуки над водой. Sound Over All Waters.
-02 - Колыбельная матушки Китихи маленьким тюленям. Lullaby From The Great Mother Whale For The Baby Seal Pups.
-03 - Песня Земле. Song For The Earth. (Джим Скотт, вокал)(   Читать дальше...   )Жанр: Jazz, Pop, FolkПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1724DCF1C790729F91E7114C0A378FA8EF263D55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705293   (113856) от 08.03.2024
-
-Eric Warren - Reminisce (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake It (3:13)
-02. Breakdown (3:11)
-03. Nothing Could Come Between Us (3:35)
-04. Leader of Men (3:36)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Hard RockПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E45570109618A907C283EFDDB3527A2BB3E4FC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705289   (113857) от 08.03.2024
-
-Dan Patlansky - Movin' On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Velvet Suit (4:28)
-02. Who I Am (5:10)
-03. Humbled (4:56)
-04. Movin’ On (6:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10AAF684575FC3DB0B45573E4E6BBBEE8301C49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705296   (113858) от 08.03.2024
-
-Handsome Jack - A Good Thing (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind It Up (3:39)
-02. Tough Love (3:33)
-03. She Don't Know How to Rock and Roll (3:34)
-04. It's Understood (3:47)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22B93BB315F7E7889ADA74CF63F40355E2431CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705312   (113859) от 08.03.2024
-
-Stephane Grappelli - Just One Of Those Things (1973) 1992, Black Lion [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One of Those Things [6:39]
-02. Misty [5:25]
-03. More [8:50]
-04. All God's Chillun' Got Rhythm [5:03](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Violin JazzПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C7E4F8D12CB6086F9BE5B333B0EDBE56FBB31D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705309   (113860) от 08.03.2024
-
-Dick Haymes - Till The End Of Time (1940 - 1950) 2CD, 2004, Living Era [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little White Lies [3:16]
-02. Serenade in Blue [3:17]
-03. Long Ago and Far Away [3:26]
-04. Love Letters [2:47](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 02:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C0F88FF050FD98A89C5D6D1FCDDE7D9CD19920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705335   (113861) от 08.03.2024
-
-The End Machine - The Quantum Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Rusty Sharks - Long way to freedom (2025) [MP3|320 Kbps] <Rockabilly, Psychobilly>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Hole Extinction
-02. Silent Winter
-03. Killer Of The Night
-04. Hell Or High Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:45
+1.  - Maniac [00:03:26]
+2.  - Psychobilly Town [00:03:22]
+3.  - Walking Dead [00:02:01]
+4.  - Bored with Your Tattoos [00:03:03](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:29:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2010D32463107EBE9330F76DB00D503D00C1C02
+magnet:?xt=urn:btih:F98C7E78326FFE6BF48318E609817B05B7297351
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705458   (113862) от 08.03.2024
+###  Публикация: 1805061   (65547) от 03.07.2025
 
-Роберт Янг | Девушка-одуванчик (2023) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113862.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Встретив однажды во время прогулки за городом девушку, он и предположить не мог, что она действительно пришла из Будущего, и что это Будущее может стать частью его Прошлого." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480F7FF35CA8675DDFB551B9B8EADB92AB084F04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705403   (113863) от 08.03.2024
-
-QOwnNotes 24.3.0 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113863.jpg" />
-</div>
-
-
-###  Подробнее
-
-QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADC141F7E03F3F1998450EBE7D65CCCEBF2A11B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705250   (113864) от 08.03.2024
-
-Dion - Girl Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Singer-Songwriter>
+Jump Back - Misunderstood (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soul Force (4:18)
-02. I Aim To Please (4:23)
-03. Stop Drop And Roll (4:47)
-04. Do Ladies Get The Blues (4:32)(   Читать дальше...   )Жанр: Blues, Blues Rock, Singer-SongwriterПродолжительность: 00:52:27
+01.  I'll Move On (4:33)
+02.  Evil Might Win (3:41)
+03.  Can I Play the Blues? (4:35)
+04.  The Sting (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13DA278495BB8A3D94B4A56BE558D2989AAE26F3
+magnet:?xt=urn:btih:C93F59DDAC5501DA77E7CF860F8AFECCF8FC63EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705287   (113865) от 08.03.2024
+###  Публикация: 1805042   (65548) от 03.07.2025
 
-Black Cat Bone - Tales of the Amplified (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Blues Against The Machine - Blues Against The Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hold On Stay Strong (4:32)
+02.  I Ain't Got No Money (2:45)
+03.  I'm The One To Blame (4:58)
+04.  It Is Causing Me Pain (7:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558CCDF83D061C412FEDA372EDF14557419CF9E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804855   (65549) от 02.07.2025
+
+MYR - Helvegen (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - December Coma [7:42]
+02 - In Perpetum [5:05]
+03 - Brennt [4:30]
+04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBAC7EA9696E70C471ED1B5AB01BFDB8625CC86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804863   (65550) от 02.07.2025
+
+Burnt By Hatred - Myth Or Mortal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undertone (4:10)
-02. Shake It! (4:43)
-03. Out on Love (2:43)
-04. Freak Machine (5:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:52
+1 - Decadence [1:59]
+2 - Within Reach [4:58]
+3 - A Paths Deceit [6:13]
+4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:828DC1B5AD2F913D4180DBEC465E75D44802EFD5
+magnet:?xt=urn:btih:CCA34B252AEE7558606C2D37659DC0C9C6D8FC93
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705425   (113866) от 08.03.2024
+###  Публикация: 1804848   (65551) от 02.07.2025
 
-Судьба человека с Борисом Корчевниковым. Регина Дубовицкая. (09.02.2024) WEBRip [H.264/1080p]
+MYR - Helvegen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Metal>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-Многие (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Регина ДубовицкаяЯзык озвучки: РусскийПродолжительность: 00:52:04
+01 - December Coma [7:42]
+02 - In Perpetum [5:05]
+03 - Brennt [4:30]
+04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD120BDB03BC5AD228C9B56A6C4C1FE757FAF401
+magnet:?xt=urn:btih:B9BA121A3996F8FA965B5551E48B0AF0008B97D2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705506   (113867) от 08.03.2024
+###  Публикация: 1804866   (65552) от 02.07.2025
 
-Архимандрит Наум (Байбородин) | Ходатаица земной и вечной радости. О Пресвятой Богородице (2019) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается сборник трудов архимандрита Наума (Байбородина; 1927–2017) о Пресвятой Богородице. Книга рассказывает о том, как стать любезными Божией Матери, как стяжать Ее всесильный Покров и заступление. Сборник содержит пересказ летописных сказаний и исторических фактов о Руси как уделе Божией Матери. В сборник включены также составленные о. (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6D5837FBB6C52EE5C815A6878CAEC6792F8575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705503   (113868) от 08.03.2024
-
-Sticky Fingers - Caress Your Soul (2013) Remaster, 2024, Abbey Road [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+Burnt By Hatred - Myth Or Mortal (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. How To Fly (Abbey Road Remaster 2024) [00:03:25]
-02. Clouds & Cream (Abbey Road Remaster 2024) [00:03:00]
-03. Australia Street (Abbey Road Remaster 2024) [00:03:41]
-04. These Girls (Abbey Road Remaster 2024) [00:03:25](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:39:40
+1 - Decadence [1:59]
+2 - Within Reach [4:58]
+3 - A Paths Deceit [6:13]
+4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:315BE23869BD0C471227D0DBBBE4FA27E731E19A
+magnet:?xt=urn:btih:BD1414104290D0F2F1A180DD9B3F88FCCA7B621B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705390   (113869) от 08.03.2024
+###  Публикация: 1804739   (65553) от 01.07.2025
 
-PowerDirector – Video Editor v13.3.0 b1227071 Mod by Balatan [Ru/Multi]
+Exsequor - Death From Above (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.03.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+01. Death From Above [00:04:19]
+02. They Watched [00:05:00]
+03. Your Truth [00:04:04]
+04. Nothing’s Certain [00:04:11](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 01:02:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD2F629DCBA0A0D339A0C5EDAD88FE7CCFFAC225
+magnet:?xt=urn:btih:0DD30CDD295EA51AADEC6FDC8ECC5B0EC12D366D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705383   (113870) от 08.03.2024
+###  Публикация: 1804700   (65554) от 01.07.2025
 
-Paul Anka - Paul Anka (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+Иван Гончаров | Другой (2025) [MP3, Андрей Толубеев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
+Роман «Обломов» – повествование о человеке, который, не прельщаясь ни фортуной, ни карьерой, «залёг в берлогу». Чем больше вчитываешься в «Обломова» сегодня, тем меньше раздражает и возмущает его любовь к дивану и (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6998693DEFF1608F1AC4D472DC395688E978ABDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804746   (65555) от 01.07.2025
+
+Putridity - Morbid Ataraxia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prenatal Obituary [00:02:06]
+02. Mors Mater Nostra [00:03:38]
+03. In Disgust They Shine [00:02:38]
+04. Adipocere Retribution [00:03:19](   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C10DE9411C8D27DCE23E2F47C0C1E8337A1ACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804652   (65556) от 01.07.2025
+
+VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Mister Funk - Beat Stuff (3:24)
+02.  Afro Dub - 7 Free To Travel (3:20)
+03.  Afro Dub - Afro Funk Beach (3:12)
+04.  Afro Dub - First Night (3:30)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22A451008E7D16D5D50DF850725F359323869F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804726   (65557) от 01.07.2025
+
+Иван Гончаров | Мильон терзаний (2018) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
+Студия «МедиаКнига» представляет аудиокнигу русского писателя Ивана Александровича Гончарова «Мильон терзаний». Книга прочитана популярным артистом Михаилом Росляковым.
+Известный критический этюд И.А. Гончарова, посвященный (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: МедиаКнигаПродолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8B4CE02FC8FC323D8DB20BF36DE3E544ABBA17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804694   (65558) от 01.07.2025
+
+The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side One.
-01 - We Made It Happen. (Anka. Gosh)
-02 - Everything's Been Changed. (Anka. Hogan)
-03 - There Is Something I'd Like To Say To You. (Anka. Hogan)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:28
+A1 - Conspire To Deceive
+A2 - Detonate
+A3 - Our Channel To The Darkness
+A4 - Cruel Perception(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:037CD06CAB8D2E91C1D4FFEA0FBEC4F3F79CDFFF
+magnet:?xt=urn:btih:7FD292E51446BC457B6406BE58E909B68EBD66DA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705421   (113871) от 08.03.2024
+###  Публикация: 1804766   (65559) от 01.07.2025
 
-Судьба человека с Борисом Корчевниковым. Юрий Кузнецов. (02.02.2024) WEBRip [H.264/1080p]
+Keef Baker - K (2024) [FLAC|Lossless|Web-DL|tracks] <IDM, Synthwave, Techno>
 
->>Документалистика и Телепередачи
->>Посвящение искусству
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-За плечами (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Юрий КузнецовЯзык озвучки: РусскийПродолжительность: 00:52:17
+01. Flecks (06:24)
+02. Two Dimensional Time (11:04)
+03. Foxglove (05:07)
+04. Dangerman (04:41)(   Читать дальше...   )Жанр: IDM, Synthwave, TechnoПродолжительность: 00:48:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:846FAB92C98AA8C5931597454FE28FE0C4050A58
+magnet:?xt=urn:btih:715D0D70F28537D79EC7E06294C53AE6F5623091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804769   (65560) от 01.07.2025
+
+Lane 8 - Summer 2025 Mixtape (2025-06-18) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Bandit - One Eyed
+02. ID - ID
+03. ID - ID
+04. Rebel Of Sleep - Distant Thoughts(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 03:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB4E8C548FDE8979E4B4B8BA97517B09C10C265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804649   (65561) от 01.07.2025
+
+Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Funk In The Jungle (Dub Mix) (3:35)
+02.  Free In The Jungle (3:58)
+03.  Energizer (3:14)
+04.  Esotick (4:20)(   Читать дальше...   )Жанр: FunkПродолжительность: 02:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF37D8D4985453E47EE1F780CE1F3B13A00903A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804710   (65562) от 01.07.2025
+
+Joe Morello - Morello Standard Time (1994) DMP [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paper Moon [5:35]
+02. When You Wish Upon A Star [6:42]
+03. One For Amos [5:12]
+04. Take Five [6:42](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6E69A301E8991B7A2654D0241C7B82BB3E6D37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804678   (65563) от 01.07.2025
+
+Avkrvst - The Approbation (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Progressive Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Østerdalen 0:26
+2. The Pale Moon 6:15
+3. Isolation 5:40
+4. The Great White River 6:30(   Читать дальше...   )Жанр: Prog Rock, Progressive Metal, Melodic Death MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC11A69BEFD63B944ABA8EA3CF91381472BF61A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804755   (65564) от 01.07.2025
+
+Herrementari - Against Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal, Hardcore, Blackened>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Cult [00:03:09]
+02. Hammering the Sinners (Streaming Version) [00:02:17]
+03. "The Cælestial Beast is Rotten." (Streaming Version) [00:02:45]
+04. Que Minjam eths Nosti Mòrts [00:03:35](   Читать дальше...   )Жанр: Death Metal, Hardcore, BlackenedПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E970EDA492147292E2FB9A5B60E74E69ABD0DB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804685   (65565) от 01.07.2025
+
+Exmortus - Necrophony (2023) [FLAC|Lossless|image + .cue] <Neoclassical, Technical Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masquerade
+02. Mask Of Red Death
+03. Oathbreaker
+04. Mind Of Metal(   Читать дальше...   )Жанр: Neoclassical, Technical Thrash, Death MetalПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42A2BD392FAA5911CB5210D3BD2B567C0DD2170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804741   (65566) от 01.07.2025
+
+Растровый клипарт - Envato - Skate and Destroy - 75+ Punk Stickers Vol. 1 - EVLSX42 [EPS, SVG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дайте волю грубому отношению и скейт-панковскому бунту с этим огромным набором наклеек Skate and Destroy . Наполненная более чем 75 нарисованными от руки графическими изображениями, эта коллекция передает сырую энергию DIY андеграундных скейт-журналов 80-х–90-х годов, хардкор-панк-листовок и гаражной культуры. Каждая наклейка создана с четкими контурами, высокой (   Читать дальше...   )Формат: EPS, SVG, PNGРазрешение файлов: 568x1034 - 6942x2406
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEF2FB92846D4E9D75E4C8719BF06DBAA3D951E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804648   (65567) от 01.07.2025
+
+Бернард Кинг | Привычки успешных людей (2014) [MP3, Алексей Мужицкий]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дональд Трамп, Рэй Крок и даже Генри Форд жили с этим! Да, как ни удивительно, но и у самых богатых людей мира есть свои привычки. Именно они привели их к славе, деньгам и успеху. Так узнайте же, как привыкли действовать, общаться, думать, руководить и, наконец, просто жить успешные люди.
+Четко видеть конечную цель. Нацеленность на результатЖанр: Личные финансы, Просто о бизнесеИздательство: AB PublishingПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3A90086FBBDD144E2F6AA849DD2F49CE204773
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804597   (65568) от 01.07.2025
+
+Журнал | Эксперт №6 (18) (июнь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Эксперт» — одно из самых влиятельных еженедельных деловых аналитических изданий России. За 14 лет своего существования в непростых политических и экономических условиях изданию удалось не только выжить и сохранить своих читателей, но и расширить их круг, заслужив репутацию несомненного лидера российской деловой журнальной прессы. Все наши знания и опыт нацелены (   Читать дальше...   )Жанр: Экономика, политикаИздательство: ООО "Эксперт.Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AB8B4885520735AB75CC101B08B8AE4E471B06
 ```
 
 

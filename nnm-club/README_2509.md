@@ -1,680 +1,665 @@
-###  Публикация: 1704350   (114288) от 04.03.2024
+###  Публикация: 1802715   (65985) от 19.06.2025
 
-Charles Williams - Trees And Grass And Things (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
+Текстуры - CCpreset - Envato - 20 Wood Texture HQ - W7DN6RG [JPG]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Trees and Grass and Things [4:37]
-02. Chop! Chop! [4:41]
-03. Cracklin' Bread [7:35]
-04. Exactly Like You [4:43](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:38:32
+Набор из 20 текстур дерева с высоким разрешением.Формат: JPGРазрешение файлов: 6000 x 4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF5E5C7752F98DDE3AEA777710A1D549E53834DD
+magnet:?xt=urn:btih:C5EB86DCCF210BA8C7E3F090F16B8F41B0967BE3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704360   (114289) от 04.03.2024
+###  Публикация: 1802825   (65986) от 19.06.2025
 
-Codepoint for Mac 1.14 [Multi]
+Тихая ночь, смертельная ночь 5: Создатель игрушек / Silent Night, Deadly Night 5: The Toy Maker (1991) BDRip [H.265/1080p] [10-bit] [AVO]
 
->>Архив торрентов
->>Архив 4Apple
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
-Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2022–2024 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
+Злой кукольный мастер Джо Петто и его странный сын Пино делают рождественские игрушки-убийцы и рассылают их по всему городу.Производство: США / Still Silent Films Inc.Жанр: ужасыРежиссер: Мартин КитроссерАктеры: Уильям Торн, Джейн Хиггинсон, Ван Кваттро, Трэйси Фрэйм, Нейт Хантер, Конан Юзна, Микки Руни, Брайан Бремер, Джерри Блэк, Клинт ХовардПеревод: авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:26:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70B103A8EA469F4EBC934EF4308E37FEC8EC2D74
+magnet:?xt=urn:btih:B073398D4D09ECE7D00767CB268C72631F72C1E7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704353   (114290) от 04.03.2024
+###  Публикация: 1802718   (65987) от 19.06.2025
 
-Wynton Marsalis - Wynton Marsalis (1982) CBS [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Фоны - FadeLine_Std - Envato - Old Steel Gradient Texture Background [JPG]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Father Time [8:13]
-02. I'll Be There When the Time Is Right [2:35]
-03. RJ [3:51]
-04. Hesitation [5:45](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:41:09
+Фоны с градиентной текстурой старой (ржавой) стали.Формат: JPGРазрешение файлов: 6400 x 4400
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C99F713A54D5DCB76ED6F52AEB28DBEB2CF785B
+magnet:?xt=urn:btih:2F99EEAD8F65CEC05E63BB1083695E654AD3EB32
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704520   (114291) от 04.03.2024
+###  Публикация: 1802726   (65988) от 19.06.2025
 
-Believer - Transhuman (2011) [FLAC|Lossless|image + .cue] <Progressive, Technical Thrash Metal>
+Текстуры - NassyArt - Envato - 20 White Marble Gold Textures - JWSSV6B [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор мраморных текстур с золотыми прожилками.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B764DE60EDD5626D8FD6EBD00750CBF2124B75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802716   (65989) от 19.06.2025
+
+Текстуры - CCpreset - Envato - 20 Table Texture HQ - SZSMB4X [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 20 текстур дерева с высоким разрешением.Формат: JPGРазрешение файлов: 6300 x 4200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E152B06B915D99B4376D62DF4F5C39521DCA004A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802767   (65990) от 19.06.2025
+
+Дарья Кириенко | Малайзия изнутри. Как на самом деле живут в стране вечного лета, дурианов и райских пляжей? (2022) [MP3, Марина Тропина]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Малайзия изнутри» посвящена всем, кому не хватает ярких летних пейзажей, фестивалей и праздников. Тем, кто хочет узнать больше о невероятной стране контрастов и проникнуться неповторимой атмосферой.
+
+Дарья Кириенко знает все о жизни в Малайзии и сможет поделиться своим опытом, впечатлениями и советами.
+(   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 08:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F48B01D63E843C8BA8C4B96C1C1E3BF4E0A408F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802770   (65991) от 19.06.2025
+
+Виктория Станкеева | Австралия изнутри. Как на самом деле живут в стране вверх тормашками? (2022) [MP3, Екатерина Булгару]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что мы знаем об Австралии?
+
+Это страна, которая расположилась на отдельном материке и где пустыни занимают почти половину площади. Здесь опаснейшие животные соседствуют с милыми кенгуру и коалами, а также находится Большой Барьерный риф – крупнейший живой организм на Земле, который виден даже из космоса! Но Австралия – это намного больше, чем знаковые достопримечательности (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 04:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8257504C37F39FE38BA032989CF669B122A819D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802775   (65992) от 19.06.2025
+
+Мария Благушина | Бразилия изнутри. Как на самом деле живут в жаркой стране карнавалов? (2024) [MP3, Анна Османова]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что вы знаете о Бразилии?
+
+Наверняка вы слышали о ярких и красочных карнавалах, которые здесь проводятся с особым размахом, хоть раз видели культовые бразильские сериалы вроде «Рабыни Изауры» или «Клона» и точно знаете про главную визитную карточку Рио-де-Жанейро – статую Христа-Искупителя, которая входит в список Новых семи чудес света. Это пятая страна в мире по (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 05:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013A19FAE946ECBD01E723C67AFCCDA2EB5947BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802728   (65993) от 19.06.2025
+
+Фоны - kaleriia - Envato - White Plush Backgrounds - 8SYQAU7 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65993.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 белых плюшевых фонов.Формат: JPGРазрешение файлов: 5000 x 3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA87C9384BCDEFAC775FC36D9504CF5CB460ACE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802723   (65994) от 19.06.2025
+
+Фоны - FreezeronMedia - Envato - Halftone Red Silk Backgrounds - BT7TLXW [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с красным шелком.Формат: JPGРазрешение файлов: 5000 x 3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFEF5591A5B414FB21E7D10EE95C490798722DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802754   (65995) от 19.06.2025
+
+Беляночка и Розочка / Schneeweißchen und Rosenrot (1979) BDRip [H.264/720p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по мотивам сказки братьев Гримм о двух сёстрах... Беляночка и Розочка живут в заброшенной долине со своей матерью. Эта долина была покинута людьми из-за поверья, что в старой штольне поселился злой горный дух. Однажды на ярмарке Беляночка и Розочка встречают двух принцев, которые выдают себя за простых охотников. Принцы влюбляются в девушек и, стремясь помочь (   Читать дальше...   )Производство: Германия (ГДР) / DEFA-Studio, Künstlerische Arbeitsgruppe JohannisthalЖанр: СказкаРежиссер: Зигфрид ХартманнАктеры: Юлия Юристова, Катрин Мартин (I), Павел Травничек, Бодо Волф, Ханс-Питер Минетти, Йоханнес Вике, Аннемоне Хазе, Хайо Менде, Хельмут Шнайбер, Педро ХебенштрайтПеревод: дублированный (Киностудия им. М. Горького)Язык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5760A1F5527DFD46E24A9280EA7BF01CA66DA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802808   (65996) от 19.06.2025
+
+Журнал | Питомник и частный сад №2 (92) (2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал рассчитан на сотрудников питомников, фермеров, коллекционеров, озеленителей и садоводов-любителей. Отличается серьезным содержанием и доступной формой изложения материала, разнообразием тем и рубрик. В журнале отражены способы размножения растений, приёмы агротехники, приведены обзоры видов и сортов плодовых и декоративных культур, принципы планировки сада (   Читать дальше...   )Жанр: Дачно-садовый мирИздательство: ООО "НИИСОК"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155F3EBA4C67ACF5C3348BA5451F1A9AD2FC0F95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802853   (65997) от 19.06.2025
+
+Alestorm - The Thunderfist Chronicles (2025) [MP3|320 Kbps] <Power Metal, Folk Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lie Awake
-02. G.U.T
-03. Multiverse
-04. End Of Infinity(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:54:06
+01. Hyperion Omniriff
+02. Killed to Death by Piracy
+03. Banana
+04. Frozen Piss 2(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:45:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11A8E5201BB9A556F6209BE2DF3D93B4CFB82C96
+magnet:?xt=urn:btih:6DD7BC72076BC9F3DD1825F64B7DC32FC6F6D860
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704466   (114292) от 04.03.2024
+###  Публикация: 1802786   (65998) от 19.06.2025
 
-EdgeView 4 v.4.6.0 [En]
+Shujaat Khan - Call of the River (2008) 2024 Saregama India Ltd [FLAC|Lossless|WEB-DL|tracks] <World>
 
->>Архив торрентов
->>Архив 4Apple
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+01. Utpatti(Creation) (9:08)
+02. Utsav(Celebration) (9:16)
+03. Ranjha(Colour Of Love) (9:25)
+04. Benares(Back To Life) (6:42)(   Читать дальше...   )Жанр: WorldПродолжительность: 00:48:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D196BFAF2566F82E7752F3C1B0465C8432FCE8E
+magnet:?xt=urn:btih:974EB8073DE173C7986DEF7432F028A79A0C6B5A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704140   (114293) от 04.03.2024
+###  Публикация: 1802705   (65999) от 19.06.2025
 
-Hunter Francis - Daggermouth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Nick Carter - LOVE LIFE TRAGEDY (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Daggermouth (4:15)
-02. Never Forget (2:37)
-03. Mud Water (4:21)
-04. Let You Down (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:28
+01. Made For Us [00:03:27]
+02. Nothing Without Your Love [00:03:31]
+03. Good Love [00:02:56]
+04. Hey Kid [00:03:35](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4583F129F0E2270F4BD479BB40041594C62E8A5D
+magnet:?xt=urn:btih:853820F2A72B4270FD5B9C39B803B85886610823
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704515   (114294) от 04.03.2024
+###  Публикация: 1802645   (66000) от 18.06.2025
 
-Feeder 4 v.4.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
-С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5C89F6BE85D80A37607577FB7EBFBCC678C9C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704448   (114295) от 04.03.2024
-
-Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Euthanasia
-03 - Illusions of life
-04 - Hangman's confession(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5D1A82E8F3555CAD98E54477CD7F95461A6B1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704137   (114296) от 04.03.2024
-
-Calming Jazz Relax Academy - Instrumental Meditation: Calm Mindfulness Session with Piano, Violin and Harp (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Peace (4:10)
-02. Inner Happiness (3:52)
-03. True Emotions (4:10)
-04. Heavenly Piano (3:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570001576E29DE793FB5DC5625C02540BFD9CF54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704427   (114297) от 04.03.2024
-
-Бонни Дзякс (Япония) - Квартет "Бонни Дзякс" (1982) [FLAC 24/96|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A
-01 - Море В Чашке Кофе
-02 - Ресторан Для Птиц
-03 - Продаются Золотые Рыбки(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBA5551A2B8AC030160016A0D5A8C5D91AD9066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704288   (114298) от 04.03.2024
-
-Своя игра (03.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114298.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD84666CC8541E7F9D2E997FC04001EC3E813AAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704178   (114299) от 04.03.2024
-
-AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock 'n' Roll Damnation
-02. Down Payment Blues
-03. Gimme a Bullet
-04. Riff Raff(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1900260B7544077A876F8BDC733B2192B28E76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704486   (114300) от 04.03.2024
-
-VA - Greatest Jazz Lounge Smooth Instrumentals to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+Catfish - SAME THING EVERY DAY (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chillaxing Jazz Kollektion - Whispers (4:54)
-02. Chillaxonic - Oasis (4:58)
-03. Kool&Klean - The Sea (6:11)
-04. Chillaxing Jazz Kollektion - Blue Pacific (4:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:49:02
+01.  Who's booging my woogie (3:34)
+02.  Too much monkey business (2:31)
+03.  Bopping the blues (2:52)
+04.  What about love ? (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8871E183FA740C2DFB889C8EAB384A087CA8B6F4
+magnet:?xt=urn:btih:F3D250B29BF89F82CFC9CD6F51F31CBFCF9C9E16
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704126   (114301) от 04.03.2024
+###  Публикация: 1802670   (66001) от 18.06.2025
 
-Odd Chap - Collaborations (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy out There (3:15)
-02. (Hey, Brother) What Have You Done? (2:59)
-03. Highway Romance (3:33)
-04. Take the Night (2:58)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE4FD84DC78B31A09B36485CD2989333661B7B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704443   (114302) от 04.03.2024
-
-StopTheMadness 40.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114302.jpg" />
-</div>
-
-
-###  Подробнее
-
-StopTheMadness — это расширение для браузеров Safari, Firefox, Google Chrome и Chromium, которое не позволяет веб-сайтам усложнять использование вашего браузера. И это защищает вашу конфиденциальность. StopTheMadness не является блокировщиком рекламы: он предлагает уникальные функции, недоступные в блокировщиках рекламы или любых других приложениях. StopTheMadness (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2018 Jeffrey JohnsonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A47BC4797AF3D43F4B578BDAF9B0C2FE798349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704468   (114303) от 04.03.2024
-
-SnapMotion Unlimited for Mac 5.2.1. [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114303.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapMotion - приложение, которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
-SnapMotion имеет два режима:
-● Ручной режим, где вы можете извлекать изображения точно в установленное время.
-● Режим пакетной обработки, где вы можете извлечь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2012-2020 Jérémy VizziniПоддерживаемая ОС: macOS 11.0.+Язык интерфейса: Английский, Немецки и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C075623129C89C1A50848FC4B9AF3B54EF911C28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704383   (114304) от 04.03.2024
-
-Van Morrison - The Legendary Bang Sessions (1994) Remaster, 2024, Charly Digital[FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brown Eyed Girl (Studio Alternate) (3:34)
-02. He Ain't Give You None (Studio Alternate) (5:50)
-03. T.B. Sheets (9:37)
-04. Spanish Rose (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F704F6B0B808A82309E4CCDA6A5E77AA02AEE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704156   (114305) от 04.03.2024
-
-Timo Lassy and Jukka Eskola - Nordic Stew (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Duke of Bayou (3:50)
-02. King Cake (4:28)
-03. Long Walk (4:32)
-04. Sweet Holler (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA79747BC86F474E38FD72C8090BCC2F81B9EA89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704145   (114306) от 04.03.2024
-
-Max Cruise - Nights at Sunset Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nights at Sunset Beach (4:55)
-02. Risky Business (4:45)
-03. Midnight Glow (4:35)
-04. La Contessa (2:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6F44FF5C466A3898B8226920F42D41D20B739A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704493   (114307) от 04.03.2024
-
-WatsGo for Mac 8.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114307.jpg" />
-</div>
-
-
-###  Подробнее
-
-WatsGo перенос данных между Android и iPhone. Перенос WhatsApp/WhatsApp Business между Android и iOS одним щелчком мыши. Широкий спектр типов данных, включая сообщения WhatsApp, изображения, видео, контакты и т. д. Сделайте резервную копию WhatsApp на Android и iOS на компьютере и полностью освободите место на устройстве.
-Предварительный просмотр и восстановление (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2024 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76C4513B64580FA15E0F84D78A7CF501072BE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704485   (114308) от 04.03.2024
-
-VA - Fusion Funky Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
+Larry Kurtz & The Lawbreakers - Take Ride (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lo Greco Bros - Temptation (6:10)
-02. AdrianoMaria - Shake It All (5:33)
-03. Faze Liquide - Diabolique (4:41)
-04. Super Bad - Holy Shit Party (4:55)(   Читать дальше...   )Жанр: Funky JazzПродолжительность: 02:20:39
+01.  HEADWATERS HILL COUNTRY (4:33)
+02.  I'M A CARPENTER (5:14)
+03.  ONE STEP ON THE DEVIL (4:35)
+04.  WRONG SIDE OF THE DOOR (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E229A58DAFA69CFFCDF30409BE9A99961E15C592
+magnet:?xt=urn:btih:694C3C5E185EA5C3EBE9B8CCDF712CD850B80E5E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704078   (114309) от 04.03.2024
+###  Публикация: 1802668   (66002) от 18.06.2025
 
-Solitude Aeturnus - Hour of Despair (2024) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic Doom Metal>
+Гнездо в перьях / The Feathered Nest (1916) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66002.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гнездо в перьях" - это такая английская идиома, её символическое значение: домашний очаг, комфортное и уютное жилище, ассоциирующееся с теплом, заботой и защитой. Не знаю как это связать с сюжетом фильма. Ибо в нем рассказывается о злоключениях барышни - простой фермерской дочке, нежданно-негаданно получившей большое наследство. История, впрочем как и (   Читать дальше...   )Производство: США / Keystone Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Фрэнк ГриффинАктеры: Чарльз Мюррэй, Луиза Фазенда, Гарри Букер, Уэйлэнд Траск, Фрэнк Опперман, Элла ХайнсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BFFE6DF026784FAB8B98CC5A67F6B7689A7730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802650   (66003) от 18.06.2025
+
+Clay Bottom Jug Busters - Too Tight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stealin' Stealin' (3:31)
+02.  Cave Man Blues (3:02)
+03.  Bring It With You When You Come (2:19)
+04.  Everybody's Talking About Sadie Green (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4842F306C91585A75C86234AC59FAB0846C17078
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802655   (66004) от 18.06.2025
+
+Crosscut - No Easy Way to Work (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  No Easy Way To Work (4:57)
+02.  Come Go Dancing (4:18)
+03.  Sinners Blues (5:03)
+04.  Been There Done That Blues (5:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2D09F6C89EFC1142E40A0800B111D3EABBE9F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802640   (66005) от 18.06.2025
+
+Bubbles Brown - Colombian Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Peru (4:48)
+02.  Hold Keep Rock #2 (2:36)
+03.  Funky Jump (3:36)
+04.  In My Room (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C801EE27C0A8D00442708D0ECDF674DCB0E20AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802580   (66006) от 18.06.2025
+
+AJ Tracey - Don't Die Before You're Dead (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scent of Death (HoD Deluxe Edition) [00:09:00]
-02. Haunting The Obscure (HoD Deluxe Edition) [00:04:56]
-03. Mental Pictures (HoD Deluxe Edition) [00:04:31]
-04. Destiny Falls To Ruin (HoD Deluxe Edition) [00:05:21](   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 01:05:35
+01 - Outta Sight [2:01]
+02 - Second Nature [2:46]
+03 - 3rd Time Lucky [2:40]
+04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D564A906947089940FFE1C5479A42B744835BB34
+magnet:?xt=urn:btih:07CF67A4A4BCD5FD9391F34B456D20A38DCE1947
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704152   (114310) от 04.03.2024
+###  Публикация: 1796451   (66007) от 18.06.2025
 
-Sarah L King - Fire Horse (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Vocal Music (Secular and Sacred)>
+Корни / Frewaka (2024) WEBRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66007.jpg" />
+</div>
+
+
+###  Подробнее
+
+После самоубийства матери, с которой она не общалась, Ши получает предложение подработать сиделкой у пожилой женщины в сельской местности. Та живет в большом доме поодаль от деревни, постоянно твердит, что за ней могут прийти некие они, и заставляет Ши соблюдать множество нелепых правил. Но вскоре девушке начинает казаться, что её подопечная не страдает деменцией (   Читать дальше...   )Производство: Ирландия / Cine4, DoubleBand Films, Fís Éireann / Screen IrelandЖанр: ужасыРежиссер: Эйслинн КларкАктеры: Клэр Моннелли, Бридь Ни Няхьтинь, Александра Быстржицкая, Клер Баррет, Шарлотта Брэдли, Тара Бретнэк, Grace Collender, Пидар Кокс, Jim Cunningham, Дороти Даффи и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:34Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802547   (66008) от 18.06.2025
+
+Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Holding On To Love (3:38)
-02. Devil May Care (4:39)
-03. Born Yesterday (4:22)
-04. Mystery Ride (5:34)(   Читать дальше...   )Жанр: Jazz, Vocal Music (Secular and Sacred)Продолжительность: 00:53:13
+01. Conclusion and Revival (Remastered) [00:02:56]
+02. Soldiers (Remastered) [00:04:29]
+03. The Omniscient (Remastered) [00:03:52]
+04. Under Control (Remastered) [00:04:26](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91C24C583C51824C8B13AF3B0B11881808EA9E62
+magnet:?xt=urn:btih:11620FD46B870DC363453B87C80871FD56B56292
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704521   (114311) от 04.03.2024
+###  Публикация: 1802543   (66009) от 18.06.2025
 
-Desktop Stickers 2.7 [En]
+Сергей Тимошенко - Опер (2025) [MP3|320 Kbps] <Авторская песня>
 
->>Архив торрентов
->>Архив 4Apple
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Desktop Stickers поможет вам в выборе вашей самооценки.
-Ваши мысли являются источником ваших эмоций и настроения. Разговоры, которые вы ведете сами с собой, могут быть разрушительными или полезными. Большинству людей необходимо научиться культивировать позитивные мысли и рассеивать негативные. Разговор с самим собой может улучшить вашу производительность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 2024 Marian RaafatПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+01 - Опер [00:05:24]
+02 - Ни шагу назад [00:02:48]
+03 - Бросок в рай [00:03:32]
+04 - Ледяной рассвет [00:03:48](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:32:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F0D2A7E1AA3FDCB9E77EA37D9E3C18EC31E64B5
+magnet:?xt=urn:btih:3550438EF2BCED635CF29EE03EEBBBAA284A5A79
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704144   (114312) от 04.03.2024
+###  Публикация: 1802581   (66010) от 18.06.2025
 
-Malted Milk - 1975 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+AJ Tracey - Don't Die Before You're Dead (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 1975 (3:11)
-02. A little bit of soul (3:28)
-03. Love for yourself (4:35)
-04. Better now (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:55
+01 - Outta Sight [2:01]
+02 - Second Nature [2:46]
+03 - 3rd Time Lucky [2:40]
+04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E13DA2350351E6480D9743376A922A2D224DB08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704473   (114313) от 04.03.2024
-
-MetaRename for Mac 1.0.10 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114313.jpg" />
-</div>
-
-
-###  Подробнее
-
-MetaRename — это удобный инструмент для фотографов и видеооператоров, которым необходимо регулярно управлять обширными коллекциями файлов. Используя MetaRename, вы можете легко переименовывать и упорядочивать свои фотографии и видео на основе метаданных, таких как модель камеры, дата съемки и местоположение, что упрощает поиск нужных файлов, когда они вам нужны.Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2012-2024 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B8B37DC4B23C43A159630B9074A56786E72E16
+magnet:?xt=urn:btih:DCB8B6F65CCABE0963948E309373091950626601
 ```
 
 

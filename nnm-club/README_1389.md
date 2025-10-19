@@ -1,694 +1,666 @@
-###  Публикация: 1805039   (65537) от 03.07.2025
+###  Публикация: 1761737   (36469) от 22.11.2024
 
-Папанинцы (1938) WEBRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65537.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1937 году при помощи самолёта в районе Северного полюса была организована первая научно-исследовательская дрейфующая станция «Северный полюс-1» (СП-1) под руководством Ивана Папанина. Участники экспедиции гидробиолог Петр Ширшов, геофизик Евгений Федоров, радист Эрнст Кренкель и руководитель Иван Папанин в течение девяти месяцев вели научные наблюдения на станции. (   Читать дальше...   )Производство: СССР / Московская и Ленинградская студии кинохроникиЖанр: документальный, природа, историяРежиссер: Яков Посельский, Ирина ВенжерЯзык озвучки: русскийСубтитры: в некоторых эпизодах поясняющие интертитры (русский)Продолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C852FA3C32395C3036EA00DBD94AC917894540BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804908   (65538) от 03.07.2025
-
-Щенки - Hоль один (2025) [MP3|320 Kbps] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я люблю до конца [00:03:22]
-02 - Ни тебя ни меня [00:02:38]
-03 - Рвется внутри [00:03:16]
-04 - Губная помада [00:02:31](   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AE8D2A0848D2C30412782C838DD278AC4B804D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805032   (65539) от 03.07.2025
-
-Фрэнсис Элиза Ходжсон Бёрнетт | Как стать леди (2024) [MP3, Ирина Булекова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмили Фокс-Ситон родилась в знатной, но обедневшей семье. Она получила хорошее образование, но в Лондоне конца XIX века не так много возможностей его применить. Эмили вынуждена ютиться в тесной комнатушке и работать компаньонкой более успешных высокородных дам. О хорошей партии девушка не может и мечтать…
-Однако ее работодательница, умная, эгоистичная и острая на (   Читать дальше...   )Жанр: зарубежная классика, психологическая проза, социальная драмаПеревод: Светлана СелифоноваИздательство: АСТПродолжительность: 09:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5A199756F020C3204656C93C4A8A936B835C01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804921   (65540) от 03.07.2025
-
-Neil Young And The Chrome Hearts - Talkin to the Trees (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, Roots Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Family Life [2:50]
-02 - Dark Mirage [5:40]
-03 - First Fire of Winter [4:44]
-04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Rock, Country Rock, Roots Rock, Folk RockПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7E49D9F876A4CCA5870B1CF6BCC7446A2D3ABB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805034   (65541) от 03.07.2025
-
-VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - Fluid (6:34)
-02.  Funk Mediterraneo - Tribe Secret (4:10)
-03.  Vito Lalinga (Vi Mode Inc. Project) - Afro Bahia (5:24)
-04.  Yuri Piccolotto - Save Our Souls (6:29)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEA927C96E19089DF7FAE824190396718C480FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805058   (65542) от 03.07.2025
-
-John Haydock - Back to the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  That Train Don't Go There Anymore (4:23)
-02.  Angel Drifting North (4:27)
-03.  We Fell into the Fire (4:15)
-04.  It's Getting Dark out There (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8727B733E9BEF6C4A8237344FF343E31D44AB405
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805037   (65543) от 03.07.2025
-
-VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lo Greco Bros - Folk Song Bass (4:46)
-02.  Joe Allotta - Leave Me Alone (2:43)
-03.  Tallulah Rose - Friends (4:16)
-04.  Pomante - Dancing Feet (3:54)(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 01:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805000   (65544) от 03.07.2025
-
-Лауд - Электрическая Музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side A [00:00:36]
-02. Воздуха нет [00:02:17]
-03. In the Dark [00:02:46]
-04. 123 [00:02:29](   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977520269F247B963147D78FE785F3D315D6E434
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804901   (65545) от 03.07.2025
-
-Rusty Sharks - Sexy Demons (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lock, Stock & Two Smoking Barrels [00:03:40]
-02. One Day in Prison [00:03:45]
-03. Who's Your Neighbour? [00:03:45]
-04. Love Me Deadly [00:04:49](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A0011A0F97B98C411B96FA7BC4A222B80FA2EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804892   (65546) от 03.07.2025
-
-Rusty Sharks - Long way to freedom (2025) [MP3|320 Kbps] <Rockabilly, Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65546.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  - Maniac [00:03:26]
-2.  - Psychobilly Town [00:03:22]
-3.  - Walking Dead [00:02:01]
-4.  - Bored with Your Tattoos [00:03:03](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98C7E78326FFE6BF48318E609817B05B7297351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805061   (65547) от 03.07.2025
-
-Jump Back - Misunderstood (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'll Move On (4:33)
-02.  Evil Might Win (3:41)
-03.  Can I Play the Blues? (4:35)
-04.  The Sting (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93F59DDAC5501DA77E7CF860F8AFECCF8FC63EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805042   (65548) от 03.07.2025
-
-Blues Against The Machine - Blues Against The Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hold On Stay Strong (4:32)
-02.  I Ain't Got No Money (2:45)
-03.  I'm The One To Blame (4:58)
-04.  It Is Causing Me Pain (7:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558CCDF83D061C412FEDA372EDF14557419CF9E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804855   (65549) от 02.07.2025
-
-MYR - Helvegen (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - December Coma [7:42]
-02 - In Perpetum [5:05]
-03 - Brennt [4:30]
-04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBAC7EA9696E70C471ED1B5AB01BFDB8625CC86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804863   (65550) от 02.07.2025
-
-Burnt By Hatred - Myth Or Mortal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65550.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Decadence [1:59]
-2 - Within Reach [4:58]
-3 - A Paths Deceit [6:13]
-4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA34B252AEE7558606C2D37659DC0C9C6D8FC93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804848   (65551) от 02.07.2025
-
-MYR - Helvegen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - December Coma [7:42]
-02 - In Perpetum [5:05]
-03 - Brennt [4:30]
-04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BA121A3996F8FA965B5551E48B0AF0008B97D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804866   (65552) от 02.07.2025
-
-Burnt By Hatred - Myth Or Mortal (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65552.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Decadence [1:59]
-2 - Within Reach [4:58]
-3 - A Paths Deceit [6:13]
-4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1414104290D0F2F1A180DD9B3F88FCCA7B621B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804739   (65553) от 01.07.2025
-
-Exsequor - Death From Above (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death From Above [00:04:19]
-02. They Watched [00:05:00]
-03. Your Truth [00:04:04]
-04. Nothing’s Certain [00:04:11](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD30CDD295EA51AADEC6FDC8ECC5B0EC12D366D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804700   (65554) от 01.07.2025
-
-Иван Гончаров | Другой (2025) [MP3, Андрей Толубеев и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
-Роман «Обломов» – повествование о человеке, который, не прельщаясь ни фортуной, ни карьерой, «залёг в берлогу». Чем больше вчитываешься в «Обломова» сегодня, тем меньше раздражает и возмущает его любовь к дивану и (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6998693DEFF1608F1AC4D472DC395688E978ABDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804746   (65555) от 01.07.2025
-
-Putridity - Morbid Ataraxia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prenatal Obituary [00:02:06]
-02. Mors Mater Nostra [00:03:38]
-03. In Disgust They Shine [00:02:38]
-04. Adipocere Retribution [00:03:19](   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C10DE9411C8D27DCE23E2F47C0C1E8337A1ACD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804652   (65556) от 01.07.2025
-
-VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Mister Funk - Beat Stuff (3:24)
-02.  Afro Dub - 7 Free To Travel (3:20)
-03.  Afro Dub - Afro Funk Beach (3:12)
-04.  Afro Dub - First Night (3:30)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22A451008E7D16D5D50DF850725F359323869F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804726   (65557) от 01.07.2025
-
-Иван Гончаров | Мильон терзаний (2018) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
-Студия «МедиаКнига» представляет аудиокнигу русского писателя Ивана Александровича Гончарова «Мильон терзаний». Книга прочитана популярным артистом Михаилом Росляковым.
-Известный критический этюд И.А. Гончарова, посвященный (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: МедиаКнигаПродолжительность: 01:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8B4CE02FC8FC323D8DB20BF36DE3E544ABBA17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804694   (65558) от 01.07.2025
-
-The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65558.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Conspire To Deceive
-A2 - Detonate
-A3 - Our Channel To The Darkness
-A4 - Cruel Perception(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD292E51446BC457B6406BE58E909B68EBD66DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804766   (65559) от 01.07.2025
-
-Keef Baker - K (2024) [FLAC|Lossless|Web-DL|tracks] <IDM, Synthwave, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flecks (06:24)
-02. Two Dimensional Time (11:04)
-03. Foxglove (05:07)
-04. Dangerman (04:41)(   Читать дальше...   )Жанр: IDM, Synthwave, TechnoПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715D0D70F28537D79EC7E06294C53AE6F5623091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804769   (65560) от 01.07.2025
-
-Lane 8 - Summer 2025 Mixtape (2025-06-18) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+RetroVision - More Bass More Good, ADE, Netherlands (2024-10-18) [MP3|320 Kbps] <Bass House, Big Room>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dead Bandit - One Eyed
-02. ID - ID
-03. ID - ID
-04. Rebel Of Sleep - Distant Thoughts(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 03:02:16
+01. RetroVision - ID
+02. Skrillex & Mr. Oizo ft. Missy Elliott - RATATA w/RetroVision - ID
+03. Benny Benassi pres. The Biz - Satisfaction w/Dog Blood - Break Law (ID Remix)
+04. RetroVision - Take Me Higher w/Gotye ft. Kimbra - Somebody That I Used To Know (Acappella) w/RetroVision & Seth Hills - Bass w/Katy Perry ft. Snoop Dogg - California Gurls (Acappella)Жанр: Bass House, Big RoomПродолжительность: 01:11:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB4E8C548FDE8979E4B4B8BA97517B09C10C265
+magnet:?xt=urn:btih:E2821C7D8D316A03D63DE7790E10685180F770BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804649   (65561) от 01.07.2025
+###  Публикация: 1761850   (36470) от 22.11.2024
 
-Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+Mell Vf - Queen Of My Castle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Funk In The Jungle (Dub Mix) (3:35)
-02.  Free In The Jungle (3:58)
-03.  Energizer (3:14)
-04.  Esotick (4:20)(   Читать дальше...   )Жанр: FunkПродолжительность: 02:28:35
+01. New Beginnings (1:45)
+02. Queen of my Castle (3:12)
+03. Crazy (3:19)
+04. Be As One (3:16)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF37D8D4985453E47EE1F780CE1F3B13A00903A1
+magnet:?xt=urn:btih:1DDAA0A10B81E50CCAA15B9D587AA3AE2E2B72B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804710   (65562) от 01.07.2025
+###  Публикация: 1761799   (36471) от 22.11.2024
 
-Joe Morello - Morello Standard Time (1994) DMP [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+Mur - Mur (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Progressive Death Metal, Post Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paper Moon [5:35]
-02. When You Wish Upon A Star [6:42]
-03. One For Amos [5:12]
-04. Take Five [6:42](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:56:07
+01. Eldhaf (9:04)
+02. Múr (5:52)
+03. Frelsari (4:07)
+04. Vitrun (9:38)(   Читать дальше...   )Жанр: Atmospheric Progressive Death Metal, Post MetalПродолжительность: 00:54:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA6E69A301E8991B7A2654D0241C7B82BB3E6D37
+magnet:?xt=urn:btih:341EAA206DDC6E80EBF45FC9CF5DE651E10BA3D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761836   (36472) от 22.11.2024
+
+VA - Music News For Forum vol.045 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36472.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lia Larsson - Tomten Betalar (Ho Ho Ho) (02:22)
+ 002. Alex Say - Рейс 1265 (02:00)
+ 003. Alexia - I Feel Feelings (03:07)
+ 004. AliB feat. MIROLYBOVA - Судьба-разлучница (03:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95345A5009318EC0E43E720099C06567E66EA6CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761794   (36473) от 22.11.2024
+
+VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 - 4 (2024)
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Chillout, Balearic, DowntempoПродолжительность: 09:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3E29F5D1C793242EBD052B2A59D9E94C011F03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761896   (36474) от 22.11.2024
+
+В.М. Чхиквадзе | Роль советского суда в борьбе с пережитками капитализма в сознании людей (1951) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пережитки капитализма в сознании людей являются одной из основных причин, порождающих такие преступления, как кража личного имущества граждан, убийство, спекуляция, хулиганство, бюрократизм и др. Пережитки старого проявляются также в пренебрежительном отношении к чести и достоинству граждан, в фактах бытового разложения, распущенности и т. п.
+
+Преодоление пережитков (   Читать дальше...   )Жанр: История, политология, социология, публицистика, культурологияИздательство: ГосюриздатФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB00B3DEF3E66B6440D829879DDEC5FB71C81FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761873   (36475) от 22.11.2024
+
+Not For Broadcast (2022) [Ru/Multi] (2024.09.04b/dlc) Repack FitGirl [Complete Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушай, дружище - это не очень-то и сложно. Выбираешь ракурсы, врубаешь рекламу, заглушаешь ругательства. Просто не забывай, что то, в каком свете ты покажешь этих людей, может повлиять на их жизни. Не переживай - заплатят в любом случае. Вы попадаете в 1980-е, альтернативный мир, который все глубже погружается в антиутопию. Станьте частью команды «Вечерних новостей» (   Читать дальше...   )Тип издания: RepackРазработчик: NotGamesЖанр: Симулятор, ПриключениеЯзык озвучки: Русский, Английский, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2316818D9EC6E2FB82BDAFF144154B0159F2F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761878   (36476) от 22.11.2024
+
+Android (Marc Hartman and Imro van Hetten) - Spaceman's Return (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space X (5:07)
+02. Moon Base (5:49)
+03. Magic Wand (4:46)
+04. Space Age (4:53)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E2B942F279AF691276800D46D84FF6FC4454D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761761   (36477) от 22.11.2024
+
+Гвидо Тонелли | Тончайшее несовершенство, что порождает всё (2024) [MP3, Вадим Прохоров]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36477.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В своей новой книге Гвидо Тонелли, один из отцов бозона Хиггса, раскрывает секреты нашей Вселенной». Focus
+Долгий путь к частице Бога и новая физика, которая изменит всё!
+Гвидо Тонелли – один из авторитетнейших современных физиков-экспериментаторов, профессор Университета Пизы, сотрудник Европейской организации по ядерным исследованиям, автор множества статей и (   Читать дальше...   )Жанр: Эволюция и антропологияИздательство: Аудиокнига АСТПродолжительность: 08:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891D46D38464BFA20AA5F5B053532EEA333DC273
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761880   (36478) от 22.11.2024
+
+И.В. Резько (ред.) | Большая энциклопедия. Вышивка лентами (2014) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышивка лентами была популярна во все времена, а сегодня этот вид рукоделия особенно в моде. И неудивительно, ведь благодаря такому оригинальному и увлекательному виду отделки можно обновить и украсить любую вещь, сделав ее уникальной и неповторимой. И главное – для этого не требуются какие-то особые навыки и приспособления. Нужно лишь немного терпения, чтобы шелковые (   Читать дальше...   )Жанр: рукоделиеИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0577848A4019B151E2813B0B183A04693B20CDE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761893   (36479) от 22.11.2024
+
+U2 - How To Dismantle An Atomic Bomb (Re-Assemble Edition) (2004) Remastered, 2024, Island Records Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Alternative Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Vertigo (Remastered 2024) [3:15]
+02 - Miracle Drug (Remastered 2024) [3:59]
+03 - Sometimes You Can't Make It On Your Own (Remastered 2024) [5:09]
+04 - Love And Peace Or Else (Remastered 2024) [4:51](   Читать дальше...   )Жанр: Electronic, Alternative Rock, Pop RockПродолжительность: 01:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398426CFBC4103A085D89981645DC71918DD5CC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761891   (36480) от 22.11.2024
+
+Однажды в России (15.11.2024) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641EBC96EBDB4DF1CA769F618ABECB3D7558BD55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761849   (36481) от 22.11.2024
+
+Журнал | Psychologies №82 (Зима 2024-2025) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Psychologies - уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, (   Читать дальше...   )Жанр: ПсихологияИздательство: ООО "Шкулёв Медиа Холдинг"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3009A8551564BB849AE3B4BF0E627D29A6AAF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761857   (36482) от 22.11.2024
+
+Soft Jazz Mood - Erotic Daydreaming: Romantic Sexy Relaxation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred Connection (4:30)
+02. Exploring Tantric Magic (4:51)
+03. Unlock Orgasmic Bliss (4:54)
+04. Deepen Your Senses (5:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95F7AF0294425AEC544B16ACC465EDA40C75FC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761823   (36483) от 22.11.2024
+
+Die for my Sins - Scream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die for my Sins - Scream (3:55)
+02. Die for my Sins - Time (5:06)
+03. Die for my Sins - Still Alive (4:37)
+04. Die for my Sins - Waiting for Your Hero (4:42)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65556F91FE8D78D4C9ED916DFB4AB937FD8C547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761835   (36484) от 22.11.2024
+
+Глаза без лица / Les yeux sans visage / Eyes without a Face (1960) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому роману Жана Редона... Полиция находит труп в реке и приглашает доктора Женессье, у которого недавно пропала дочь Кристиан, на опознание. Убитый горем отец организует похороны, но на самом деле, девушка жива, а Женессье вот уже несколько месяцев пытается восстановить её изуродованное лицо. Его помощница Луиза заманивает в поместье девушек, которым (   Читать дальше...   )Производство: Франция, Италия / Champs-Élysées Productions, Lux Film S.p.a.Жанр: ужасы, драмаРежиссер: Жорж ФранжюАктеры: Пьер Брассёр, Алида Валли, Жюльет Майниель, Эдит Скоб, Франсуа Герин, Александр Риньо, Беатрис Альтариба, Шарль Блаветт, Клод Брассёр, Мишель ЭчеверриПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F891FDEABED86A2B282ADA2C747C92D5AE86285
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761826   (36485) от 22.11.2024
+
+Chicago - Live At 55 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36485.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Chicago - Introduction (Live) (6:36)
+• 02. Chicago - Does Anybody Really Know What Time It Is (Live) (3:38)
+• 03. Chicago - Beginnings (Live) (5:41)
+• 04. Chicago - Questions 67 and 68 (Live) (5:39)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57ED6F69184FB1A5F31E2424DDEAA7F9B2D182A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761914   (36486) от 22.11.2024
+
+Michael Kiwanuka - Small Changes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Parade
+02. Small Changes
+03. One And Only
+04. Rebel Soul(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D438E646ECAAAFEDE715E741B1F62E56FA30BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761843   (36487) от 22.11.2024
+
+Samson - Survivors (1979) Japanese Edition, Reissue, 1990, Jimco Records [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Not as Easy as It Seems
+02. I Wish I Was the Saddle of a Schoolgirl’s Bike
+03. Big Brother
+04. Tomorrow or Yesterday 05. Koz(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149E6359B17C7567442CFE6399379DD6A6062FEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761890   (36488) от 22.11.2024
+
+Однажды в России (08.11.2024) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCDD80C1059D43E2867454A8FAA2477570E8FF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761859   (36489) от 22.11.2024
+
+Crossbone Skully - Evil World Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil World Machine
+02. The Boom Went the Boom (feat. Phil Collen of Def Leppard)
+03. Money Sex or God
+04. Flip The Bird(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E9F1690B90538E7AC16C791D6E3414C959FA82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761741   (36490) от 22.11.2024
+
+ЕГОР КРИД - Меньше чем три (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36490.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выше облаков
+2. Время
+3. <3 / Забудь меня
+4. Pusto.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0E32A59238993A094A7AA62E6BBEE4F5D15751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761889   (36491) от 22.11.2024
+
+Однажды в России (01.11.2024) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A54C362117F166F6AA79AA6EA72C7F89A6B7D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761813   (36492) от 22.11.2024
+
+В.И. Куроедов (ред.) | Военно-морской энциклопедический словарь. Второе издание (2003) [PDF, DJVU, TXT]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второе издание «Военно-морского энциклопедического словаря» представляет собой исправленную и дополненную версию издания 2002 г. Основное энциклопедическое издание, отражающее современный уровень знаний, накопленных человечеством в области теории и практики военно-морского дела.
+Книга содержит более 13 тыс. статей, раскрывающих содержание основных категорий и понятий (   Читать дальше...   )Жанр: словарь, энциклопедияИздательство: Военное издательствоФормат: PDF, DJVU, TXTКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58AF6474D83A6AB9F9DC9C476D7A77B703FD0D20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761811   (36493) от 22.11.2024
+
+Решение о ликвидации (2018) HDTV [H.264/1080і]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Особое задание спецгруппы ФСБ – ликвидация одержимого террориста Шамиля Базгаева. Охота продолжается уже долго, но жестокий лидер боевиков раз за разом ускользает. Однако, когда Базгаеву удается заполучить мощное оружие для осуществления своего самого страшного теракта, у оперативников больше нет права на ошибку. Для этих спецов преодоление себя, смертельный риск (   Читать дальше...   )Производство: Россия / МосфильмЖанр: военный, боевик, драмаРежиссер: Александр АравинАктеры: Игорь Петренко, Иван Шахназаров, Алексей Вертков, Аюб Цингиев, Алексей Шевченков, Дмитрий Парастаев, Дагун Омаев, Сослан Фидаров, Кирилл Краснов, Шамиль Алханов и др.Субтитры: русские (hardsub) на чеченскую речьПродолжительность: 02:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AE7B7BEFE6A5F15596AE9C5C14C685C441F663
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761720   (36494) от 22.11.2024
+
+Таро / Taro / Tarot (2024) WEB-DLRip [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что общего между продавщицей супермаркета, успешным бизнесменом и обыкновенным курьером? На первый взгляд - ничего. Однако их жизни обретают неожиданный поворот, когда каждый получает загадочную карту Таро.Производство: Корея Южная / Studio X+UЖанр: ужасыРежиссер: Чхве Бён-гильАктеры: Чо Ё-джон, Ким Джин-ён, Ко Гю-пхиль, Со Джи-хун, Ли Джу-бин, Ким Сон-тхэ, Хам Ын-джонПеревод: Профессиональный многоголосый (Велес) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:06Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53203918B8FBA72030B2BDA126EB296567E0252A
 ```
 
 

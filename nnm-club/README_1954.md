@@ -1,748 +1,634 @@
-###  Публикация: 470261   (97210) от 19.03.2012
+###  Публикация: 1733594   (51161) от 04.07.2024
 
-[Wallpapers] Best HD Wallpapers Pack (18.03.12)
+Kimitachi wa Dou Ikiru ka | The Boy and the Heron | Мальчик и птица [2023, Movie] UHDStRip HEVC 10-bit 2160p/4K HDR raw+eng+rus
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+У маленького Махито Маки тяжёлая судьба: разразившаяся в стране война унесла жизнь его матери Хими. Вместе с отцом, Макито переехал к своей тёте Нацуко. Однако и на новом месте жизнь не задалась: сверстники в школе его невзлюбили, а дома его преследует странная разговаривающая цапля, которая заявляет, что знает, где находится его мать. Однажды беременная Нацуко таинственно (   Читать дальше...   )Производство: Япония / Studio GhibliЖанр: аниме, мультфильм, драма, фэнтези, приключенияРежиссер: Хаяо МиядзакиПеревод: SRT, полные, перевод: dimon-san | RUS (ext)Язык озвучки: Японский, Английский и русский (Dub)Субтитры: Английские, Русские, ДРУГИЕПродолжительность: 2:03:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
+magnet:?xt=urn:btih:6073293135B922995383E5C28D7AC09023C6C561
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470155   (97213) от 19.03.2012
+###  Публикация: 1734172   (51162) от 03.07.2024
 
-[Wallpapers] Best Wallpapers Pack 2
+Николай Степанов | Рубежье (Книга 4).  (2024) [MP3, Виталий Сулимов]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 2
-Название: Best Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+«Десятник с позывным Дмилыч. Ступень развития – 32. Умения: аптекарь – 5 уровень; чужой взгляд – 3 уровень; сенсор – 1 уровень. Копилки заполнены преференциями: мудрости – на 80 %, огнестойкости – на 90 %, копилка чуйки (усилитель умения чужой взгляд) – на 50 %. Собственных стадий возрождения – 3, передаваемых стадий возрождения – 0. Социальный статус: состоит в (   Читать дальше...   )Жанр: Боевая фантастика, РеалРПГИздательство: ЛитРес: чтец, Сулимов Виталий, АвторПродолжительность: 09:04:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
+magnet:?xt=urn:btih:1A270D03F5389E5070A65EC98B55650D2A93F860
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470258   (97214) от 19.03.2012
+###  Публикация: 1734075   (51163) от 03.07.2024
 
-[Wallpapers] Nature Wallpaper (18.03.12)
+В России открылся первый завод по производству изделий из вторичного пластика
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Поговорим
+>>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В России открылся первый завод по производству изделий из вторичного пластика и древесно-полимерного композита (ДПК) методом 3D-печати, а также по производству FGF (гранульных) 3D-принтеров. Из ДПК будут изготавливать предметы интерьера и мебель. В открытии мини-завода компании TRASHBACK 25 июня принял участие генеральный директор Российского экологического оператора (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBC1701A22C22EE7F66C1CC493D74EB25658E258
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470458   (97215) от 19.03.2012
+###  Публикация: 1734449   (51164) от 03.07.2024
 
-VA - NeРусский Шторм - 54 (2012) [MP3|320 кб/с]<Pop,Dance>
+Виктор Мишин | Наш дом – СССР (Книга 2). Жизнь во благо Родины (2024) [MP3, Алексей Воскобойников]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Adrew - Super Girl (Extended Version) (4:48)
-2. Alexander Popov - When The Sun (Radio Edit) (3:02)
-3. Alisandra &ampamp; Vernandi - Angel (Radio Edit) (3:42)
-4. Allexinno Starchild - Senorita (Sagi Abitbul Remix) (4:30)
-5. Allexinno Starchild - Yasera (Official Radio Edit) (3:20)
-6. Amsterdam Crew - Your Life In My Life (Radio Edit) (3:11)
-7. Andreea Ignat - Phantom Lover (Radio Edit) (3:32)
-8. Boier Bibescu vs Luigi Ionescu - Lalele (Rework 2012) (5:20)
-9. Chris Thrace - Uh Girl (feat. Glorya) (Extended Version) (5:06)
-10. Da Fleiva - Get Out (Of My Mind) feat. Intempo (Extended Mix) (5:15)2012Жанр: Pop,DanceПродолжительность: 02:39:07
+Невероятные приключения семьи, совершившей путешествие назад в СССР, продолжаются!
+Как и в будущем, в Союзе также есть люди, не желающие развития и процветания нашей Родины. Все хотят счастья для себя лично, но мало кто хочет что-то делать для других. Бандиты, партийные чиновники, силовики, да мало ли кто еще. Мы, семья Андреевых, уберем все преграды и добьемся всего, (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыИздательство: Издательство АСТПродолжительность: 09:07:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
+magnet:?xt=urn:btih:DEE4639EE7026CC10C043EA57ABD7BB411694F07
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470169   (97219) от 19.03.2012
+###  Публикация: 1734448   (51165) от 03.07.2024
 
-[Wallpapers] Best Wallpapers Pack 5
+Comodo Dragon 125.0.6422.142 + Portable [Multi/Ru]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 5
-Название: Best Wallpapers Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Comodo Dragon - быстрый универсальный браузер на базе технологии Chromium (на основе которой создан, в том числе и браузер Google Chrome) с дополнительными функциями, повышающими безопасность и конфиденциальность. Обеспечивает повышенную конфиденциальность, превосходящую технологии Chromium, имеет технологию проверки доменов, которая идентифицирует и выделяет превосходящие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
+magnet:?xt=urn:btih:27442D08CFD647B3D8C4FC4722E499E13CBEADC4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469804   (97220) от 19.03.2012
+###  Публикация: 1734340   (51166) от 03.07.2024
 
-Лиза Small - Время не установлено (2012) [MP3|256, 320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звёзды (One-Bula Prod.)
-02. Более чем ты
-03. 2012 (Wake Up Promo - instr.J.Cole)
-04. Ближе к лету
-05. Не разочаруй
-06. Приглашение на концерт 12.02.12
-07. Стимул
-08. Фонари
-09. На пути (Hapan production)
-10. Ночь на максимум (Lingvisto beats production) VBR(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470260   (97222) от 19.03.2012
-
-[Wallpapers] Wallpapers Sexy Girls (18.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470158   (97223) от 19.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 41
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97223.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Wallpapers Pack 41
-Название: Sexy Girl Wallpapers Pack 41
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49A970804687B3F2F25A89501AD7ACE26A45FA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468616   (97225) от 19.03.2012
-
-Dj DIESEL{BG} - Hangover (2012) [MP3|320 кб/с]<Club House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Radio Killer - Be Free (Way & Beyond Mix)
-2. Ekow feat. Snoop Dogg & Kylian Mash - Closer (Original Extended)
-3. Mike Candys & David Guetta - Where Them Sexy Bitches At (Mike Candys Rework)
-4. Avicii feat. Flo Rida - Levels (Good Feeling) (Gordon & Doyle Mashup)
-5. David DeeJay feat. P Jolie & Nonis - Perfect 2 (Extended)
-6. Antoine Clamaran, Laurent Pautrat - Somebody Scream (Original Mix)
-7. Pitbull feat. Ne-Yo, Afrojack & Nayer - Give Me Everything (Check Dance Bootleg Mix)
-8. Alexandra Stan - Mr. Saxobeat (Vova Baggage Remix)
-9. Taio Cruz feat. Flo Rida - Hangover (Fabian Baroud Extended Mix)
-10. The Black Eyed Peas - Dont Stop The Party (Dj Maxi Seco Latin Club)(   Читать дальше...   )2011-2012Жанр: Club House, Progressive HouseПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D708560A1D93E1D3BAB9D35A905D66BCCC507F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470159   (97226) от 19.03.2012
-
-VA - Nation Of Trance Vol 1 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Holland vs Six Senses – Frantic (Sean Tyas Remix) 7:02
-02. Eteson vs Octagen – We Are Alone (Mark Eteson Remix) 8:26
-03. Alex MORPH presents Everest – Oree (Will B Transatlantic Remix) 8:06
-04. Binary Finary & Jose Amnesia presents Cloudbreak – Difference (Hydroid Vs Santiago Nino Dub Fire Mix) 7:50
-05. Factoria – Revive (Dark Moon Remix) 6:35
-06. Arty – Love Inside Out 6:53
-07. Deepwide presents Kylkai – Kaimaar (Supuer Remix) 8:06
-08. Jimmy Kennedy & Aneesh Gera – Spaghetti Beach (Snow Flakes & Rishabh Joshi Remix) 7:58
-09. Erik Hakansson – August 6:35
-10. Ilya Bezlepkin – Hold On (Feat Monique - Blue Twinkle Remix) 9:17(   Читать дальше...   )2012Жанр: TranceПродолжительность: 03:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492F79CBB2A42611195745CF06179B3D6A9A43EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470442   (97227) от 19.03.2012
-
-VA - Ночная Авто Дискотека (2012) [MP3|192 кб/с]<Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demoro - Constantinople (Jorgensen & Gordon Howarth Remix)
-02. Bob Sinclar - Fuck The Disco (Original Mix)
-03. Crew 7 Feat. Raheema - Push It (Club Mix)
-04. Dna Feat. Rebecca Knight - In My Head (East & Young Remix)
-05. Tiko's Groove Feat. Gosha - I Don't Know What To Do
-06. Armand Van Helden And Steve Aoki - Brrrat!
-07. Plastik Funk - Everybody Dance Now! 2011
-08. Auburn Feat. Iyaz - La, La, La
-09. Armin Van Buuren And Sophie Ellis Bextor - Not Giving Up On Love (Extended Version)
-10. Jaybee - Say You Will (Rene De La Mone Remix Edit)2012Жанр: Dance, ClubПродолжительность: 08:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6778CDFC08DF03FD2EAD484BB0D378A3AAA13E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470584   (97230) от 19.03.2012
-
-Журнал | Едим со вкусом №1-2 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Едим со вкусом - одно из самых лучших изданий о кулинарии. Каждый номер этого издания включает не только множество оригинальных и доступных кулинарных рецептов, включающих полную калькуляцию расходов, но и потребительскую экспертизу и тесты различных продуктов питания, кухонной утвари и бытовой техники для кухни. Также в каждом номере журнала приводятся сводный бюджет питания на месяц.
-Хороший ресторан - дома!
-Шеф-повара столичных ресторанов раскрывают свои профессиональные секреты.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470185   (97233) от 19.03.2012
-
-[Wallpapers] Best Wallpapers Pack 8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97233.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best Wallpapers Pack 8
-Название: Best Wallpapers Pack 8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200/1680x1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470181   (97236) от 19.03.2012
-
-[Wallpapers] Games Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97236.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Games Wallpapers Pack 2
-Название: Games Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 3200х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E55FCDDD5AE2F06F6C627827297AD7434DDAF23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469505   (97238) от 19.03.2012
-
-VA - Groove Attack (2CD) (2012) [MP3|320 кб/с]<Psychedelic Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97238.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (01:19:03)
-01. Sinister Silence Feat. Camille Jones - Someday (Still Around Mix) 08:03
-02. Liquid Soul & Electric Universe - Liquid Universe 09:36
-03. Major7 - Obsession 06:37
-04. Zyce - Dreaming 07:32
-05. Liquid Soul & Symbolic - Different Reality 08:31
-06. Timelock - 99 Calibre 07:17
-07. Sonic Species - Machina Terra (E-Clip Remix) 08:41
-08. D-Addiction - WTF 08:40
-09. Rocky & Sphera - Echo (Yotopia Remix) 08:21(   Читать дальше...   )2012Жанр: Psychedelic Trance, Progressive TranceПродолжительность: 02:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42A11B4525C841B15915E7902B2A041956B53F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470267   (97241) от 19.03.2012
-
-VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мара - Головокружения
-02. Ian Carey Ft. Bobby Anthony & Snoop Dogg - Last Night
-03. Дмитрий Колдун - В Комнате Пустой
-04. Alice Cooper - What Baby Wants
-05. Мила Нитич - Каюсь
-06. Kalomira - This is the time
-07. Сергей Ялтан - Окаянная
-08. Sophie Ellis-Bextor - Not Giving Up On Love (Extended Version)
-09. Земфира - Webgirl (Alex Valenso Remix)
-10. Darren Hayes - Talk Talk Talk2012Жанр: Pop,DanceПродолжительность: 06:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26F63ED3240ECB048B8A9A36D100B086451EFE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470439   (97243) от 19.03.2012
-
-VA - Get Sexy vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
+VA - Bossa nova Lounge (2024) 2CD [MP3|320 Kbps] <Bosa Nova, Chillout, Electronic>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Get Sexy vol.1 (2012)Год: 2012
-Жанр: Electro House, House
-Продолжительность: 01:40:24Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:
-01.Ian Carey & Rosette Ft. Timbaland & Brasco - Amnesia (Cazzette Another Sugar Hunt Mix)
-02.Sean Paul - She Doesnt Mind (LX-Tronix Remix)(   Читать дальше...   )
+001. Bossa Nova Covers, Mats & My - Dance Monkey [03:29]
+002. Lua Blanco - A Thousand Miles (Bossa Version) [03:42]
+003. Marcela Mangabeira - With Or Without You (Bossa Version) [03:33]
+004. Sixth Finger, Dew - Patience (Cool Wave Mix) [05:12](   Читать дальше...   )Жанр: Bosa Nova, Chillout, ElectronicПродолжительность: 12:25:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92B89A1F2E44A2D23DCB432D6D50A16CFE7AE008
+magnet:?xt=urn:btih:4265B1B86B56A1ED8FD4B6767E49605B3ACBFB12
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468559   (97244) от 19.03.2012
+###  Публикация: 1734403   (51167) от 03.07.2024
 
-VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Swedish House Mafia - Save The World
-2. Avicii - Fade Into Darkness (Vocal Extended)
-3. Axwell - Heart Is King
-4. Michael Calfan - Resurrection (Axwells Recut Club Version)
-5. Armin Van Buuren - Drowning (Avicii Remix)
-6. David Tort Feat. Gosha - One Loock (Axwell Vs Dimitri Vegas)
-7. Eric Prydz - Niton The Reason (Extended Mix)
-8. Tim Berg - Seek Romance (Avicci Vocal Extended)
-9. Albin Myers Feat. St James - There 4 You (Extended Mix)
-10. Adrian Lux - Teenage Crime (Axwell & Henrik B Remode)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 03:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1513E762128A87881843EF7A86CA77F660D7C372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470316   (97247) от 19.03.2012
-
-Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Waste In Space
- 2. Repossession
- 3. New Dead Masters
- 4. Unholy Abductor
- 5. Idiot Check
- 6. Covered In Sick/The Barfer
- 7. You’re Cut Off
- 8. Authority Complex
- 9. Standards and Practices
- 10. Crushing Chest Wound(   Читать дальше...   )2012Жанр: Thrash MetalПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395F85C473A0A849F1035DE32A016BC0E233842E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470170   (97250) от 19.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 42
+Bandicam 7.1.2.2451 RePack (& portable) by Dodakaedr [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Sexy Girl Wallpapers Pack 42
-Название: Sexy Girl Wallpapers Pack 42
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
+magnet:?xt=urn:btih:1A90049BFF6FB52BF65E25945BDA80584EE16244
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470259   (97251) от 19.03.2012
+###  Публикация: 1731509   (51168) от 03.07.2024
 
-[Wallpapers] Girls Wallpapers (18.03.12)
+Фреш Киллс / Fresh Kills (2023) WEB-DLRip [MVO] [AD]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Спустя 25 лет после переезда в окрестности Фреш Киллс, девушка понимает, что её семья является организованной преступной группировкой.Производство: США /  Fresh Kills ProductionsЖанр: драма, криминалРежиссер: Дженнифер ЭспозитоАктеры: Дженнифер Эспозито, Аннабелла Шиорра, Одесса Эзайон, Эмили Бадер, Доменик Ломбардоцци, Дэвид Яконо, Николас Чирилло, Николь Эхингер, Дэвид Вайсманн, Люсиана ВанДеттПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:32Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470613   (97252) от 20.03.2012
+###  Публикация: 1734321   (51169) от 03.07.2024
 
-[Wallpapers] Best HD Wallpapers (19.03.12)
+М.В. Фаворин | Моменты инерции тел. Справочник (1977) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Научная и техническая литература
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В справочнике систематизированы краткие теоретические сведения о статических моментах, центре масс, моментах инерции относительно осей и плоскостей, об эллипсоиде инерции, центробежных моментах и главных осях инерции тела и т.п. Изложена методика расчета инерционных характеристик сложных механических систем.
+
+ Приведены расчетные формулы и таблицы для вычисления объемов, (   Читать дальше...   )Жанр: МеханикаИздательство: МашиностроениеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68FC7F58F2AE58EA866DB7C6B91A60B6E4ADAC9B
+magnet:?xt=urn:btih:FF8C5FD194EA79856452C08B81E80A129F01FEA2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467137   (97253) от 20.03.2012
+###  Публикация: 1734322   (51170) от 03.07.2024
 
-Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House/Commertial>
+Crocodile Technology 3D 609 [En]
 
->>Архив торрентов
->>Архив Музыки
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Tommy Vee & Nicola Fasano & Steve Forest & Luca Guerrieri - Tell Me (Meg Nerak Vocal Mix)
-02 - Eurythmics vs. Tonite Only & Nicky Romero - Sweet Gonna Dreams (Relanium Bootleg)
-03 - David Di Sabato - Orbits (Alex Cucciolini Remix)
-04 - Ultra Nate - Save Me (Dj Chus and Abel Ramos Miami Mix)
-05 - Dj Soulstar feat. Wally B - Move (Tune Brothers Remix)
-06 - Tom Geiss & Mark Simmons feat. Polina - Dream On (A.C.K. & Love N Joy Remix)
-07 - Jared Dietch feat. Kelli Sae - You're Not Alone (Gregori Klosman Instrumental Mix)
-08 - Sebastien Drums feat. Mitch Crown - Fly Again (Rob Adans Remix)
-09 - Joey C & Dj Torio & Nikki Kay - Fade Away (Valetto Remix)
-10 - Mitchell Niemeyer - Botox (Nene Dasile Remix)(   Читать дальше...   )2012Жанр: Progressive House/CommertialПродолжительность: 01:04:39
+Crocodile Technology 3D объединяет в себе электронный проект, программирование PIC, механизмы 3D и моделирование 3D PCB. Technology 3D - 3D симулятор электронных цепей, с помощью которого можно разработать принципиальную электрическую схему устройста, монтажную плату под него и т.д. Рекомендуется в качестве приложения к программированию, электронике, механике и другим (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
+magnet:?xt=urn:btih:84B9844A3A442676A980A023687D1F7B5654D4F7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470709   (97255) от 20.03.2012
+###  Публикация: 1733815   (51171) от 03.07.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (20.03.12)
+VA - compilation part 93 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Ms Project - Gimme GimmeЖанр: Dance, EurodiscoПродолжительность: 04:01:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
+magnet:?xt=urn:btih:C8ABC6CB8E6717A30112819C17E725F1EFF5C281
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470621   (97256) от 20.03.2012
+###  Публикация: 1734379   (51172) от 03.07.2024
 
-[Wallpapers] Desktop wallpapers (19.03.12)
+Аристарх Риддер, Николай Живцов | Настоящий американец (Книга 4) (2024) [MP3, Дмитрий Поляков]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Продолжение приключений нашего современника, попавшего в тело молодого американца в середину XX века. Фрэнк Уилсон продолжает двигаться в сторону богатства и власти.Жанр: Альтернативная история, авантюрная фантастика, попаданцыИздательство: ЛитРес: чтецПродолжительность: 07:18:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
+magnet:?xt=urn:btih:705F2896A51DC8C90193A2AA07F3949BC12C4582
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470985   (97258) от 20.03.2012
+###  Публикация: 1734428   (51173) от 03.07.2024
 
-[Wallpapers] Nature Pictures №31
+AOMEI Backupper Technician Plus 7.3.5 WinPE by FC Portables [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №31
-Название: Nature Pictures №31
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3200х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
+magnet:?xt=urn:btih:EFC303FA7B52BB2739EED2914EA283BA4F3EA08F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734397   (51174) от 03.07.2024
+
+Ненормальная / Некрасивая (2024) WEBRip [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за забинтованного лица в детском отделении ее зовут Мумия. За два месяца изуродованной Ане пришлось серьезно повзрослеть. До аварии — это красивая, уверенная в себе школьница. После — замкнутое, циничное существо, готовое напасть даже на тех, кто пытается ей помочь. Каждый день Аня ищет новые причины, чтобы жить дальше, и новые уловки, чтобы остаться в больнице. (   Читать дальше...   )Производство: Россия / Кинокомпания CTBЖанр: драма, комедияРежиссер: Таисия ИгуменцеваАктеры: Варвара Володина, Виталий Андреев, Антон Рогачев, Кузьма Котрелев, Кирилл Кяро, Василий Кортуков, Ольга Тумайкина, Денис Зайнуллин, Регина Тодоренко, Марина ПоддубнаяПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F0908F6C6A8F9BE3B2757E18589595AA8B8386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734383   (51175) от 03.07.2024
+
+Microsoft PowerToys 0.82.0 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft PowerToys – это набор утилит, позволяющих опытным пользователям настраивать и оптимизировать работу оболочки Windows 10 для повышения производительности труда.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7FDABA856B93C5D90C4587E8D12013F3049C5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734344   (51176) от 03.07.2024
+
+К. Г. Маркс | Капитал (2010) [MP3, Павел Моргунов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует широкий спектр оценок, как личности самого Карла Маркса, так и его общественной роли и его научного вклада в философию и социологию. Очевидно одно - идеи Маркса оказали огромное влияние на ход мировой истории XIX-XX веков. По данным опроса общественного мнения, проведенного в 1999 году Би-би-си, Маркс был назван величайшим мыслителем тысячелетия. По данным (   Читать дальше...   )Жанр: Политическая экономикаИздательство: АрМирПродолжительность: 17:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381A5157B59821BED3ED18CA3EF28521BC48D5E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734457   (51177) от 03.07.2024
+
+А.А. Свешников (ред.) | Сборник задач по теории вероятностей, математической статистике и теории случайных функций (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник охватывает все основные разделы теории вероятностей, встречающиеся при решении практических вопросов, связанных с автоматическим управлением, обработкой опытных данных, установлением их точности и т. д. В каждом параграфе дана краткая сводка рабочих формул и схем, применение которых иллюстрируется решением примеров. Задачи снабжены ответами, а в отдельных (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4CFD3B9C057FBF7E7AF6C13C06E73DE8B09E04C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734500   (51178) от 03.07.2024
+
+Wise Care 365 Pro 6.7.4.649 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D6975B407C2F71A3CBCAEE5164C56345F13CBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734437   (51179) от 03.07.2024
+
+Владислав Конюшевский | Попытка возврата (Книга 4). Основная миссия (2024) [MP3, Виктор Бабков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51179.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе конец лета 1944 года. Скоро конец войны, и как будут складываться послевоенные отношения с союзниками? Как не допустить "холодной войны" и "железного занавеса"? Об этом надо думать уже сейчас. А одним из инструментов в решении этой задачи является спецгруппа Ставки Верховного Главнокомандования, в состав которой входит полковник НКВД (   Читать дальше...   )Жанр: Историческая фантастика, Альтернативная историяИздательство: Издательство (АСТ)Продолжительность: 10:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FC561C89674D524B9B51A535D90E5A56A21420
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734364   (51180) от 03.07.2024
+
+Денис Яшуков | Ковчег 5.0. Новая жизнь (Книга 2). Круги на воде (2024) [MP3, Елена Трошкина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало получить право на жизнь, нужно еще им и суметь правильно воспользоваться. С каждым днем Ковчег подкидывает все больше сюрпризов, и далеко не все из них приятные. А даже если тебя Система и одарила сокровищем, то лучше держать это в тайне, ведь в новом мире немало тех, кто захочет отнять его силой.Жанр: Боевая фантастика, Приключения, ЛитРПГИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A61FE5AA23B35A80A0C61EEFA7322B27BB35AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734300   (51181) от 03.07.2024
+
+101 далматинец 2: Приключения Патча в Лондоне / 101 Dalmatians II: Patch's London Adventure (2003) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллионерша Стервелла Де Виль, чья первая попытка похитить 101 далматинца и пошить из их шкурок роскошную шубу с треском провалилась, готовит новый дьявольский план по захвату славных песиков.
+
+Она потирает руки в ожидании легкого успеха, но на пути негодяйки встают храбрый щенок Патч и его новый друг Громобой - четвероногая звезда экрана! Улицы Лондона никогда еще (   Читать дальше...   )Производство: США, Япония, Великобритания, Гонконг, Канада / Walt Disney Pictures, DisneyToon Studios, Walt Disney Animation Japan, Walt Disney Television AnimationЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Джим Каммеруд, Брайан СмитАктеры: Бэрри Боствик, Джейсон Александер, Мартин Шорт, Бобби Локвуд, Сьюзан Блэйксли, Сэмюэл Уэст, Морис ЛаМарш, Джефф Беннетт, Джоди Бенсон, Тим БентинкПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268E7A2DB72444446A5063AA51DB4A9869094151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734455   (51182) от 03.07.2024
+
+Мартингейл / Повышение ставок / Martingale (2024) WEB-DLRip [H.264/720p] [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51182.jpg" />
+</div>
+
+
+###  Подробнее
+
+После гибели юной девушки от передозировки наркотиками все быстро забывают о случившемся, как о трагическом, но ординарном явлении. И только мать погибшей уверена, что её дочь изнасиловали и убили, скрыв двойное преступление инсценировкой передоза. Женщина пускается на поиски парня, которого полицейские обнаружили возле тела умершей девушки и отпустили, как невиновного. (   Читать дальше...   )Производство: США / Adventus FilmsЖанр: криминалРежиссер: Джереми БергАктеры: Уильям Шокли, Келли Салливан, Кортни Карл, Константин Мелихов, Raúl E. Peyret, Рейчел Генри, Дарлен Селлерс, Джеймс Дэвид Гриксони, Дэйв Шектер, Денни НоланПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:45Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D665D39A8992AAA7280BA1FFA4EF2F2BCAD989
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734459   (51183) от 03.07.2024
+
+Станция Пупки / Свиньи всегда свиньи (1931) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смешной и остроумный фильм, в котором высмеиваются советский бюрократизм, мещанство и формализм. А еще режиссер потешается над провинциальностью своих героев и их новым советским бытом.
+
+Фильм считался утерянным. Но в 2015 году в Федеральном архиве Германии картину обнаружил российский киноисследователь Петр Багров.Производство: СССР / Украинфильм (Одесская кинофабрика)Жанр: комедия, немое киноРежиссер: Ханан ШмаинАктеры: Константин Гарин, Борис Безгин, Иван Твердохлеб, Мария Максакова ст., Фёдор НикитинСубтитры: украинские (интертитры), русскиеПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE13D9C4FA9E77EC2DDE9E70DE18E9189EC0AAB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734450   (51184) от 03.07.2024
+
+Opera GX 111.0.5168.54 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
+Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
+Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BCE9A602CBB12FDDCEF22F68FBCDFA040DA609E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734489   (51185) от 03.07.2024
+
+AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Ultimate - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A9BC37B14D02EC1B090696FF0247E5A7C67BC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734466   (51186) от 03.07.2024
+
+37 секунд / 37 Sekunden / The Night in Question (2023) HDTVRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для Клары Андерсен, работающей адвокатом, всегда существует четкая грань между согласием и изнасилованием, даже тогда, когда всё не так однозначно. Когда её лучшая подруга Леони, молодая певица, вынужденная подрабатывать на автозаправочной станции и надеющаяся когда-то стать известной, обвиняет через социальные сети её знаменитого отца Карстена Андерсена в сексуальном (   Читать дальше...   )Производство: Германия / Cosmo-Film, Odeon Fiction, Panimage GmbHЖанр: драмаРежиссер: Беттина ОберлиАктеры: Эмили Кокс, Йенс Альбинус, Мари-Лу Селлем, Paula Kober, Valentin Mirow, Camill Jammal, Мартин Файфель, Denise M'Baye, Марк Бенжамин, Михаэль Кранц и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC23F274976BE6EDB55ABE4AA4456B40A6FF7809
 ```
 
 

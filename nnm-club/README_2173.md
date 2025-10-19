@@ -1,689 +1,655 @@
-###  Публикация: 1742697   (105538) от 12.08.2024
+###  Публикация: 1722438   (56866) от 11.05.2024
 
-Bill Wyman - Drive My Car (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock>
+Mr. Moscow - 9 Albums (2021-2024) [MP3|320 Kbps] <Italo-Disco, Synth-Pop>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Билл Уайман (Rolling Stones) выпустил свой девятый сольный альбом "Drive My Car" 9-го августа. "Drive My Car", представляющий собой мастерскую смесь его уникального англо-американского ритм-энд-блюза, является первым альбомом Уаймена с 2015 года, который будет доступен в цифровом формате, на CD и виниловых пластинках.01. Thunder on the Mountain (3:13)
-02. Drive My Car (3:23)
-03. Bad News (3:24)
-04. Storm Warning (3:44)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:05
+Список альбомов:
+2021 - Dreaming of Moscow
+2021 - Little Lover Stay
+2021 - Your Eyes(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 9CD, 06:38:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10F43A5A99974023497E1772A6D5E5C08E2E7DE4
+magnet:?xt=urn:btih:1F0E6DA9657864C24618B6699FF4202A6EB27E2E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742485   (105539) от 12.08.2024
+###  Публикация: 1722430   (56867) от 11.05.2024
 
-Ann Wilson & Tripsitter - Live in Concert (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock, Hard Rock>
+Летняя ночь в Барселоне / Barcelona nit d'estiu / Barcelona Summer Night (2013) BDRemux [H.264/1080p] [DVO]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Even It Up (Live) [00:07:57]
-02. Ruler of the Night (Live) [00:04:21]
-03. Love Alive (Live) [00:05:39]
-04. Isolation (Live) [00:03:04](   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 01:36:43
+Ночью 18 августа 2013 года небо Барселоны озарила комета Роза. В ту ночь в городе случилось 567 историй любви. Фильм рассказывает всего о шести из них. Росер с Рикардо уже вместе около года, и тут она вдруг встречает Альберта, своего бывшего. Джоан организовал обед для своих друзей. Среди них Клара и Эктор, у которых только что родилась малышка. Так же присутствует (   Читать дальше...   )Производство: Испания / CameoЖанр: драма, мелодрама, КомедияРежиссер: Дани де ла ОрденАктеры: Франсеск Коломер, Хан Корнет, Жоан Дауза, Лаура де ла Исла, Мики Эспарбе, Сара Эспигуль, Луис Фернандес, Марк Гарсиа Коте, Марта Солер, Мар дель ОйоПеревод: Двуголосый любительскийЯзык озвучки: Русский, КаталанскийСубтитры: Английские, Немецкие, ИспанскиеПродолжительность: 01:35:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E294144061A3E16AA3D495C1FE738C96CF778566
+magnet:?xt=urn:btih:AB311655C7142AFDA9532844919E5A6EB3E75797
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742638   (105540) от 12.08.2024
+###  Публикация: 1722437   (56868) от 11.05.2024
 
-Newman - Colour In Sound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+VA - The Essentials: Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Классика
+>>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Godspeed
-02. In Euphoria
-03. Wake Of The Wanderlust
-04. Afterglow(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:49:53
+01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+02. Mikhail Mordvinov - Fantasia in D Minor, KV 397 (5:34)
+03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:43:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BE13B4EB73BE2ADB7A8FE646D76872C782F2CB5
+magnet:?xt=urn:btih:1AF2326726B6851A68C764EE22335A44BDF07760
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742497   (105541) от 12.08.2024
+###  Публикация: 1722535   (56869) от 11.05.2024
 
-Nathan Haines - Notes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, soul, analog, jazz, saxophone>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love You More [00:06:58]
-02. Night Moves [00:05:47]
-03. Just Holdin' On [00:03:48]
-04. Journey To The Peak [00:07:05](   Читать дальше...   )Жанр: House, soul, analog, jazz, saxophoneПродолжительность: 01:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9B0EB321FDF6310EFA95EBFF043298E2BCAE56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742581   (105542) от 12.08.2024
-
-Фёдор Сологуб | Красногубая гостья (2011) [MP3, Вадим Яковлев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Проза Серебряного Века.
-Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
-В сборник вошли рассказы одного из ярких представителей «Серебряного Века» Федора Сологуба в исполнении Вадима Яковлева.Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F13DAB86E80E6C55376FEE31F16AF0C8AEC625F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742580   (105543) от 12.08.2024
-
-Фёдор Сологуб | Творимая легенда (Книга 2). Королева Ортруда (2013) [MP3, Аркадий Бухмин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
-В романе Фёдор Сологуб выразил свои философско-художественные идеи, обозначенные им ранее в статьях и эссе. Изначально, задуманный им цикл романов назывался «Навьи чары», и первая часть называлась «Творимая легенда» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 12:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277BEC826D651044FCFB48303AE889173C60D668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742526   (105544) от 12.08.2024
-
-Phineas Newborn, Jr. - Look Out - Phineas Is Back (1976) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salt Peanuts [5:43]
-02. The Man I Love [5:18]
-03. You Are The Sunshine Of My Life [6:21]
-04. Abbers Song [4:20](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:857D7DED97F55008DD2225CF6B108AC0DC4CE45F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742573   (105545) от 12.08.2024
-
-Фёдор Сологуб | Звериный быт (2011) [MP3, Вадим Яковлев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Проза Серебряного Века.
-В авторский сборник произведений Фёдора Кузьмича Сологуба (1863–1927) – выдающегося прозаика и поэта, представителя старшего поколения русских символистов и одного из ярких представителей «Серебряного Века», вошли рассказы в исполнении Вадима Яковлева.Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 04:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC62024DA1E23D4D9D810A2EDA5B466C141EDE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742332   (105546) от 11.08.2024
-
-Revolution Saints - Against The Winds (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Babylon A.D. - Rome Wasn't Built In A Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Against The Winds (4:57)
-02. Changing My Mind (4:16)
-03. Fall On My Knees (4:23)
-04. Can't Find It Right Now (4:48)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:30
+01. Wrecking Machine (4:15)
+02. Pain (4:03)
+03. Sometimes Love Is Hell (5:24)
+04. Rome Wasn't Built In A Day (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:506572E578D3689EF5B1586D889FA2B7750748E3
+magnet:?xt=urn:btih:CE1742733BD0B04913DC25DE6F6F51F484683968
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742371   (105547) от 11.08.2024
+###  Публикация: 1722441   (56870) от 11.05.2024
 
-Dagoba - Different Breed (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove, Industrial Metal, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genes15 (1:12)
-02. Arrival of the Dead (5:24)
-03. Distant Cry (3:07)
-04. Different Breed (5:29)(   Читать дальше...   )Жанр: Groove, Industrial Metal, Melodic DeathПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98C7A92EC9F0AE3C3FEFE3BBDE8A7635CE57B16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742459   (105548) от 11.08.2024
-
-Месье / Monsieur (1911) WEBRip
+Незнакомец / Убийца Розмари / The Prowler (1981) BDRip [H.264] [MVO]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сентиментальная история. Французский граф старинной благородной фамилии, по-видимому, вдовец, воспитывает дочь. Но новые времена разоряют его. Он переезжает вместе с дочерью в Америку в надежде начать новую жизнь. Но и в Америке, похоже, графья не в цене. Сумел устроиться только официантом в ресторане (не умеет же ничего). Но тщательно скрывает это, голубая кровь (   Читать дальше...   )Производство: США / Edison CompanyЖанр: короткометражный, драма, мелодрама, немое киноРежиссер: нет сведенийАктеры: Марк МакДермотт, Мириам Несбитт, Роберт Коннесс, Нэнси АврилПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:02
+В 1945 году вернувшийся с войны солдат убил свою девушку и её нового парня. Дело было во время школьного выпускного бала. И с тех пор в городе этот праздник не проводился, пока в 1980 году его не решили провести снова... В городе тут же начали появляться новые юные жертвы. И деятельная девушка Пэм взяла на себя труд раскопать давнишнюю историю так и не пойманного (   Читать дальше...   )Производство: США / GraduationЖанр: ужасы, детектив, триллерРежиссер: Джозеф ЗитоАктеры: Вики Даусон, Кристофер Гутмэн, Лоуренс Тирни, Фарли Грейнджер, Синди Вентрауб, Лиза Дансхет, Дэвид Седерхолм, Билл Нуннери, Том Брэй, Дайан Роуд, Брайан Инглунд, Донна Дэвис, Карлтон Карпентер, Джой Глаккум, Тимоти УорерПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBB759E8603193FF8B86B4707F851CD2BABCB5FF
+magnet:?xt=urn:btih:9D5F3B54B8FBA773481E19C4FE8BC63A6DB2E064
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742445   (105549) от 11.08.2024
+###  Публикация: 1722363   (56871) от 11.05.2024
 
-Bronnie - Jaded (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Punk, Female Vocal>
+Хороший доктор / The Good Doctor (2022-2023) WEB-DLRip [H.264/720p-LQ] (сезон 6, серии 1-22 из 22) LostFilm
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jaded [00:03:08]
-02. Back And Forth [00:03:01]
-03. OH! [00:02:59]
-04. Paranoid [00:03:03](   Читать дальше...   )Жанр: Pop Punk, Female VocalПродолжительность: 00:40:27
+История молодого талантливого врача с синдромом саванта, обладающего уникальными способностями — невероятной памятью и фантастической чувствительностью к проблемам, вспыхивающим внутри человеческого организма. Герой становится блестящим хирургом, несмотря на это, в личностном плане его развитие соответствует уровню десятилетнего ребёнка...Производство: США / 3AD, ABC Signature, EnterMedia ContentЖанр: драмаРежиссер: Майк Листо, Стивен ДеПол, Ребекка МолинАктеры: Фредди Хаймор, Ричард Шифф, Хилл Харпер, Кристина Чанг, Пейдж Спара, Фиона Губелманн, Уилл Юн Ли, Антония Томас, Брайа Хендерсон, Ной Галвин и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:43:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3FCB7BA66649FC0CC00DD4487F96E4DAB554128
+magnet:?xt=urn:btih:24922D86B4BCDEAAB4307A7662BE25E6D9107426
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742307   (105550) от 11.08.2024
+###  Публикация: 1722357   (56872) от 11.05.2024
 
-Sinergy - Studio Albums (3 releases) (2000-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+Хороший доктор / The Good Doctor (2021-2022) WEB-DLRip [H.264/720p-LQ] (сезон 5, серии 1-18 из 18) LostFilm
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sinergy — финская супергруппа, исполнявшая музыку в стиле пауэр-метал. Группа основана американской вокалисткой Кимберли Госс и гитаристом группы In Flames Еспером Стрёмбладом в 1998 году.2000 - To Hell and Back
-2002 - Suicide By My Side
-2006 - Beware The HeavensЖанр: Power MetalПродолжительность: 02:10:20
+История молодого талантливого врача с синдромом саванта, обладающего уникальными способностями — невероятной памятью и фантастической чувствительностью к проблемам, вспыхивающим внутри человеческого организма. Герой становится блестящим хирургом, несмотря на это, в личностном плане его развитие соответствует уровню десятилетнего ребёнка...Производство: США / 3AD, ABC Signature, EnterMedia ContentЖанр: драмаРежиссер: Майк Листо, Стивен ДеПол, Ребекка МолинАктеры: Фредди Хаймор, Ричард Шифф, Хилл Харпер, Кристина Чанг, Пейдж Спара, Фиона Губелманн, Уилл Юн Ли, Антония Томас, Брайа Хендерсон, Ной Галвин и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:43:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9746D5ED176D51B297AA801ABC6F9A14BA47A0AA
+magnet:?xt=urn:btih:D45E6D1C1F82D40C69CDB561BD9CF82ACF7E2438
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742339   (105551) от 11.08.2024
+###  Публикация: 1722381   (56873) от 11.05.2024
 
-Jim Peterik & World Stage - Roots & Shoots Volume One (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+Лига городов (2024) WEBRip [H.264/720p] (сезон 2, выпуск 14)
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dangerous Combination (Featuring Kevin Cronin of REO Speedwagon) (4:26)
-02. Before Anyone Knows We're Gone (Featuring Colin Peterik) (4:17)
-03. Last Dream Home (Featuring Don Barnes) (4:29)
-04. Forever's The Last Place You Look (Featuring Paul Childers) (4:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:46:48
+«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Производство: Россия | «АМИК», «ТНТ»Жанр: Юмор, комедия, играСубтитры: ОтсутствуютПродолжительность: 01:20:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE3CCFB5B07127BC807D95AEE28964CDD3724722
+magnet:?xt=urn:btih:BAD2B4CAA1F33D92EA546E535C64A677E316D69A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742399   (105552) от 11.08.2024
+###  Публикация: 1722463   (56874) от 11.05.2024
 
-Schnallo - white fluffy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk / New Wave>
+Незнакомец / Убийца Розмари / The Prowler (1981) BDRip [H.264/720p] [MVO]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ich weiss [00:02:55]
-02. cherry [00:03:11]
-03. la fête des fatigués [00:04:02]
-04. schismogenesis [00:05:10](   Читать дальше...   )Жанр: Punk / New WaveПродолжительность: 00:38:00
+В 1945 году вернувшийся с войны солдат убил свою девушку и её нового парня. Дело было во время школьного выпускного бала. И с тех пор в городе этот праздник не проводился, пока в 1980 году его не решили провести снова... В городе тут же начали появляться новые юные жертвы. И деятельная девушка Пэм взяла на себя труд раскопать давнишнюю историю так и не пойманного (   Читать дальше...   )Производство: США / GraduationЖанр: ужасы, детектив, триллерРежиссер: Джозеф ЗитоАктеры: Вики Даусон, Кристофер Гутмэн, Лоуренс Тирни, Фарли Грейнджер, Синди Вентрауб, Лиза Дансхет, Дэвид Седерхолм, Билл Нуннери, Том Брэй, Дайан Роуд, Брайан Инглунд, Донна Дэвис, Карлтон Карпентер, Джой Глаккум, Тимоти УорерПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3CCBEF6D502A2AB1035C38AD423C44F72140E3F
+magnet:?xt=urn:btih:7B43CE1446C7AE4F8753774501EBD7FE37B3018B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742431   (105553) от 11.08.2024
+###  Публикация: 1722427   (56875) от 11.05.2024
 
-Rewind - I'm In Rewind (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm in Rewind [00:03:58]
-02. Freakshow [00:05:16]
-03. Smell the Fear [00:04:07]
-04. Feed the Savage [00:04:30](   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089F74C9B26A22595B2C2B1EB212A6C7AF818ABD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742231   (105554) от 11.08.2024
-
-Asmodai - Soul Collector (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Witch House>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Asmodai [00:04:27]
-02. Soul Collector [00:03:57]
-03. Red Alert [00:03:21]
-04. In Sight [00:03:33](   Читать дальше...   )Жанр: Industrial Metal, Witch HouseПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7F0843BD62FDA8934A6BC026E0707B963713ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742046   (105555) от 11.08.2024
-
-The Pine Box Boys - Kung Fu Wolfman vs. the Blob (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk, World, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction to KUNG FU WOLFMAN vs. THE BLOB [00:02:27]
-02. Kung Fu Wolfman [00:08:39]
-03. A Long Line of Werewolves [00:04:14]
-04. The Taste of Blood [00:03:45](   Читать дальше...   )Жанр: Rock, Folk, World, CountryПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BC25A9AB5920A96D7E1156173D6D1FDA26FFCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742456   (105556) от 11.08.2024
-
-Rhabstallion - Bat Shit Crazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bat Shit Crazy
-02. Better Late Than Never
-03. Now That You're Gone
-04. Strength Within Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CEB7584682860C743050432E9A372046D3E4E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742429   (105557) от 11.08.2024
-
-Elles Bailey - Beneath the Neon Glow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enjoy the Ride [00:03:38]
-02. Ballad of a Broken Dream [00:05:11]
-03. Leave the Light On [00:03:19]
-04. 1972 [00:02:48](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B55C5F90D2E1681DD3C44CEB03751510366E511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742380   (105558) от 11.08.2024
-
-Celesty - Studio Albums (4 releases) (2002-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celesty — пауэр-метал-группа, основанная в 1998 г. в городе Сейняйоки, Финляндия.2002 - Reign Of Elements
-2004 - Legacy of Hate
-2006 - Mortal Mind Creation
-2009 - VendettaЖанр: Epic Power MetalПродолжительность: 03:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B42D8032B468B4AB14C950CE8CD9E5766CFAD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742411   (105559) от 11.08.2024
-
-Журнал | Военно-исторический журнал №8 (772) (август 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105559.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9131B337030ECB612F39F8A9FC6DF803B683BEAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742095   (105560) от 11.08.2024
-
-Conscience - 3 Albums (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, electro-pop>
+Eguana - Destiny, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Lounge>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2024 - This Life
-2024 - Virtual Minds
-Conscience - 2024 - VisionsЖанр: Synthpop, electro-popПродолжительность: 3 CD, 01:58:04
+01. Cosmic Voyage
+02. Misty Nocturne
+03. Galactic Spectacle
+04. Exospheric Pulse(   Читать дальше...   )Жанр: Ambient, Psychill, LoungeПродолжительность: 00:43:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D225A46E24E1D70148A25EFF08E9D0750FAC5708
+magnet:?xt=urn:btih:18A5CFAB03C42B16BDE094F89EC241EF9084AD21
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742074   (105561) от 11.08.2024
+###  Публикация: 1722503   (56876) от 11.05.2024
 
-Magnavolt - 3 Albums: Stellar Gun (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Сyberpunk, Dark Electronic>
+VA - Déepalma Ibiza 2024 (2024) [MP3|320 Kbps] <House, Deep House, Progressive House, Organic House>
 
 >>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2023 - Stellar Gun
-2024 - Stellar Gun 2
-2024 - Stellar Gun 2 ////EdgezoneЖанр: Darksynth, Сyberpunk, Dark ElectronicПродолжительность: 3 CD, 01:15:07
+01. G Club - Guitarra G (Afterlife Remix) (05:50)
+02. Gorge - Higher (Club Mix) (06:02)
+03. Green George - For You (Extended Mix) (06:56)
+04. Flowers on Monday - Another Day (Original Mix) (07:29)(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Organic HouseПродолжительность: 08:36:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04D1ACB6AA9AB4CDF2E6EC151E8BC10B9BB0F271
+magnet:?xt=urn:btih:DCD10DB6C8E8E20B13D3A77704212920A4D51CE2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742492   (105562) от 11.08.2024
+###  Публикация: 1722482   (56877) от 11.05.2024
 
-Princesa Alba - Como Si Fuese Real (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Special Feature -Ensemble Contest- | Играй, эуфониум! Kонкурс ансамблей [2023, Movie] BDRip 1080p raw
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Como Si Fuese Real [00:01:55]
-02. Indecisa [00:02:56]
-03. Yas Kween! [00:03:27]
-04. Strawberry [00:02:48](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:31
+Кумико Омаэ, недавно назначенная главой музыкального клуба, получает новость, что духовому оркестру старшей школы Китаудзи предстоит участие в конкурсе малых ансамблей «Анкон». Участвовать в конкурсе могут ансамбли от пяти до восьми человек. Однако оркестр насчитывает более пятидесяти учеников, а участвовать хотят многие. Для отбора участников решено провести внутренний (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: МанипуляторЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06C0A651A9FA89CDC1F024BEEEDAAEF703F07EE8
+magnet:?xt=urn:btih:73EE85E09EF38F9E01FFAA3D4460BD932E1E55EA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741775   (105563) от 11.08.2024
+###  Публикация: 1722481   (56878) от 11.05.2024
 
-VA - Nahawand: Best of Vocal Trance (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - Our Promise - A Brand New Day | Играй, эуфониум! Последняя Клятва [2019, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступил новый, очень важный для теперь уже второгодки Кумико Омаэ год. Аска Танака и другие девушки выпустились. Теперь Кумико, вместе с Томоэ Кабэ, предстоит направлять новых участников духового оркестра, к которому также присоединились Канадэ Хисаиши, Мотому Цукинага, Мирэй Сузуки и Сацуки Сузуки. Близится музыкальный фестиваль «Sunrise» и прослушивания в основной (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: AniPlayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 100 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA40B4A7199E206CEF7794349B74336E9E3306A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722346   (56879) от 11.05.2024
+
+VA - Шансон премьера 2023 август (Новые песни. Новые хиты) (2023) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56879.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:26] 01. Елена Воробей & Евгений Гор - Небо в алмазах
+[4:10] 02. ТУ-134 - Ты о любви мне расскажи
+[2:27] 03. Мурат Тхагалегов - Ночь
+[3:01] 04. Сергей Одинцов - Давай друг другу говорить(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3AB74EB646DC92DB9EACBCC227678FF4382818A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722454   (56880) от 11.05.2024
+
+Александр Барыкин - Нелли (2006) [WavPack|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ну и пусть
+ 02. К тебе
+ 03. Её зовут Нелли
+ 04. Судьба(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7439ADB7F1BF7515D9FF288A6440DABFC520159B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722480   (56881) от 11.05.2024
+
+Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! Пусть мелодия дойдёт до тебя (фильм-компиляция ТВ-2) [2017, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кумико Омаэ и её друзья по-прежнему горят желанием завоевать золото на конкурсе! И поэтому, после успеха в отборочном туре в Кансае, члены концертной группы старшей школы Китауджи тут же начинают готовиться к следующему выступлению.
+Решив использовать летние каникулы по максимуму, весь оркестр отправляется в лагерь, где юным оркестрантам будут помогать подготовиться (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: Sa4ko aka Kiyoso & ZenobianЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B26AB1EFE3266204B586C525E05802C7783CDB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722507   (56882) от 11.05.2024
+
+YT Downloader 9.7.17 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56882.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309A3543C4C2C76E7199572EDE55AB850DFD5EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722418   (56883) от 11.05.2024
+
+VA - Big City Afternoon Chill Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
 >>Electronic
->>Trance
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eric Zimmer & Lorraine Gray - Underwater (Original Mix) [7:47]
-02. Ciro Parcheri & Hidden Tigress - Heaven (Derek Palmer Remix) [7:20]
-03. Alex Shevchenko & iThur & Hidden Tigress - Fill The Sky (Original Mix) [6:07]
-04. Peitora & Ciro Parcheri feat. Rebuild - Live For (Original Mix) [5:06](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:33:36
+01. EILAND 030 - Mirrorland (3:15)
+02. Headphone Candy - Serenity (4:04)
+03. Ibizamotion - Chiaras Theme (Radio Version) (4:27)
+04. Tanya Blessing - Kembo (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:09:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0A326F21AC908A70923FF8500EE0720480BA834
+magnet:?xt=urn:btih:3441CFFF3F59FFEB0236AE651A5C2C7F52CA4739
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939726   (56884) от 11.05.2024
+
+Spyro Gyra - Catching The Sun (1980) 1994, BMG Music [FLAC|image+.cue]<Smooth, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Catching The Sun [04:44]
+02.Cockatoo [04:08]
+03.Autumn Of Our Love [05:13]
+04.Laser Material [05:03](   Читать дальше...   )Жанр: Smooth, Jazz-PopПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EA06C666821BB1CEECFA54A85FC03D22049824
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722542   (56885) от 11.05.2024
+
+Константин Соловьёв | Гниль (2024) [MP3, Екатерина Мишина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колонизация Луны произошла не так безоблачно, как ожидалось. Из лунного грунта на свободу была выпущена смертоносная болезнь, гроза и ужас XXI-го века. Официально ее именуют синдромом Лунарэ. Неофициально - Гнилью. В отличие от обычных болезней, Гниль не стремится сразу убить своего носителя. Она стремится его изменить, и внешне и внутренне. Превратить его в отвратительную (   Читать дальше...   )Жанр: ФантастикаЯзык озвучки: РусскийИздательство: Аудиокнига своими рукамиПродолжительность: 35:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BC1EC513255DE085B5FA2D6F66CFA52267DD2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722329   (56886) от 11.05.2024
+
+Лев Гурыч Синичкин (1974) DVDRip [H.264/1080p] [handmade upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телефильм. Экранизация старого русского водевиля Д.Ленского (предыдущая киноверсия 1956г. - "На подмостках сцены" К.Юдина).
+Старый актёр Лев Гурыч Синичкин (Николай Николаевич Трофимов) мечтает, чтобы его дочери Лизоньке (Галина Федотова) досталась главная роль — ведь она так талантлива, но ему противостоят обстоятельства: могущественная примадонна труппы (   Читать дальше...   )Производство: СССР, Творческое объединение «Экран»Жанр: мюзикл, комедияРежиссер: Александр БелинскийАктеры: Галина Федотова, Михаил Козаков, Леонид Куравлёв, Андрей Миронов, Нонна Мордюкова, Олег Табаков, Николай Трофимов, Петр Щербаков, Роман Ткачук, Георгий ТусузовПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2131109077B7903CF054D18A760B7EFEDABB5C48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722121   (56887) от 11.05.2024
+
+Братья Карамазовы (1968) WEB-DLRip [H.265/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56887.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Братья Карамазовы» — широкоэкранный художественный трёхсерийный фильм — экранизация одноимённого романа Ф. М. Достоевского, осуществлённая в 1968 году. Последняя работа в карьере Ивана Пырьева, скоропостижно скончавшегося до завершения создания фильма. Третью серию картины закончили исполнители главных ролей Кирилл Лавров и Михаил Ульянов.
+Психологическая драма (   Читать дальше...   )Производство: СССР / МосфильмЖанр: драмаРежиссер: Иван ПырьевАктеры: Михаил Ульянов, Лионелла Пырьева, Кирилл Лавров, Андрей Мягков, Марк Прудкин, Светлана Коркошко, Валентин Никулин, Павел Павленко, Андрей Абрикосов, Геннадий ЮхтинСубтитры: Русские, английскиеПродолжительность: 01:17:08 + 01:09:11 + 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6652BFC4A6C2F4A89F56D4401F35F90FF999D0EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722440   (56888) от 11.05.2024
+
+Влад Техномак | Механоид (Книга 4). Демонстрация силы (2024) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город Механоидов - место проведения отборочного этапа Королевской охоты. Здесь собрались сильнейшие фавориты фракций, а за порядком следит Призрачная стража. Экелзу и команде предстоит пройти отборочные испытания и доказать свою силу. Только враги не спят и стараются всеми силами помешать достигнуть целей, а руководство проекта втягивает команду во внутренние интриги. (   Читать дальше...   )Жанр: Космическая фантастика, киберпанкИздательство: ЛитРес: чтецПродолжительность: 08:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E56E558DFEF16BD0EAE2B4F2F23356C9D59776D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722313   (56889) от 11.05.2024
+
+Великое путешествие Пуха: В поисках Кристофера Робина / Pooh's Grand Adventure: The Search for Christopher Robin (1997) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made  ...
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винни Пух и Кристофер Робин лучшие друзья, они хотят навсегда сохранить свою дружбу и никогда не расставаться. Однако Кристофер Робин должен пойти в школу, но он так и не смог сказать об этом Пуху. Для того, чтобы предупредить Винни Пуха, Кристофер Робин оставляет горшочек с медом и записку, в которой все объясняет. Пух испачкал записку медом и, при попытке ее прочтения, (   Читать дальше...   )Производство: США, Япония / Walt Disney Pictures, DisneyToon Studios, Walt Disney Television AnimationЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Карл ДжеерсАктеры: Джим Каммингс, Джон Фидлер, Кен Сэнсом, Андрэ Стойка, Питер Каллен, Брэйди Блум, Дэвид Уорнер, Пол Уинчелл, Фрэнки Дж. ДжалассоПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A835BCCA567C545910F5F6D9474AB745758DE0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722513   (56890) от 11.05.2024
+
+Лиам Фаррелл | Вы точно доктор? Истории о сложных пациентах, современной медицине и силе юмора (2022) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 20 лет Лиам Фаррелл работает врачом общей практики в отдаленной сельской местности в Ирландии и пишет статьи и колонки для самых авторитетных медицинских изданий Великобритании. Это сборник рассказов, в которых Лиам Фаррелл, в лучших традициях Булгакова и Чехова, со свойственными ему проницательностью и юмором описывает будни врача, стоящего на переднем крае (   Читать дальше...   )Жанр: Популярно о медицинеПеревод: Татьяна ЗемлерубИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE6DE9F2AAAB4660EFD4DB2F91DF0D2215A9E10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722409   (56891) от 11.05.2024
+
+Ubuntu EducationPack 20.04 (май 2024) [amd64][Multi]
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предназначен помочь в организации учебного процесса и предоставить возможность организации качественного обучения с применением современных информационных технологий.
+Имеет высокую защищённость программного обеспечения от вирусов.
+
+Дистрибутив из коробки предоставляет полностью настроенное решение направленное на покрытие запросов для образовательных учреждений всех (   Читать дальше...   )Разработчик: UALinuxЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96368F7E2BF278CFD6FB5D2F3671CCFE20FA69D
 ```
 
 

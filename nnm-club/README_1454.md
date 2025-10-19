@@ -1,677 +1,653 @@
-###  Публикация: 1794983   (67227) от 01.05.2025
+###  Публикация: 1758816   (38159) от 06.11.2024
 
-Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Darksynth, Doom Jazz>
+«Честный» компьютерный мастер за 865 тысяч «починил» технику жительницы Красноярского края
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pepsi Blue (3:08)
-02. Dance With A Stranger (4:36)
-03. After Hours (5:21)
-04. My Blueberry Nights (3:40)(   Читать дальше...   )Жанр: Retrowave, Darksynth, Dark Ambient, Doom JazzПродолжительность: 00:33:59
+В Красноярском крае компьютерного мастера будут судить за мошенничество в крупном размере. Жертвой преступления стала 69-летняя жительница Сосновоборска.Со слов потерпевшей, зимой 2024 года она увидела в почтовом ящике листовку, в которой предлагался качественный ремонт компьютерной техники по выгодным ценам, а для пенсионеров «честный» мастер обещал скидку.В канун (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7712B32574E0409374758C648FD7A1BD2B0C5CBD
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794831   (67228) от 01.05.2025
+###  Публикация: 1624010   (38160) от 06.11.2024
 
-Газета | Загадки истории №18 (644) (2025) [PDF]
+Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 
->>Журналы
->>Другие журналы
+>>Win Старые Игры
+>>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+Взрывная и динамичная сага Descent продолжается, и действие разворачивается как никогда быстро. Спуститесь в огромные подземные цитадели и почувствуйте себя свободней, чем когда-либо, дрейфуя по каньонам и кратерам на поверхности... Теперь на новом движке Fusion™. Станьте пилотом и проявите мастерство в сражении с боевыми дронами и штурмовыми роботами, используя (   Читать дальше...   )Тип издания: RepackРазработчик: Outrage EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0BF9D0268E639FF31DFBD4BB6942F46C2E32BDA
+magnet:?xt=urn:btih:B32EF1159F6FE34EE4644E7C0F0819F9ECD31BB1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794841   (67229) от 01.05.2025
+###  Публикация: 1713667   (38161) от 06.11.2024
 
-Журнал | Тайны ХХ века №13 (1159) (март 2025) [PDF]
+Beyond Good & Evil / За гранью добра и зла (2003) [Ru] (1.01) Repack 1nomok
 
->>Журналы
->>Другие журналы
+>>След.
+>>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+Фотожурналистка Джейд, главная героиня, становится членом повстанческой организации «Сеть ИРИС», распространённой по всей вселенной. Ей предстоит скрытно запечатлеть на фотографиях заговор инопланетных захватчиков на прежде мирной планете Хиллия. Помогать в опасных вылазках будут её опекун Пей’Дж, кабаноподобный гуманоид, и Аш-Два, корреспондент ИРИС. Тайрон Миллер, (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montpellier, Ubisoft CasablancaЖанр: Action, Adventure, Racing, Arcade, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1218575FBE468F9CF476FEA5A114FEB87EB297BB
+magnet:?xt=urn:btih:E62AE58FE4EEBDC1ACE0CDDC6AA82B3439AEA287
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794931   (67230) от 01.05.2025
+###  Публикация: 1757381   (38162) от 06.11.2024
 
-Гордый и светский / The Proud and Profane (1956) BDRip [H.264/720p] [AVO]
+Дэдпул и Росомаха / Deadpool & Wolverine (2024) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision Profile 7, 10-bit]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>След.
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На остров Новая Каледония в Тихом океане приезжает Ли Эшли, вдова лейтенанта, погибшего в Битве за хребет Эдсона в 1942 году. Прошел всего год со смерти супруга, рана не зажила. Но Ли сильна духом и присоединяется к американскому Красному Кресту, где собирается давать уроки французского. На самом деле женщине хочется узнать побольше о покойном муже. На остров высаживается (   Читать дальше...   )Производство: США / Perlberg-Seaton ProductionsЖанр: драма, военныйРежиссер: Джордж СитонАктеры: Уильям Холден, Дебора Керр, Тельма Риттер, Дьюи Мартин, Уильям Редфилд, Росс Багдасарян, Адам Уильямс, Мэрион Росс, Теодор Ньютон, Ричард ШеннонПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:51:28
+Уэйд Уилсон попадает в организацию «Управление временными изменениями», что вынуждает его вернуться к своему альтер-эго Дэдпулу и изменить историю с помощью Росомахи.Производство: США, Великобритания, Новая Зеландия, Канада / Marvel Studios, Maximum Effort, 21 Laps EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Шон ЛевиАктеры: Райан Рейнольдс, Хью Джекман, Эмма Коррин, Морена Баккарин, Роб Делани, Лесли Аггамс, Дженнифер Гарнер, Мэттью Макфэдиен, Уэсли Снайпс, Ченнинг ТатумПеревод: дублированный (MovieDalen, Red Head Sound, Flarrow Films)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 02:07:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90C3CB20C69F737611D681D88CE2563FAB54AF5F
+magnet:?xt=urn:btih:B27972030EAD2D9E32097D6B5D42A2C3ABB03C02
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794548   (67231) от 29.04.2025
+###  Публикация: 1725548   (38163) от 06.11.2024
 
-Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (0.4.0.87) Repack 1nomok
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Win Старые Игры
+>>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Wish the Blues Had Used a Condom (3:06)
-02. ADD (3:38)
-03. Don't Drink the Kool Aid (4:50)
-04. The Barflies At The Bar (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:59
+В период противостояния Сверхдержав работа американских журналистов на территории СССР была сущим адом. Выполняя свой долг, эти отважные люди вели настоящие шпионские игры. Но подчас исход этих игр был печальным. Попавшие в руки агентов КГБ журналисты исчезали без вести. В эти страшные жернова затянуло и нашего героя. Он до последнего надеялся на помощь своей страны. (   Читать дальше...   )Тип издания: RepackРазработчик: Mindware StudiosЖанр: Action (Shooter), StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9043E346F78F21974DAD472FBB71AC52DE0D9F35
+magnet:?xt=urn:btih:C1B5322294F73C77F7983A4053FA065E5293A3C8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794463   (67232) от 29.04.2025
+###  Публикация: 1715438   (38164) от 06.11.2024
 
-The Absence - Studio Albums (6 releases) (2005-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Win Старые Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Absence - метал-группа из Тампы, Флорида, США. Действует с 2002 года.2005 - From Your Grave
-2007 - Riders Of The Plague
-2010 - Enemy Unbound
-2018 - A Gift For The ObsessedЖанр: Melodic Death MetalПродолжительность: 05:02:47
+Игра Ace Ventura, основанная на одноименном фильме, погрузит Вас в красочный мир, полный юмора и всеобщего веселья. Главный герой, частный детектив Эйс Вентура, специализируется на розыске пропавших животных. Вместе с ним и его ручной обезьянкой Вам предстоит пережить незабываемое приключение. Вы побываете на подводной лодке капитана Немо, в Баварии и на таинственной (   Читать дальше...   )Тип издания: RepackРазработчик: 7th LevelЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5A5970BA7176B7D569D87FC164325C06F7E7146
+magnet:?xt=urn:btih:B45F432C7B1FBFED5DEBC3619661912B593E9419
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794584   (67233) от 29.04.2025
+###  Публикация: 1688441   (38165) от 06.11.2024
 
-Fenson - Cattitude (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы едите курятину? Ну да, а как же!.. А что по этому поводу думают сами куры? А вот то самое и думают. И в один прекрасный день всё куриное сообщество решило рвануть с птицефермы куда подальше. Кому ж охота попасть в тушенку? А вы должны помочь несчастным птицам в их нелегкой задаче. То есть собрать все нужное для побега оборудование - а его наберется немало, задача-то (   Читать дальше...   )Тип издания: RepackРазработчик: Blitz GamesЖанр: ArcadeЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Итальянский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDEA8D738307E2CB34F81BF1BE6A5CA40E56B92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754121   (38166) от 06.11.2024
+
+Выгон / The Outrun (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня, Рона, возвращается на Оркнейские острова после прохождения реабилитации и более чем десятилетнего отсутствия. В окружении дикой природы, где она выросла, воспоминания о детстве сливаются с недавними тяжёлыми событиями, которые привели её на путь выздоровления от зависимости.Производство: Великобритания, Германия / Arcade Pictures, BBC Films, Brock Media, MBK Productions, MogamboЖанр: драмаРежиссер: Нора ФингшайдтАктеры: Стивен Диллэйн, Сирша Ронан, Саския Ривз, Идзука Хойл, Лорен Лайл, Паапа Эссьеду, Наоми Уиртнер, Набил Элухаби, Эли Фишер, Posy SterlingПеревод: Профессиональный многоголосый (RGB)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF01B48C91CFAD67BE9DF041D613892FBF1D280
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749816   (38167) от 06.11.2024
+
+Старик / The Old Man (2024) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit] (сезон 2, серии 1-8 из 8) Lostfilm, HDRezka, TVShows, Кубик в Кубе, Ю.Сербин
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Чейз (Джефф Бриджес) — вдовец из Вермонта, который живет с двумя ротвейлерами в тихом уединении и время от времени общается по телефону со своей дочерью. Когда в его доме появляется ватага киллеров, становится очевидно, что Дэн — больше, чем обычный пенсионер с регулярными визитами к врачу и нерегулярным сном. Оказывается, в 1980-х он был оперативником ЦРУ в (   Читать дальше...   )Производство: США / 20th Television, Fox 21 Television Studios, Fresh Bacon MediaЖанр: боевик, триллер, драмаРежиссер: Джет Уилкинсон, Джон Уоттс, Грег ЯйтансАктеры: Джефф Бриджес, Джон Литгоу, Э.Дж. Бонилья, Билл Хек, Алиа Шокат, Педж Вахдат, Гбенга Акиннагбе, Лим Лубани, Эми Бреннеман, Хиам АббассПеревод: Многоголосый профессиональный (Lostfilm, HDRezka, TVShows), двухголосый (Кубик в Кубе), авторский (Ю.Сербин)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Forced, Full, SDH)Продолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A2CC1BF73D3DA7CA31C10C4B6631F92B129FFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741243   (38168) от 06.11.2024
+
+Умница / HPI: Haut Potentiel Intellectuel (2024) WEBRip [H.264/1080p] (сезон 4, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как Морган сообщит Карадеку о том, что, возможно, он - отец ребёнка? А может, и нет? Ко всему прочему, всё окружение Морган решило призвать её к ответственности: Людо возвращается жить в её дом, Тея предъявляет матери счёт за ложь о прошлом и бывших партнёрах не только по сексу, но и по жизни. Все эти обстоятельства серьёзно осложняют жизнь и становятся источником (   Читать дальше...   )Производство: Франция / Septembre Productions, Itineraire Productions, TF1Жанр: комедия, криминал, детективРежиссер: Венсан Жамен, Джибрил Глиссан, Лоран Тюэль и др.Актеры: Одри Флёро, Мехди Неббу, Бруно Санчес, Мари Денарно, Беранжер МакНис, Cypriane Gardin, Noé Vandevoorde, Christopher Bayemi, Седрик Шевальм, Рюфюс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475B2D66F5CC352DDBFB38AE82C0CFA7D29A2C92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758897   (38169) от 06.11.2024
+
+США готовят план поддержки Intel: возможно слияние с AMD или Marvell
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Intel находится в самом плачевном положении за всю свою историю. Кроме прочего, последний квартал завершился для неё гигантским чистым убытком в 16,6 млрд долларов. Но хоронить компанию вряд ли стоит. Как минимум Intel обсуждают уже в Вашингтоне, и именно в контексте того, что крах компании допускать нельзя.Как сообщается, американские политики настолько (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758309   (38170) от 06.11.2024
+
+Джокер: Безумие на двоих / Joker: Folie a Deux (2024) WEB-DLRip
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Находясь на принудительном лечении в больнице Аркхем, несостоявшийся комик Артур Флек встречает любовь всей своей жизни — Харли Квинн.Производство: США / Warner Bros., Village Roadshow Pictures, Bron Creative, Joint Effort, DC Entertainment, Quebec Film and Television Tax CreditЖанр: драма, мюзикл, криминал, триллерРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Леди Гага, Брендан Глисон, Кэтрин Кинер, Зази Битц, Стив Куган, Гарри Лоути, Ли Гилл, Кен Люн, Джейкоб ЛофлендПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: РусскийСубтитры: Русские  (отдельным файлом)Продолжительность: 02:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65054E952F7EAC6B7EAA44F3778A33A47434FA35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758890   (38171) от 05.11.2024
+
+Flashbaggers - Visions of Utopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices (7:29)
+02. New Prosperity (8:16)
+03. Comfortable Lies (6:17)
+04. The New Normal (4:48)(   Читать дальше...   )Жанр: Progressive Rock, Heavy Prog, Hard RockПродолжительность: 01:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4D8E1189265367E3E872C5AFE86F2C0781EE93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758969   (38172) от 05.11.2024
+
+Chris Dover - Last Prairie Dance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Attitude Alcohol (2:58)
-02. Taking Back Control (3:03)
-03. Baby Your Wrong (3:18)
-04. Open Doors (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:39
+01. Build A Fire (4:20)
+02. We're Not Going Home (3:14)
+03. Every River (5:51)
+04. Pocket Full Of Change (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:179129128907B03D220EEFA9ED873DFD03067871
+magnet:?xt=urn:btih:AF9EF2A6A8F7F44356C2F700AACDB5A4DDD9F224
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794428   (67234) от 29.04.2025
+###  Публикация: 1758963   (38173) от 05.11.2024
 
-KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+Electric High - Colorful White Lies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Other Side of the World    [0:03:34.42]
-02. Another Place to Fall    [0:04:11.33]
-03. Under the Weather    [0:03:36.42]
-04. Black Horse and the Cherry Tree    [0:02:52.28](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:45:05
+01. Sun (3:35)
+02. Harder To Justify (4:24)
+03. Colorful White Lies (3:16)
+04. Seven Wonders (4:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9C20FC898F7142D0BA855F8124251631AF1DD9B
+magnet:?xt=urn:btih:65415B55168DED2CBDF8D811CC9461A996204D58
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794529   (67235) от 29.04.2025
+###  Публикация: 1758919   (38174) от 05.11.2024
 
-Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Lester Young - The Complete Aladdin Recordings (1942 - 1947) 2CD, 1995, Blue Note [APE|Lossless|image + .cue] <Swing, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Never Land/Pure Imagination [5:12]
-02. Walking on the Moon [5:03]
-03. Summer Night [5:25]
-04. Gabrielle [7:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:36
+01. Jumpin' with Symphony Sid [3:11]
+02. No Eyes Blues [3:00]
+03. Sax-O-Be-Bop [2:53]
+04. On the Sunny Side of the Street [3:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:04:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD48D262380C47552DAE31AB6EC86401416DFFE0
+magnet:?xt=urn:btih:DD2AA94EEAF07987F3A3DD9E40AD641CB0FDED58
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794473   (67236) от 29.04.2025
+###  Публикация: 1758968   (38175) от 05.11.2024
 
-Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Passage
-02. Brutal Symphony
-03. King of Ellasar
-04. Demonic Psychosis(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 01:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C47EE636426BE5B663459BADBD24E0CF74F998
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794539   (67237) от 29.04.2025
-
-Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Crazy About You Baby (3:00)
-02. Seminole Blues (3:15)
-03. You Rascal You No. 1 (3:50)
-04. Black Angel Blues (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F9E0ED9CF8E597D52B06F7093CA1DF0088645
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794476   (67238) от 29.04.2025
-
-Corrupter - Gloria in Profundis (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eucharist
-02. Beating Heart Cadaver
-03. Permanent Storage Down Below
-04. Heading for Afterlife(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AC25977C51CBBDD3701FBFB13189A8EC1AE992
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794546   (67239) от 29.04.2025
-
-Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67239.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Black Trip
-A2 Celebration Of The Fourth
-A3 Son Of Earth
-A4 Till We Meet Again(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54BBFD6CB7B8F15026F8B2670CC3C6F5B503AAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794535   (67240) от 29.04.2025
-
-Disfuneral - In Horror, Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catacomb Dwellers
-02. Tombs Vomiting the Dead
-03. Ripped from Within
-04. Crypt of Demented(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153B30227D1DEFFEE146BB6D94B2C74998AF584F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794522   (67241) от 29.04.2025
-
-Ausweglos - Ausgestoßen (2025) [MP3|320 Kbps] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vergänglichkeit
-02. Eine Erzählung
-03. Einsamkeit
-04. Funeral Song(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DCECDBA2785B4AD021C767E9A23934AD5152CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794402   (67242) от 29.04.2025
-
-Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumerian Records [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67242.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Muramasa
-A2 Have a Blast
-A3 Facepalm Mute
-A4 Ji(   Читать дальше...   )Жанр: Progressive Metal, MetalcoreПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646A55C3C5D5065006D400E72C435F375C781E6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794455   (67243) от 29.04.2025
-
-VA - Progressive Frequencies #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jakliu - Don't Forget [03:44]
-02. Deodar - Initiate [07:12]
-03. Sigooma - Vegas Breakfast Nuts [07:06]
-04. Pat H - Roots of the Bonsai Tree [07:04](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541791DA01FCCA0099F35405550BC03B435E17D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794412   (67244) от 29.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Baby Bear Sleep Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с медвежатами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F381344A5A8AFC029432E06D136EF56CF681DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794416   (67245) от 29.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Eggs Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на тему пасхальных яиц.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4292E732C1BD2B7422A0AA30955BA6133C6621
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794413   (67246) от 29.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Dragon Watercolor Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с драконами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DFC74F919F5E9D34C84A809B661DADACF247EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794552   (67247) от 29.04.2025
-
-Даниил Гранин, Алесь Адамович | Блокадная книга. Часть II (2020) [MP3, Игорь Гмыза]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Эксклюзивная классика (АСТ).
-Даниил Александрович Гранин (1919–2017) – русский советский писатель, киносценарист, общественный деятель.
-Алесь Михайлович Адамович (1927–1994) – белорусский советский писатель, сценарист и литературовед, критик.
-Есть вещи, которые человечество забывать не должно, если оно хочет оставаться человечеством. И подвиг ленинградцев-блокадников (   Читать дальше...   )Жанр: Русская литература, повесть, книги о войне, биография и мемуарыИздательство: Аудиокнига (АСТ)Продолжительность: 14:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894AC7E993668D0E35B388236893A1C506316FD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794557   (67248) от 29.04.2025
-
-Даниил Гранин | Мой лейтенант (Главы из книги) (2024) [MP3, Иван Краско и др.]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниил Александрович Гранин (1919–2017) – русский писатель, киносценарист, общественный деятель.
-Пронзительный роман Даниила Гранина «Мой лейтенант» показывает нам войну глазами младшего офицера. Писатель-фронтовик не понаслышке знал тяготы фронтовой жизни, будни окопной войны и правдиво отобразил их на страницах своего романа. Эта книга для тех, кто не любит громких (   Читать дальше...   )Жанр: Русская литература, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB6EB288D1D060931827208AF231ABE6599EF37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794590   (67249) от 29.04.2025
-
-The Riven - Visions of Tomorrow (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Billy Jeter - Delta Traces (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Far Away From Home (3:54)
-02. Killing Machine (3:33)
-03. Set My Heart On Fire (3:14)
-04. Travelling Great Distance (3:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:29
+01. Bobby Rush - Hambone Stomp (3:04)
+02. Rose's Shack (3:32)
+03. Detroit Johnny - Ballad of Goosie Willie (3:55)
+04. Haywood House (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35AB85E0B68DFC37FC9E40644BB3D0487F558114
+magnet:?xt=urn:btih:B8EB5FFE5992D7655664609BA3870356DE322659
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794410   (67250) от 29.04.2025
+###  Публикация: 1758911   (38176) от 05.11.2024
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Spring Herbal Spa Day Clipart [PNG]
+Tribulation - Sub Rosa In AEternum (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Dark metal, Gothic metal, Death metal>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на тему весеннего спа.Формат: PNGРазрешение файлов: 4096 x 4096
+01. The Unrelenting Choir (2:52)
+02. Tainted Skies (3:51)
+03. Saturn Coming Down (5:59)
+04. Hungry Waters (5:22)(   Читать дальше...   )Жанр: Dark metal, Gothic metal, Death metalПродолжительность: 00:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9795503FDC5D4B5D9B6BCCF937416BAE8FC234B8
+magnet:?xt=urn:btih:A8BBC9EE2CC23B46BFABB796E98D34F2FA4941CC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794560   (67251) от 29.04.2025
+###  Публикация: 1758952   (38177) от 05.11.2024
 
-Katie & The Bad Sign - Revolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+4 Bajo Zero - A Rocka Viva (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wolf at the Door (3:44)
-02. Revolution (3:38)
-03. Heartless Woman (3:38)
-04. Shake Me Down (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:12
+01. Siempre Caemos De Pie (05:16)
+02. Presa O Rival (04:14)
+03. Eres Fuego (03:51)
+04. Jaque Al Opresor (05:51)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:36:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23816DF46281BF7A535A0DD4D9AE5C87C47BA12F
+magnet:?xt=urn:btih:22999E13DD926513DE74B2CE9AA15F42A290FE8B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794551   (67252) от 29.04.2025
+###  Публикация: 1758961   (38178) от 05.11.2024
 
-Dudley Taft - The Speed of Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Chuck Ragan - Love & Lore (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wanted Man (3:22)
-02. Miles and Miles to Go (4:47)
-03. Work It Out (3:23)
-04. Burn It Down (2:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:23
+01. All In (3:54)
+02. Wild In Our Ways (4:09)
+03. Northern World (3:53)
+04. Echo The Halls (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15483C3D7A51D5F9076B24750B2A9A6015869BFF
+magnet:?xt=urn:btih:69409426A13FAB7F6A0050D172299F8DA3A59D46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758985   (38179) от 05.11.2024
+
+Light Image Resizer 7.1.0.58[Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A09EDFB59684B17EC2F9BDBB163F3C52B69DE18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758956   (38180) от 05.11.2024
+
+Индеец в шкафу / The Indian in the Cupboard (1995) HDTVRip [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация по произведению Линн Рейд Бэнкс.
+Малыш Омри в день своего девятилетия получил много прекрасных подарков, два из которых, на первый взгляд, не представляли особой ценности — маленький пластиковый индеец и старый шкафчик. Но именно эти неприметные «дары» сулят юному герою много неожиданностей и сюрпризов.Производство: США / Columbia Pictures Corporation, Jane Startz Productions, Paramount PicturesЖанр: фэнтези, драма, семейный, экранизацияРежиссер: Фрэнк ОзАктеры: Хэл Скардино, Лайтфут, Линдси Краус, Ричард Дженкинс, Ришита Бхатт, Стив Куган, Дэвид Кит, Сакина Джэффри, Винсент Картайзер, Нестор СерраноПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5AB05B805221E70E2DE814E36AA8D4C3E8A23E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758928   (38181) от 05.11.2024
+
+Рыжий пёс. Самый верный / Red Dog: True Blue (2016) BDRip [H.264/720p] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцатилетний мальчик Мик отправляется на ферму к дедушке, расположенной в отдалённом регионе западной Австралии. Мальчик ожидал, что эти каникулы пройдут как и предыдущие - скучно, но здесь Мик находит нового друга, рыжего пса, который изменит его жизнь навсегда...Производство: Австралия / Good Dog Enterprises, Woss Group Film ProductionsЖанр: драма, мелодрама, комедия, семейныйРежиссер: Крив СтендерсАктеры: Джейсон Айзекс, Леви Миллер, Брайан Браун, Томас Кокерел, Ханна Мэнгэн Лоуренс, Джастин Кларк, Джон Джэррэт, Стив Ле Маркванд, Зен МакГрат, Винта МакГратПеревод: любительский многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF81F6DED9B0D23AD84905DF4C22C64ED978B937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758863   (38182) от 05.11.2024
+
+RegCool 2.015 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F9170A33AE2F4A2FE72A07702CF925DB41CE29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758942   (38183) от 05.11.2024
+
+Jeem DJ - Compilation (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Canada
+ 02.  Stop Waiting
+ 03.  Alone
+ 04.  Only You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA191388FC85B2828DBB714BF05F6A61A1D1122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758964   (38184) от 05.11.2024
+
+Тринадцатое созвездие - То, что я должен сказать (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38184.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Натянутая как нерв страна
+2. Не тащите меня в совок
+3. Прекратите люди воевать
+4. Я по наивности верил в любовь(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875CFB1C8DC8D3CBDFE13222F2D7EEC5712EA546
 ```
 
 

@@ -1,687 +1,688 @@
-###  Публикация: 1705834   (113742) от 10.03.2024
+###  Публикация: 1805463   (65439) от 06.07.2025
 
-Обними Кита & Евгения Рыбакова - Концерт (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ко мне [00:03:16]
-02. Пополам [00:04:04]
-03. Одеяло [00:03:31]
-04. Мир недостроенных иллюзий [00:02:54](   Читать дальше...   )Жанр: Alternative, Indie Pop, Indie RockПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F77C130F34F94244C5655DB2AF8E57A0180971
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705833   (113743) от 10.03.2024
-
-Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Именно так
-02 - Свети ярче
-03 - Незаметно укройся (от моего лунного света)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D59B1DE3FC90C49BC0D5A62FCAC8BDA8BA4AFC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705761   (113744) от 10.03.2024
-
-Madder Mortem - Mercury (1999) 2019 20th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
+Wytch Hazel - V Lamentations (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undertow
-02. Under Another Moon
-03. He Who Longed For The Stars
-04. These Mortal Sins(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:19:40
+01. I Lament (4:11)
+02. Run The Race (4:59)
+03. The Citadel (5:09)
+04. Elements (4:33)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B15FEDCB4CFA55E6123E8380EE2A2ED9CFB17369
+magnet:?xt=urn:btih:9BBDBD76394AE6AF95727CAFC0CCC349B699F877
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705843   (113745) от 10.03.2024
+###  Публикация: 1805456   (65440) от 06.07.2025
 
-Stephane Grappelli - I Got Rhythm (1997) Delta Music [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Saw Stars [2:32]
-02. The Continental [2:38]
-03. Avalon [2:53]
-04. Some of These Days [2:24](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5E2EE2E95D99A91F76523020BE115BF2BEBDEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705847   (113746) от 10.03.2024
-
-Ellis Marsalis - Ruminations In New York (2004) ESP-Disk' [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things That You Never Were [3:51]
-02. A Moment Alone [4:47]
-03. Haven's Paradise [4:08]
-04. Homecoming [4:44](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830C296253195D74ED14A2E861400950640812AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705837   (113747) от 10.03.2024
-
-Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuss Budget [7:46]
-02. Oatmeal Cookie [4:39]
-03. Da-Baby [7:33]
-04. Down Home [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C7F9DA17CD70C29CEFE637E44BA2946ED991F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705840   (113748) от 10.03.2024
-
-Branford Marsalis Quartet - Coltrane's A Love Supreme: Live In Amsterdam (2004) Marsalis Music [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love Supreme, Part 1: Acknowledgement [9:01]
-02. A Love Supreme, Part 2: Resolution [17:32]
-03. A Love Supreme, Part 3: Pursuance [11:04]
-04. A Love Supreme, Part 4: Psalm [10:49]Жанр: Post-BopПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13685FC494826607EE050046890F3AD85F5D9494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705838   (113749) от 10.03.2024
-
-The Joe La Barbera Quintet - Mark Time (2003) Jazz Compass [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chick It Out [6:26]
-02. Suite Sixteen [6:57]
-03. Automaton [10:12]
-04. For Gillian [8:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9D15736E9919A089B548AF4ACBAA5DD0B4D68D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705953   (113750) от 10.03.2024
-
-Ландыши - Командировочные (Акустика) (2024) [MP3|320 Kbps] <Rock>
+Dimoria - Mass Of Messiah (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. К бабам! (Акустика)
-2. Дачная (Акустика)
-3. За Павликом (Акустика)
-4. А в саду у меня тихо... (Акустика)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:33
+01. When the Lights Go Out
+02. Mass of Messiah
+03. Have I Gone Astray?
+04. Wake Me Up(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17EB90BAE06389E543078CA6A23F8E8184B5A9B6
+magnet:?xt=urn:btih:68225BC3E21DF9F951B1CBEE6C5063795F4723E8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705846   (113751) от 10.03.2024
+###  Публикация: 1805445   (65441) от 06.07.2025
 
-Имитация жизни / Imitation of Life (1959) BDRip [H.264] [AVO]
+Футбол. Клубный ЧМ 2025. 1/4 финала. Реал (Мадрид, Испания) - Боруссия (Дортмунд, Германия) (05.07.2025) HDTVRip [H.264/1080p]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм на основе одноимённого романа Фанни Хёрст (1933)... Провинциальная актриса Лора Мередит, овдовев, отправляется покорять Бродвей. На пляже пути Лоры и её 6-летней дочери Сьюзи пересекаются с афроамериканкой Энни и её светлокожей дочерью Сарой-Джейн. Несмотря на собственное бедственное положение, Лора разрешает Энни поселиться в снимаемой ею квартирке, чтобы (   Читать дальше...   )Производство: США / Universal International PicturesЖанр: драмаРежиссер: Дуглас СиркАктеры: Лана Тёрнер, Джон Гэвин, Сандра Ди, Роберт Алда, Сьюзэн Кохнер, Дэн О`Херлихи, Хуанита Мур, Карин Дикер, Терри Бернэм, Ли Гудман, Энн Робинсон, Трой Донахью, Сандра Гулд, Джек Уэстон, Билли ХаусПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:04:32
+Футбол. Клубный ЧМ 2025. 1/4 финала. Реал (Мадрид, Испания) - Боруссия (Дортмунд, Германия) (05.07.2025)
+СУДЬЯ Абатти Рамон (Бразилия)
+СТАДИОН «Медоулэндс Стэдиум» (Ист-Рутерфорд)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:58:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CC91ADF0E8EFFCB54D80F242406906808222794
+magnet:?xt=urn:btih:E29B09E6B4B123B9AE3CFCC27175B2ABDF40F8F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705829   (113752) от 10.03.2024
+###  Публикация: 1805468   (65442) от 06.07.2025
 
-Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossless|tracks] <Symphonic Rock>
+Enforced - Kill Grid (2021) [FLAC|Lossless|image + .cue] <Death Metal, Thrash>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01. Barcelona (F.Mercury – Moran) 5.38
-02. La Japonaise (F.Mercury – Moran) 4.49
-03. The fallen priest (F.Mercury – Moran – Rice) 5.45(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:39:46
+1. The Doctrine
+2. UXO
+3. Beneath Me
+4. Malignance(   Читать дальше...   )Жанр: Death Metal, ThrashПродолжительность: 00:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7F0E7D0C3322396DB1B767644948C5BA0DB9BCC
+magnet:?xt=urn:btih:4DF547430C7C67B848698DA1C7A41268820A4624
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705915   (113753) от 10.03.2024
+###  Публикация: 1805440   (65443) от 06.07.2025
 
-Даниил Мордовцев | Великий раскол (2015) [MP3, Наталия Литвинова]
+Футбол. Клубный ЧМ 2025. 1/4 финала. ПСЖ (Париж, Франция) - Бавария (Мюнхен, Германия) (05.07.2025) HDTVRip [H.264/1080p]
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Даниил Лукич Мордовцев (1830–1905) – автор многочисленных популярнейших в XIX веке романов и повестей, посвященных истории России и Украины. «Великий раскол» – это захватывающее повествование о трагических событиях XVII столетия, одной из основных причин которых явилась церковная реформа. Деятельность патриарха Никона вызвала раскол Русской Церкви и привела к возникновению (   Читать дальше...   )Жанр: Русская историческая литература, романИздательство: Нигде не купишьПродолжительность: 22:33:50
+Футбол. Клубный ЧМ 2025. 1/4 финала. ПСЖ (Париж, Франция) - Бавария (Мюнхен, Германия) (05.07.2025)
+СУДЬЯ Тэйлор Энтони (Вайсеншэйв, Англия)
+СТАДИОН «Мерседес-Бенц Стэдиум» (Атланта)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 02:03:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6F5D63971C0469260B9EEEAC177288CB0047EE3
+magnet:?xt=urn:btih:B9788FE06AC3F9563E704756BF6C81E74425F734
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705723   (113754) от 10.03.2024
+###  Публикация: 1805306   (65444) от 05.07.2025
 
-Сергей Маврин - Студийные альбомы (20 изданий) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Heavy Metal>
+The Brains - Crazy Monster (2025) [FLAC|Lossless|WEB-DL|tracks] <punk rock, psychobilly>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Маврин» (ранее «Маврик», 1997–2001, и «Сергей Маврин», 2001—2009) — российская хеви-метал-группа, получившая название в честь основателя группы Сергея Маврина, бывшего гитариста группы «Ария». Существовала в течение четверти века: с 1998 по 2023 гг.1997 - Смутное время
-1998 - Скиталец
-2000 - Неформат 1
-2001 - Химический сонЖанр: Progressive Heavy MetalПродолжительность: 17:56:06
+01. Evil [00:03:19]
+02. One More Time [00:03:04]
+03. Feel No Pain [00:01:46]
+04. Crazy Monster [00:02:45](   Читать дальше...   )Жанр: punk rock, psychobillyПродолжительность: 00:35:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5153A135BEDCE23ABA17CA1FC06930A9C7B55BAE
+magnet:?xt=urn:btih:847C8CC99ABFCBF31E8D784F6D6102C0BE6A3EAF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705807   (113755) от 10.03.2024
+###  Публикация: 1805308   (65445) от 05.07.2025
 
-Васин Александр | Приди и победи (2024) [MP3, Олег Шубин]
+Presto Ballet - Dreamentia (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В тихом провинциальном Владимире происходит неслыханное - внутри знаменитых Золотых ворот обнаруживается труп иностранца. Да не простого, а одного из членов одной из самых влиятельных преступных группировок в мире. За расследование берутся местные полицейские, даже не представляя, куда заведет их поиск...
-Добро пожаловать в мистический мир капитана Бестужева!Жанр: Мистический детективИздательство: Аудиокнига своими рукамиПродолжительность: 10:04:18
+01. Dreamentia Theme [00:04:46]
+02. Finding Light [00:05:57]
+03. Into The Silent City [00:05:30]
+04. Mumbletypeg [00:04:49](   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:15:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1A0D3490E3E19C542F53FD373BE4D5E4E75201B
+magnet:?xt=urn:btih:EA267A88DD59C67FD8843DA679F2B10DE55BF3AE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705705   (113756) от 10.03.2024
+###  Публикация: 1805265   (65446) от 05.07.2025
 
-Судьба человека с Борисом Корчевниковым. Михаил Жванецкий. (06.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113756.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-Михаил Жванецкий (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Лион Измайлов с воспоминаниями о Михаиле ЖванецкомПеревод: Не требуется (русский)Продолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E164D288E68BE88036ED1064066F2E6CFB6B29A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705891   (113757) от 10.03.2024
-
-Леди исчезает / The Lady Vanishes (1938) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе Этель Лины Уайт "Колесо вращается" 1936 года... Путешествуя на поезде через Европу, Айрис Хендерсон встречает доброжелательную старуху мисс Фрой. Они общаются с другими пассажирами, а позже Айрис просыпается и обнаруживает, что мисс Фрой пропала. Её недоумение усиливается, когда ни один из попутчиков, с которыми они общались, не (   Читать дальше...   )Производство: Великобритания / Gainsborough PicturesЖанр: детектив, триллерРежиссер: Альфред ХичкокАктеры: Маргарет Локвуд, Майкл Редгрейв, Пол Лукас, Мэй Уитти, Сесил Паркер, Линден Треверс, Нонтон Уэйн, Бейзил Рэдфорд, Мэри Клер, Эмиль Борео, Гуги Уизерс, Сэлли Стюарт, Филип Ливер, Сельма Вас Диас, Альфред ХичкокПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A289A98C30F6B16FD678D2DC8D3DA0BE223C1057
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705836   (113758) от 10.03.2024
-
-Jack Jezzro & Star City Symphony - Guitar at the Symphony (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Guitar>
+The Red Norvo Trio - The Savoy Sessions (1951) 1995, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Havana
-02. It's All in the Game
-03. Suspicious Minds
-04. You Will Be Found(   Читать дальше...   )Жанр: Smooth Jazz, GuitarПродолжительность: 00:44:10
+01. I Can't Believe That You're In Love With Me [2:54]
+02. Time And Tide [2:33]
+03. Little White Lies [3:46]
+04. Prelude To A Kiss [4:04](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:03:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E7E80D0B5022AA1F76A03D32DEB2848EA3F2A50
+magnet:?xt=urn:btih:60DB61AAC97667B9213EDC3C61E90CC5752A4DF5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705741   (113759) от 10.03.2024
+###  Публикация: 1805321   (65447) от 05.07.2025
 
-The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Gotteshorn - Augen Zu (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Rock progressif>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Then He Kissed Me [00:02:38]
-02. Da Doo Ron Ron [00:02:19]
-03. He's Sure the Boy I Love [00:02:44]
-04. There's No Other Like My Baby [00:02:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:35
+01. Augen Zu [00:04:22]
+02. Seemann [00:03:22]
+03. Schneeflocke [00:03:19]
+04. Die Rose [00:03:10](   Читать дальше...   )Жанр: Folk Metal, Rock progressifПродолжительность: 00:28:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EEE50194DE579E59A98E65DCAB203AE99F53DC4
+magnet:?xt=urn:btih:87F4A55F77D1CCD67DE0921DEE0AFF4A0D6C9627
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705830   (113760) от 10.03.2024
+###  Публикация: 1805300   (65448) от 05.07.2025
 
-Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossless|tracks] <Glam Rock>
+Thomas Borgeback - Born66 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1.
-01 - Настоящее золото - легкая жизнь. Solid Gold, Lasy Actiont.
-02 - Парень ХХ века. 20th Century Boy.
-03 - Мечта малолеток. Teenage Dream.(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:43:37
+01.  Disturbing the peace (4:10)
+02.  Tired of it all (3:50)
+03.  Stranger to life (4:20)
+04.  Stand your ground (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AED9FADE70D26B840E0FDA2D82801A4AB529BE6
+magnet:?xt=urn:btih:EFE908CE287B27CFCCF8CF31057EE95A63EE41F7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705894   (113761) от 10.03.2024
+###  Публикация: 1805338   (65449) от 05.07.2025
 
-Сто к одному (10.03.2024) WEBRip [H.264/1080p]
+Cardio Killer - Mayhem Punk Rap (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Post-Grunge, Rapcore>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-Что можно делать на бревне? Что делают люди, чтобы реже болеть? Команды "Короли шпаги" и "Королевы сабли" (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Короли шпаги" против команды "Королевы сабли"Язык озвучки: РусскийПродолжительность: 00:39:14
+01. Холидэй [00:01:40]
+02. Все Псы Попадают В Рай [00:02:35]
+03. Так Близко [00:03:26]
+04. Fake [00:02:49](   Читать дальше...   )Жанр: Post-Punk, Post-Grunge, RapcoreПродолжительность: 00:37:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99A89CBC14B5A2B54FDFEF3C4F492584ABF50485
+magnet:?xt=urn:btih:BE2AD5C434A9ED03C05F63691315BA99F7D0F513
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705863   (113762) от 10.03.2024
+###  Публикация: 1805293   (65450) от 05.07.2025
 
-Nils Hoffmann - Running In A Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, House, Deep-House, Progressive-House>
+Higher Power - There's Love In This World If You Want It (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Post-Hardcore, Punk>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Closer [00:03:34]
-02. Running In A Dream [00:04:29]
-03. Collide [00:03:46]
-04. Holding Me Back [00:04:25](   Читать дальше...   )Жанр: Downtempo, House, Deep-House, Progressive-HouseПродолжительность: 00:33:05
+01. Absolute Bloom [00:03:23]
+02. Count The Miles [00:01:58]
+03. All The Rage [00:04:00]
+04. Better [00:03:34](   Читать дальше...   )Жанр: Post-Hardcore, PunkПродолжительность: 00:33:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB313DA556980B35B741FE9DBB1AE3DBE7CD3E38
+magnet:?xt=urn:btih:5E5FFDB75F0DD04732E402048271EFA8096FE34F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705909   (113763) от 10.03.2024
+###  Публикация: 1805290   (65451) от 05.07.2025
 
-Владимир Короленко | Чудная. Сказки и рассказы (2014) [MP3, Аркадий Бухмин]
+Футбол. Клубный ЧМ 2025. 1/4 финала. Палмейрас (Сан-Паулу, Бразилия) - Челси (Лондон, Англия) (04.07.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Клубный ЧМ 2025. 1/4 финала. Палмейрас (Сан-Паулу, Бразилия) - Челси (Лондон, Англия) (04.07.2025)
+СУДЬЯ Фагани Алиреза (Кашмер, Иран)
+СТАДИОН «Линкольн Файнаншел Филд» (Филадельфия)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59426554CCE5E0987D83501C409B92D0EF40C94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805286   (65452) от 05.07.2025
+
+Футбол. Клубный ЧМ 2025. 1/4 финала. Флумененсе (Рио-де-Жанейро, Бразилия) - Аль-Хиляль (Эр-Рияд, Саудовская Аравия) (04.07.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Клубный ЧМ 2025. Флумененсе (Рио-де-Жанейро, Бразилия) - Аль-Хиляль (Эр-Рияд, Саудовская Аравия)(04.07.2025)
+СУДЬЯ Маккели Данни (Нидерланды)
+СТАДИОН «Интер-энд-Ко Стэдиум (Ситрус Боул)» (Орландо)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4094DA6FD8EF976E90D629FEA8F1443E3E35D8A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805313   (65453) от 05.07.2025
+
+Bosphorus Night - Heart Of Your World (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 'n' Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart of Your World
+02. Runner
+03. Into the Sky
+04. For Love(   Читать дальше...   )Жанр: Melodic Hard 'n' Heavy MetalПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE90C53049420D994AEC364BE2815FA25783F1E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805149   (65454) от 05.07.2025
+
+Neezi - Replica (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronicore, Alternative Metal, Dubstep>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Were Born Without Souls... [00:03:45]
+02. ... but Our Hearts Still Work [00:04:32]
+03. Our Memories Are Only Copies [00:04:19]
+04. 24d an Idol an Idol an Idol an Idol An [00:03:04](   Читать дальше...   )Жанр: Electronicore, Alternative Metal, DubstepПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F644801808ED537411B51EE01B76E08432E269A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805375   (65455) от 05.07.2025
+
+Шарль Перро | Красная Шапочка. Сказки матушки Гусыни (2014) [MP3, Олег Исаев]
 
 >>Аудио для детей и родителей
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Классика.
-В этот сборник одного из величайших русских  детских писателей Владимира Галактионовича Короленко (1853–1921) вошли следующие рассказы и сказки:
-1.	 Чудная
-2.	 Необходимость(   Читать дальше...   )Жанр: Русская литература, классика, детская прозаИздательство: МедиаКнигаПродолжительность: 06:38:55
+Серия/Цикл: Детская литература.
+Полный сборник легендарных сказок французского классика сказок Шарля Перро (1628–1703) «Сказки матушки Гусыни», написанных им еще в ХVIII веке, и уже три столетия завораживающие детей во всех странах мира. Герои волшебного сборника давно уже стали нарицательными героями мировой культуры, порождая несметное количество новых произведений (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Седьмая книга (аудио)Продолжительность: 02:46:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2600C66B3F7059BB8193B77E2D4D9667F7638F55
+magnet:?xt=urn:btih:1C763B03FE50940EB37D04DE3F601DCB65ED7B03
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705858   (113764) от 10.03.2024
+###  Публикация: 1805330   (65456) от 05.07.2025
 
-Ninja Sex Party - These Nuts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Стальные магнолии / Steel Magnolias (1989) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённой пьесы Роберта Харлинга... История жизни шести женщин на фоне семейных и медицинских драм, начиная с подготовки свадьбы младшей из них, её беременности, операции по пересадке почки, трагической потери и последующего горя... Фильм сочетает комедийные и драматические моменты, подчеркивая силу женской дружбы и поддержки в трудные моменты жизни.Производство: США / Rastar Films, TriStar PicturesЖанр: драма, мелодрама, комедияРежиссер: Герберт РоссАктеры: Салли Филд, Джулия Робертс, Долли Партон, Ширли МакЛейн, Дэрил Ханна, Олимпия Дукакис, Том Скерритт, Сэм Шепард, Дилан МакДермотт, Кевин Дж. О`Коннор, Билл МакКачон, Энн Уэджуорт, Ноул Джонсон, Джонатан Уорд, Биби БешПеревод: профессиональный многоголосый (Видеосервис), авторский (Василий Горчаков; Алексей Михалёв)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B0060D630CDCD200A897FCFB9F0056CF3C5D5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805260   (65457) от 05.07.2025
+
+Край гибели / Edge of Doom (1950) WEB-DLRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой бедняк Мартин Линн в порыве отчаяния убивает священника, отказавшего ему в помощи. Охваченный ужасом и раскаянием, он пытается скрыться, но его преследует собственная совесть. Второй священник, узнав историю Мартина, пытается спасти его душу перед неминуемой расплатой. Фильм исследует тьму человеческой души и поиск искупления. С мрачной атмосферой и сильной (   Читать дальше...   )Производство: США / The Samuel Goldwyn CompanyЖанр: фильм-нуар, драмаРежиссер: Марк РобсонАктеры: Дэна Эндрюс, Фарли Грейнджер, Джоан Эванс, Роберт Кит, Пол Стюарт, Мала Пауэрс, Адель Джергенс, Харольд Вермилиея, Джон Риджли, Дуглас ФоулиПеревод: Авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D116D9F3BBAB83DB10FCEC5A4424527DA6FD48A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805402   (65458) от 05.07.2025
+
+Grimorio - On The Path Of The Morning Star (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (These) [00:00:39]
-02. Get Ready (To Get Ready) [00:03:05]
-03. I Own a Car [00:02:29]
-04. Let's Save the Earth [00:03:33](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:20
+01. Unholy Communion
+02. Aquelarre
+03. Morning Star
+04. Marie Laveau(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0490A20EBDE25DAEE91785670EBDE9B4D091504
+magnet:?xt=urn:btih:7B0F11F0BE18899240612D24FB09C3A5D82BAF3A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705602   (113765) от 09.03.2024
+###  Публикация: 1805285   (65459) от 05.07.2025
 
-Alterium - Of War and Flames (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+Then Comes The Night - Metal World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drag Me to Hell [00:03:02]
-02. Siren's Call [00:04:09]
-03. Of War and Flames [00:04:46]
-04. Firebringer [00:03:52](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:10
+01. Headbangers Heaven [00:05:19]
+02. Stay in Hell [00:03:41]
+03. Metal World [00:03:18]
+04. Paradise [00:03:04](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:54:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4E7667C0489E0993E538C6BFB945484BE36C5BA
+magnet:?xt=urn:btih:62D5E0A254F3F22736ECFB68B512A2ABF459A104
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705561   (113766) от 09.03.2024
+###  Публикация: 1805145   (65460) от 05.07.2025
 
-Stephane Grappelli - Shades Of Django (1975) 1989, MPS Records [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+Ренат Мансуров - Жди меня (2025) [MP3|320 Kbps] <Pop>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lover Come Back to Me [5:37]
-02. Sweet Lorraine [3:10]
-03. Shine [3:38]
-04. Solitude [4:15](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:47:58
+01 - Жди меня [00:04:40]
+02 - Вечер без тебя [00:04:59]
+03 - Жизнь [00:05:07]
+04 - Не простил 2 (Клён) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 01:16:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69EE6225ACB035CAE842BC568F085D8464008B42
+magnet:?xt=urn:btih:90FC0A5718226BD65695AEBC9AAED0D597A55A04
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705693   (113767) от 09.03.2024
+###  Публикация: 1805292   (65461) от 05.07.2025
 
-Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Jeremiah Kane - Back For More (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave, Synthwave, Synthrock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aujourd'hui (5:58)
-02. Lâcher-prise (4:20)
-03. 42 à Brest (4:59)
-04. Sobriété (4:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:22
+01. Back On The Streets [00:04:20]
+02. Midnight Queen [00:04:31]
+03. Trans Am [00:04:32]
+04. Fight To Survive [00:04:14](   Читать дальше...   )Жанр: Retrowave, Synthwave, SynthrockПродолжительность: 00:42:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6F716BDFBC601E930CE779BD1B161D3B5F9BA59
+magnet:?xt=urn:btih:3FEAE90BEB1DFAD1E6446E11CFDB7B5E0BA0DB13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805302   (65462) от 05.07.2025
+
+Trigger - Second Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Back Talk (3:16)
+02.  Down To It (3:54)
+03.  Wasting Away (3:49)
+04.  Sore Loser (3:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F38BDC34AC0A254479DB6058A6CD2F26D88144
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805157   (65463) от 05.07.2025
+
+Ceremony - Solitary Bleed (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Via Dolorosa [00:04:16]
+02. Only Our Blood [00:03:16]
+03. Bull Of Phalaris [00:04:35]
+04. Solitary Bleed [00:05:50](   Читать дальше...   )Жанр: Modern Death Metal, Symphonic MetalПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9624FC2B3C2774A08789A292406569DEB1D2A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805311   (65464) от 05.07.2025
+
+Ashes Of Reason - Crisis Catalyst (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fight The Machine
+02. Desensitised Nation
+03. Crisis Catalyst
+04. Screaming At The Void(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EBBCE9CD81DE3B846E56DF5DCA371BAFB34715
 ```
 
 

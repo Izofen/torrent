@@ -1,657 +1,691 @@
-###  Публикация: 1702952   (115302) от 27.02.2024
+###  Публикация: 1795882   (66999) от 08.05.2025
 
-Kevin & JD - Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+Ephors - A Mad Shade of Yellow (2025) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Intro
+02.A Mad Shade of Yellow
+03.The Chosen
+04.From the Piss Caked Streets(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE23E604FD8C5F082E5C3BA13241D4D1FFBC3ADB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796098   (67000) от 08.05.2025
+
+Aetherwind - The Bonding Element (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cold Steel Rail (4:23)
-02. Rather Have The Blues (4:01)
-03. What's Mine Is Mine (3:51)
-04. Days Months Years (5:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:39
+01.  Silent Sentinel (5:11)
+02.  Truth Stand Still (3:19)
+03.  Whisper of Creation (4:43)
+04.  Timeless Grove (7:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F67E6024782A812F2ABD72C238330B15CB17B2D
+magnet:?xt=urn:btih:AC5814385AC6FEC5C5247AFA36C416CEDEE0CBF2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703002   (115303) от 27.02.2024
+###  Публикация: 1796107   (67001) от 08.05.2025
 
-Terra Atlantica - A City Once Divine (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 2-й матч) Флорида Пантерз - Торонто Мэйпл Лифс (07.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67001.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 мая 2025, четверг. 02:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 261 зритель (95% при вместимости 20 270)
+Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: setanta sportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77FA36A8FC397A9804082A3A2C89CFAC64EB85C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795973   (67002) от 08.05.2025
+
+Gaia Metal - Pentandra (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Whispering Waves
-02. Atlantica
-03. The Avenging Narwhal
-04. To The Bottom Of The Sea(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:58
+01. Iluminados con Mugre
+02. Umbral
+03. Luna Eterna
+04. Resolución(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:36:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB9EB44F19C75A94AD223358DCF3319D61C07A08
+magnet:?xt=urn:btih:1936F929A34492B95198141219CFCCAC6048340B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702964   (115304) от 27.02.2024
+###  Публикация: 1796177   (67003) от 08.05.2025
 
-Six Foot Six - The Six Foot Six Project (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Heavy Metal, Hard Rock>
+Area - Crac! (1975) Japanese Edition, Reissue, 2007, Strange Days Records [FLAC|Lossless|image + .cue] <Experimental, Prog Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Virus Inside 03:45
-02.Bleed for Mankind 04:21
-03.Falling Sparrow 04:09
-04.Frozen in Time 04:14(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:41:09
+01. L'elefante bianco
+02. La mela di Odessa
+03. Megalopoli
+04. Nervi scoperti(   Читать дальше...   )Жанр: Experimental, Prog RockПродолжительность: 00:37:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C8D07804F67AD43253BF14E4754004B8B88A71C
+magnet:?xt=urn:btih:5DCDBA6ABDC37548610F5B5BD0285DEB01723BB2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703062   (115305) от 27.02.2024
+###  Публикация: 1796160   (67004) от 08.05.2025
 
-Иосиф в земле Египетской / Joseph in the Land of Egypt (1914) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тут все просто, это экранизированная ветхозаветная история. Все по святым писаниям. Ну, вы сами помните, наверное, - как братья приревновали Иосифа к отцу (отец явно выделял Иосифа среди остальных братьев), как братики продали младшенького в рабство проходящему мимо купеческому каравану (воистину братские отношения в этой семье были!). Так Иосиф оказался в Египте. (   Читать дальше...   )Производство: США, Thanhouser Film CorporationЖанр: драма,религия, немое киноРежиссер: Юджин МурАктеры: Джеймс Круз, Маргарит Сноу, John Lehnberg, Юстус Д. Барнс, Артур Бауэр, Лила Честер, Райли Чамберлен, Дэвид Томпсон, George A. Grimmer, The Thanhouser ZooПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DA3C34B12D7D3667A9D9DB66BA0CC87580311E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703042   (115306) от 27.02.2024
-
-Маша Ловыгина | Белая сирень (2024) [MP3, Юлия Голдина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемь лет назад в тихом провинциальном городе Чудове произошло событие, о котором не трубили газеты и не судачили потрясённые жители. И это было странно, ведь произошедшее касалось местного «короля» города, который держал власть в своём кулаке. Ольга Валеева возвращается в Чудов и встречается со своим прошлым. Но тот, кто должен лежать в могиле, кажется, жив… Так (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 08:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC27B71CEC81980BE9D2BA74BC02218782735BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702993   (115307) от 27.02.2024
-
-Terra Atlantica - Age Of Steam (2020) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebirth 1815
-02. Across The Sea Of Time
-03. Mermaids' Isle
-04. Age Of Steam(   Читать дальше...   )Жанр: Power Metal
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44CB6487700C4D02131DD1EB13B9CD584726961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703045   (115308) от 27.02.2024
-
-Марина Серова | Частный детектив Татьяна Иванова. Алые губки – мягкий дурман (2024) [MP3, Валентина Куликова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115308.jpg" />
-</div>
-
-
-###  Подробнее
-
-К частному детективу Татьяне Ивановой обращается Лидия Вахрушева с просьбой вынудить ее бывшего мужа, хозяина мебельной фабрики, дать деньги на операцию дочери. Пожалев женщину, Иванова берется за работу и с удивлением обнаруживает, что на мирном предприятии существует режим особой секретности, а по вечерам происходит внеплановая отгрузка мягкой мебели. Как ни парадоксально, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 08:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68DBD79EE3B637200A1B4F8AF636066AC4D8EC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702950   (115309) от 27.02.2024
-
-Wojtek Stanisz Quartet - Szuflandia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Szuflandia (7:09)
-02. Matthew (9:36)
-03. Intro to Requiem (3:44)
-04. Requiem for Unknown (9:12)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3208D82CC320051C9F3AE24E0DA3174F0D9AF60F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702949   (115310) от 27.02.2024
-
-Twilight Tapirs - Great Lake Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Clipper Ships (0:58)
-02. Wolverine Train (3:34)
-03. Thy Fearful Symmetry (3:08)
-04. Koi Fish Shangri-La (3:39)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4105BAFB632C7C64A32955F009E4BA45F59934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703033   (115311) от 27.02.2024
-
-Марина Серова | Частный детектив Татьяна Иванова. Женщина-ловушка (2024) [MP3, Ирина Азимова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив Татьяна Иванова расследует убийство Алика Прокопьева. Молодой человек после смерти брата возглавил рекламную фирму. Дела в «Зебре» шли неважно, и Алику пришлось взять кредит в банке. Но деньги вскоре исчезли, а самого Прокопьева убили прямо в рабочем кабинете… Подозреваемых несколько. Однако Татьяна чувствует, что истинный злоумышленник слишком умен (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BCF59C048697487A54F6693E9C7EB7B14F21B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702991   (115312) от 27.02.2024
-
-Einar Haavik Kvartett - On A Sentimental Journey (1999) Bjarne Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+Roy Eldridge And Dizzy Gillespie - Roy And Diz (1954) 1994, Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cobra [3:37]
-02. Sentimental Journey [4:19]
-03. How Insensitive [3:53]
-04. Don't Explain [6:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:25
+01. Sometimes I'm Happy [5:25]
+02. Algo Bueno [6:12]
+03. Trumpet Blues [7:57]
+04. Ballad Medley [11:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:15:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB1E39F5D1047ECC961EBBF26A109958E616464E
+magnet:?xt=urn:btih:C276DBAB0F761D4CC5CB0738068DA5B94B106A01
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703035   (115313) от 27.02.2024
+###  Публикация: 1796131   (67005) от 08.05.2025
 
-Марина Серова | Частный детектив Татьяна Иванова. Не рой другому яму (2024) [MP3, Наталья Дымочко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115313.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Москве в ночном элитном клубе происходит загадочное убийство крупного банкира. А на следующий день в Тарасове у частного детектива Татьяны Ивановой появилась очаровательная клиентка – дизайнер по интерьерам из столицы. Выслушав историю своей гостьи, Татьяна согласилась помочь ей. Но вслед за Юлией пожаловали другие гости, жестокие и страшные… Какая связь между (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EB869CB9686FA90AF5825094070B26E72C8C41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703014   (115314) от 27.02.2024
-
-Theragon - Where The Stories Begin (2020) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115314.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Prophecy
-2. Theragon
-3. Blazeborn
-4. The Eternal War(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C40927380CDFC55C9E458F45D7FA5A674DD4F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702955   (115315) от 27.02.2024
-
-Vircolac - Veneration (2024) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115315.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Lament (I Am Calling You)
-2. Veneration
-3. Unrepentant
-4. Our Burden of Stone on Bone(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BA8E5B6CA886C02C05C38562670CE3B41F5B2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702932   (115316) от 27.02.2024
-
-Томас Фрицше | Кто владеет мячом? (2023) [MP3, Андрей Троммельман]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115316.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Какого черта мои сотрудники такие несамостоятельные? Почему им приходится по пять раз объяснять одно и то же?» – типичная жалоба большинства руководителей. Эта книга очень подробно, в режиме реального коучинга, объясняет, как превратить подчиненных в тех, на кого можно положиться. Ее герой Мартин – начальник десятка инертных продавцов в супермаркете – под руководством (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 05:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7E56512918F35BF99D4E413D9868FB032F4933
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703067   (115317) от 27.02.2024
-
-Accept - Humanoid (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humanoid (4:35)Жанр: Heavy MetalПродолжительность: (4:35)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6ABF1845C79155E269040A44549CE56FB3656D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703073   (115318) от 27.02.2024
-
-YT Downloader 9.6.7 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115318.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEEDBAB8D4925E3C89375DF81E63994BC050970
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703081   (115319) от 27.02.2024
-
-Туве Янссон | Всё о Муми-троллях (2018) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Муми-тролли.
-Туве Марика Янссон (1914–2001) – финская писательница, художница, иллюстратор. Обрела всемирную известность благодаря своим книгам о муми-троллях.
-Муми-тролли – одни из самых известных героев мировой детской литературы. Небольшие истории об этих обаятельных персонажах, которые сопровождают большие красочные иллюстрации, отлично подойдут как (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Азбука-АттикусПродолжительность: 03:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A68ABD4F1BDE3B70C21ACA69AC0D21D10516FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703023   (115320) от 27.02.2024
-
-Валерий Шарапов | Дело сибирского душегуба (2024) [MP3, Николай Науменко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ностальгия по временам, уже успевшим стать историей. Автор настолько реально описывает атмосферу эпохи и внутреннее состояние героев, что веришь ему сразу и безоговорочно. Середина семидесятых. Небольшой сибирский городок Грибов объят ужасом. На опушке леса обнаружен труп десятилетней внучки председателя горисполкома. Маньяк задушил ее, изнасиловал и потом снял скальп. (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 07:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1A5F8450CB5CF7A4F44059E0411A4548F88271
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703091   (115321) от 27.02.2024
-
-The Samurai Of Prog Featuring Marco Grieco - A Quiet Town (2024) [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile Forever 7:47
-02. The Crime 5:42
-03. The Priest 6:57
-04. The Businessman 7:48(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2CF7BF297C559801F49823AFF7F63157D393D53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703065   (115322) от 27.02.2024
-
-Accept - Humanoid (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+Jonas Wall - Umbaji (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Humanoid (4:35)Жанр: Heavy MetalПродолжительность: 00:04:35
+01.  Oh Boy Roy (3:02)
+02.  Back Home (4:19)
+03.  Kings (5:57)
+04.  SunTan (4:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F280275C2205B0895F03FAD506EEB72DD0945D3A
+magnet:?xt=urn:btih:3A312C3220481B47C79541D41E7364137E1C4F93
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702984   (115323) от 27.02.2024
+###  Публикация: 1796102   (67006) от 08.05.2025
 
-Стивен Кинг | Долгий джонт (1981) [MP3, Слепое кино / Orekhov Nikita Ivanovich]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джонт-рейсы позволяют мгновенно телепортировать грузы и пассажиров на самые дальние расстояния. Есть только одно условие: живой объект должен находиться в бессознательном, либо в крепко спящем состоянии, иначе...Жанр: научная фантастика, драма, триллер, хоррорИздательство: Аудиокнига своими руками (KreDo)Продолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0942F657B52FA9497FE7710DBAF209E37AF6F502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703070   (115324) от 27.02.2024
-
-Brave Browser 1.63.162 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0A13B5450333C301CC32971E0641B12095433F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702929   (115325) от 27.02.2024
-
-Елена Прибылова | Книготерапия (2024) [MP3, Виктория Она]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это книга исцеляет, помогает, оказывает психотерапевтическое воздействие с помощью чтения. Как место исцеления Души, лечебное средство, «таблетка» от депрессии. В произведении где-то с юмором и иронией, а где-то и с грустью, поднимаются актуальные темы про неуверенность в себе, психологические травмы, кризисные ситуации, потери близких людей, друзей, предательство. (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 10:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC10363C0F7D65D9686167E46F9A8369AE23FD85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702939   (115326) от 27.02.2024
-
-Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Christian Madden & The Enemy Chorus - Shinbone's Revenge (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Smooth Rose (3:48)
-02. Spicy Little Dance (2:49)
-03. Pure Feelings (2:49)
-04. True Love Has Your Name (3:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:00
+01.  Twice As Thick (3:52)
+02.  The Skins (4:41)
+03.  Stoops Uprising (3:01)
+04.  Discorporate (3:54)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:41:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9FB9DE65C7FE703089FFC38199CCD142A449CC5
+magnet:?xt=urn:btih:EE7A064651B981BF7F00DA370D2AB16E7B72EA86
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703076   (115327) от 27.02.2024
+###  Публикация: 1796136   (67007) от 08.05.2025
 
-GeoGebra 6.0.827.0 Classic + Portable [Multi/Ru]
+Lily of the Sea - Slow Violence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01.  The Fruit Tree (5:04)
+02.  Dear Trudence (3:03)
+03.  Slow Violence (2:41)
+04.  Hey Now (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E358C3AEB027D9E4A45242AFC8D60E0A417D4F4F
+magnet:?xt=urn:btih:4D86E20589D663980C956380145EC709A42290F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796100   (67008) от 08.05.2025
+
+Big Mike Hart - Modern Classic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Open Bar (4:19)
+02.  Passport (3:25)
+03.  Breeze (5:21)
+04.  Tidal Wave (3:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED9185358FB3C8C894A0192F8314622C0D4B058
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796154   (67009) от 08.05.2025
+
+Haken - Liveforms: An Evening With Haken (Live in London 2024) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. The Last Lullaby (Live in London 2024) (02:11)
+ 02. Taurus (Live in London 2024) (04:44)
+ 03. Nightingale (Live in London 2024) (07:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB7AE066645F65515806C4CD4A342E622F57733
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796118   (67010) от 08.05.2025
+
+Eric Elias Trio - HOME MADE (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Como vaya yo y lo encuentre (5:05)
+02.  Bak Bit (5:15)
+03.  Don't Follow the Red Lights (6:33)
+04.  El Temps Dirà (4:09)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7AFA203EE60D791A29C6AAFF52C2142E618801
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796101   (67011) от 08.05.2025
+
+Bowers Foreman - The Boy Who Learned To Fly (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All That Defines You (4:06)
+02.  The Boy Who Learned To Fly (3:53)
+03.  Mad Man (3:30)
+04.  Car Park Station (3:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B80CEA0C85695EA589306D1336C8E232A4FD5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796159   (67012) от 08.05.2025
+
+Coleman Hawkins With Billy Byers And His Orchestra - The Hawk In Hi-Fi (1956) 2001, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body and Soul [5:00]
+02. Little Girl Blue (take 3) [3:04]
+03. I Never Knew (take 5) [3:07]
+04. Dinner For One Please, James (take 3) [3:12](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5007CF868E8DDF5946989CB9E068625712A6F73F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795936   (67013) от 08.05.2025
+
+Epic Death - The Seer (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freya's Fire
+02. The Berserker's Axe
+03. Warrior
+04. Odin The Seer(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0D712617653E1E6370B80AA976D225D4ACC2FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796127   (67014) от 08.05.2025
+
+Футбол. Fonbet Кубок России 2024/25. Путь РПЛ Финал (игра-1). Зенит (Санкт-Петербург) - ЦСКА (Москва) (30.04.2025) WEBRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67014.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Зенит» и ЦСКА встретятся в финале Кубка России Пути РПЛ. Это двухматчевое противостояние, как известно, из турнира очень трудно вылететь. У ЦСКА солидное преимущество перед «Зенитом» по победам в Кубке страны в целом – 13 против шести с учетом советского периода отечественного футбола. Команды подходят к первому финальному матчу на Пути РПЛ с беспроигрышными сериями (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 02:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6230A76CF52FCA9767F6E40B29B9678C6CEF16C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795977   (67015) от 07.05.2025
+
+Morcolac - Sanguinaria (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sanguinaria (07:00)
+02 - Ominous Castledusk (06:07)
+03 - Blacklight Torches From Below (05:27)
+04 - Dragonbanners Draw The Horizon (06:01)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF77F0D8EF5A3AAAE85E9065309FD02E12BA473A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795940   (67016) от 07.05.2025
+
+Ella Fitzgerald - Like Someone In Love (1957) 1991, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's a Lull in My Life [3:28]
+02. More Than You Know [3:17]
+03. What Will I Tell My Heart [3:32]
+04. I Never Had a Chance [2:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51356707AFA35DBB49A05AD2912BDCAE10AF236A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795888   (67017) от 07.05.2025
+
+Inherited - No Regret (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Regrets
+02. Urban Guerrilla
+03. Spiritual Butcher
+04. Hard Life(   Читать дальше...   )Жанр: Thrash, Groove Metal, HardcoreПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C95AF0F864B94A6DB2C029C28BDABA0EB11984
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795878   (67018) от 07.05.2025
+
+Dissentient - Studio Albums (4 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dissentient - канадская метал-группа из Оттавы, Онтарио, образована в 2005 году.2011 - Black Hole Machine
+2013 - The Archillect (EP)
+2019 - Portal III
+2023 - Labyrinth(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 03:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0E7BE7295FF703BAC699862AFC7021626D834F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795944   (67019) от 07.05.2025
+
+Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67019.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vitrification Of Blood (Part 1)
+A2 Chaoplasm
+B1 Hidden Species (Vitrification Of Blood Part 2)
+B2 Meticulous Soul Devourment(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9719182439FBF2997A2730134A356A4698923EB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795702   (67020) от 06.05.2025
+
+Slizard - Wicked Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undead Nightmare (07:27)
+ 02. To Neverland (04:31)
+ 03. Outstretched Arms (03:20)
+ 04. No Way Out (03:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58E66C211AFB224445B6FAC11F7F155B78FB471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795762   (67021) от 06.05.2025
+
+НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 1-й матч) Флорида Пантерз - Торонто Мэйпл Лифс (05.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67021.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 мая 2025, вторник. 03:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 031 зритель (94% при вместимости 20 270)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: setanta sportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60963C5110715B35B70AD62DAD1B7D04A0E209F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795755   (67022) от 06.05.2025
+
+Леонид Андреев | Иностранец (1996) [MP3, Сергей Бехтерев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Леонид Николаевич Андреев (1871–1919) – русский писатель, прозаик и драматург, один из самых знаменитых писателей России начала 20 века.
+Рассказ Л.Н. Андреева «Иностранец», написанный осенью 1901 года, и сегодня, более чем через 120 лет после написания, звучит очень остро…
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF46A9D1C17E928E592AEFDC35353857B7E398B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795805   (67023) от 06.05.2025
+
+Hyena - About Rock and Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightriders
+02. About Rock and Roll
+03. The Eternal Zero
+04. Hail the Fire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2921AD6FE8F77013F1771E165B42D50EB1E211BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795795   (67024) от 06.05.2025
+
+Безумие Манхэттена / Manhattan Madness (1916) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив О'Дэйр, состоятельный молодой человек с Запада, по делам приезжает в Нью-Йорк, откуда он родом и где учился в университете. Он встречается с друзьями по студенческой жизни, весело проводит время. Но после многих лет жизни на Западе, жизнь в большом городе кажется ему слишком пресной, без острых ощущений. И он все время ноет об этом, раздражая друзей...
+Качество (   Читать дальше...   )Производство: США / Fine Arts Film CompanyЖанр: боевик, мелодрама, комедия, вестерн, немое киноРежиссер: Аллан ДуонАктеры: Дуглас Фэрбенкс, Джевел Кармен, Джон Ричмонд, Юджин Ормонде, Джордж Беранджер, Рут Дарлинг, Macey Harlam, Норман Керри, Альберт МакКуорри, Адольф МенжуПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1227EF33F6A7496C10668D612B99D5D5CA3F10
 ```
 
 

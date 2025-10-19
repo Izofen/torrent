@@ -1,660 +1,672 @@
-###  Публикация: 1706695   (113612) от 13.03.2024
+###  Публикация: 1807006   (65309) от 17.07.2025
 
-Сергей Ильин | Ярлинги поневоле (2024) [MP3, Игорь Ященко]
+Frank Potenza - Express Delivery (1989) TBA Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It Last [4:32]
+02. Peach [4:12]
+03. Until I Met You [4:07]
+04. Listen Up [4:01](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CA458473881D555CDFDCA2A2E18727CF19E957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807248   (65310) от 17.07.2025
+
+Heaven Shall Burn - Heimat (2025) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Ad Arma
+02 – War Is the Father of All
+03 – My Revocation of Compliance
+04 – Confounder(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA37C418F111C041577194AC9F5B6508D87F0C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806863   (65311) от 15.07.2025
+
+Журнал | Тайны ХХ века №28 (1174) (июль 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65311.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774896AC06353EBA81E6CFCC02B037F18E974579
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806899   (65312) от 15.07.2025
+
+Альфред Ван Вогт | Пробуждение (2020) [MP3, Puffin Сafe]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оказывается, чья-то нелепая ошибка может запросто отправить тебя в чужой мир. А там… Магия, драки, сражения, погони и засады. Для немного взбалмошных пятнадцатилетних близнецов Яромира и Ярославы приключения быстро перестали быть похожими на игру. Ведь смерть в этом зазеркальном квесте настоящая и вернуть жизнь невозможно. Почти.Жанр: Боевое фэнтезиИздательство: ЛитРес: чтец, АвторПродолжительность: 09:56:28
+Иилах не помнил, как очутился на Земле. Однажды сознание стало возвращаться к нему и он осознал, что эта и другие планеты мертвы, ему неоткуда получить достаточно энергии, чтобы восстановить свое тело и память, а значит, он будет медленно умирать, пока не превратится в такой же холодный камень как и все вокруг. Но потом появились странные существа, приспособившиеся (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:42:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2BE3657443DE92603E4DF0EADD9320E047F6605
+magnet:?xt=urn:btih:8934E0E4C1A48AC7DD0B336D96DDDE1DEC6E7247
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706355   (113613) от 12.03.2024
+###  Публикация: 1806811   (65313) от 15.07.2025
 
-Sonny Stitt - Tune-Up! (1972) 1993, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+Леонид Еленин | Астероиды: рожденные пламенем (2025) [MP3, Кирилл Головин]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tune-Up [4:56]
-02. I Can't Get Started [5:37]
-03. Idaho [4:34]
-04. Just Friends [4:33](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:38:30
+«Моя книга – история формирования и эволюции Солнечной системы и ее самых многочисленных обитателей – астероидов. Мы погрузимся в захватывающую эпопею длиной в миллиарды лет, в которой были и солнечное пламя, и грандиозные столкновения, познание, радость открытий и разгадки космических тайн – все то, что привело нас к современным знаниям о нашем общем доме – Солнечной (   Читать дальше...   )Жанр: АстрономияИздательство: БОМБОРАПродолжительность: 09:27:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:576C08CA1E7D60FD194721C3EF981CC715F8AEBA
+magnet:?xt=urn:btih:73FBB42AAFDED1CC77677D57279545E2514A2AA5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706397   (113614) от 12.03.2024
+###  Публикация: 1806932   (65314) от 15.07.2025
 
-TechSmith Snagit 2024.2.1 for Mac [Multi]
+Шаблоны - Creatsy - Stationery Scene with Classic Tape-Bound Notebook Mockup - 1107548501 [PSD]
 
->>Архив торрентов
->>Архив 4Apple
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2023Разработчик: © 1995 - 2021, TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Французский
+Сцена из канцелярских товаров с классическим макетом блокнота.Формат: PSDРазрешение файлов: 6000x4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27F7E69371F3ED0E6AF2CEADEF32D3F5CA7AE3E7
+magnet:?xt=urn:btih:53EBC62627FF72316F4CECAF5CFCF6E316F7E034
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706429   (113615) от 12.03.2024
+###  Публикация: 1806931   (65315) от 15.07.2025
 
-Data Merge for Mac 1.1.2 [En]
+Сказочные джунгли. Сборник мультфильмов (1965-1970) DVD5
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Data Merge может генерировать, начиная с таблицы данных и группы путей прототипов и текстовых форм, серию файлов на диске, в которых создается содержимое файлов и даже конечные пути, объединяя значение FIELDS внутри таблицы данных с прототипом. текст и пути.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2024Разработчик: © 2019-2024 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+Классический образец рисованных мультфильмов, позволяющих ребенку легко и доступно обрести понятие, что же это такое, добро и зло. Прекрасный подарок для детей дошкольного и младшего школьного возраста.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, мультфильм, детский, короткометражкаРежиссер: Леонид Амальрик, Василий Ливанов, Михаил Ботов, Ефим Гамбург, Александра Снежко-БлоцкаяАктеры: Клара Румянова, Георгий Вицин, Михаил Новохижин, Серафима Бирман, Анатолий Папанов, Тамара Дмитриева, Маргарита Суворова, Елена Понсова, Мария Виноградова, Капитолина Кузьмина и другиеСубтитры: отсутствуютПродолжительность: 01:15:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11BD9D2F7DBA40BE0C04997AC427F0569BD6AC83
+magnet:?xt=urn:btih:5075DD2BA1E3F9D9FA905D742A6814829D5AC4C5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706256   (113616) от 12.03.2024
+###  Публикация: 1806856   (65316) от 15.07.2025
 
-Ngguitarboy - Woolabaloola (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Wiener Philharmoniker & Tugan Sokhiev - Sommernachtskonzert 2025 / Summer Night Concert 2025 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Side (3:55)
-02. The Place (2:58)
-03. Sidewalk Man (4:18)
-04. No Love (2:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:42
+01. Wiener Philharmoniker, Tugan Sokhiev - Orchestral Suite No. 3 in D Major, BWV 1068: II. Air (3:40)
+02. Wiener Philharmoniker, Wiener Sängerknaben, Tugan Sokhiev - Die Rheinnixen: Komm zu uns und sing und tanze (4:03)
+03. Wiener Philharmoniker, Tugan Sokhiev - L'Arlésienne Suite No. 2: Farandole (3:25)
+04. Wiener Philharmoniker, Tugan Sokhiev - Carmen: (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:21:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D57CB3CCD943F342CED8925642715CA4F0DF0A8B
+magnet:?xt=urn:btih:40D36A3F179BDD182850DFAE787560C947AFE051
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706231   (113617) от 12.03.2024
+###  Публикация: 1806804   (65317) от 15.07.2025
 
-Navicat for MongoDB on Mac 16.3.7 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для MongoDB предоставляет вам высокоэффективный графический интерфейс для управления, администрирования и разработки баз данных MongoDB. Подключайтесь к локальным/удаленным серверам MongoDB и совместим с MongoDB Atlas. Navicat для MongoDB предлагает замечательные функции для управления, мониторинга, запроса и визуализации ваших данных. Вы можете легко повысить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FED641F05B1A64D35E8361D02FE6FAF5EF8EAA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706404   (113618) от 12.03.2024
-
-TechSmith Camtasia 2023 Studio 2023.3.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 1995 - 2024 TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5CF9F80062A9C190CF43748BDBA3C6AC67DE5B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706349   (113619) от 12.03.2024
-
-Oscar Peterson - Con Alma: Live in Lugano (1964) 2023, Mack Avenue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waltz for Debby [7:23]
-02. My One and Only Love [6:04]
-03. Blues for My Landlady [11:02]
-04. Con Alma [6:27](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD4D0C7BCC84A30993D85E652DB8FF5C2F00E37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706365   (113620) от 12.03.2024
-
-Михаил Волконский | Горсть бриллиантов (2015) [MP3, Маргарита Иванова]
+Виктор Кустов | Провинициалы (Книга 2). Уроки истории (2023) [MP3, Андрей Леонов]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям. «Русский Дюма», так называли его современники, написал более двадцати исторических романов и повестей.
-Рассказ-быль «Горсть бриллиантов» повествует о том, как молодой человек, простодушный и чистый сердцем дворянин (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий рассказ-быльИздательство: Нигде не купишьПродолжительность: 01:04:08
+Вторая книга "Уроки истории", охватывающая семидесятые годы, раскрывает нравственные и идейные поиски, описывает драматические коллизии, возникающие перед теми, кого относят к шестидесятникам, и теми, кого можно отнести к семидесятникам. Показана духовная жизнь интеллигенции в Иркутске и Красноярске, события тех лет на грандиозных сибирских стройках, а (   Читать дальше...   )Жанр: Современная русская литератураИздательство: Нигде не КупишьПродолжительность: 16:07:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6623F0556181C655D5372BF6C07E0B7FB01B1F8A
+magnet:?xt=urn:btih:D5724A32809B4D6B0808C36A25DB9C2603A7A1D3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706229   (113621) от 12.03.2024
+###  Публикация: 1806836   (65318) от 15.07.2025
 
-Navicat for Oracle on Mac 16.3.7 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat for Oracle — идеальное решение для администрирования и разработки Oracle, которое позволяет создавать, редактировать базы данных, выполнять SQL-запросы и проще подключаться к удаленному Oracle. Он имеет интуитивно понятный графический интерфейс и предлагает мощные визуальные инструменты, такие как редактор запросов с возможностью подсветки синтаксиса.
-Предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6E25B966B8BCAEDF4AB29A5112819EA072416B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706354   (113622) от 12.03.2024
-
-Kenny Barron - The Source (2023) Artwork Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What If [8:02]
-02. Isfahan [6:14]
-03. Teo [6:05]
-04. Daydream [9:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A253AB56CC345EB8E27CDB72C7BFD07E7F7CCF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706248   (113623) от 12.03.2024
-
-Glenn Marais and The Mojo Train - Red, Hot and Blue (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Where My Mojo's At (3:09)
-02. Superfunk (4:04)
-03. Love Denied (3:57)
-04. Red, Hot and Blue (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F92A82F98885D177AC8928D172529F5126405F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706250   (113624) от 12.03.2024
-
-Ibai García - Chasing the blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don´t leave me alone tonight (4:54)
-02. A one and only soul (6:20)
-03. I still care (4:07)
-04. Never coming down (4:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0753716BB03DC0F3FFD1EC8FBC179B0B3C7028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706226   (113625) от 12.03.2024
-
-Permute 3 v.3.11.7 [Multi/Ru]
+Photo Editor v11.7 Pro Mod by Mixroot [Ru/Multi]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Русский, Английский и др.
+Photo Editor - уникальная программа для обработки качественных фотографий. Настройка цвета, различные эффекты, поворот, обрезка, изменение размера, рамки, а также возможность рисовать прямо на фото. Настройка цвета включает в себя тон, насыщенность, контраст, яркость. Вдобавок Photo Editor предлагает множество эффектов для фотографий, включая гамма-коррекцию, автоконтраст, (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 12.07.2025Разработчик: dev.macgyverПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D735E23DAFDB40BDD7353E65ED6E96707EF7751C
+magnet:?xt=urn:btih:A477CF0D3136B8EE7D8ED822BCB445B2DE4F8E33
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706389   (113626) от 12.03.2024
+###  Публикация: 1806908   (65319) от 15.07.2025
 
-Notebooks – Write and Organize 3.4 [En]
+Hell - Human Remains (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Notebooks является единственным блокнотом, который когда-либо может вам понадобиться. Он позволяет создавать огромное количество записей. Он станет одним и единственным хранилищем не только для всех журналов, идей, заметок, черновиков, рассказов и дневников, но и для ваших проектов, списков задач, документов, файлов и все остального, что вы хотите хранить под рукой. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2012-2024 Alfons SchmidПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+01. Overture (Themes from 'Deathsquad') 01:14
+02. On Earth as It Is in Hell 05:09
+03. Plague and Fyre 05:09
+04. The Oppressors (Race Against Time cover) 05:53(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD5B36866B543F7C4F62DDF3B5ACDD9950D8E9DA
+magnet:?xt=urn:btih:9238A9D68141E98EBAA6937D779B7872C046EF9D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706405   (113627) от 12.03.2024
+###  Публикация: 1806873   (65320) от 15.07.2025
 
-EazyDraw 11.6.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113627.jpg" />
-</div>
-
-
-###  Подробнее
-
-EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2022-2024 Dekorra Optics, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4252A3E30B60FBC5EC2CE444CCC810C5EB521899
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706230   (113628) от 12.03.2024
-
-Piezo 1.8.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
-Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
-Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2024 Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02FFA79F9FFCFFA476C6E9952EF06C43072AE33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706436   (113629) от 12.03.2024
-
-Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Cromlech
-A2 Sunrise Over Locus Mortis
-A3 Soulside Journey
-A4 Accumulation Of Generalization(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:41:46
+Steel Rhino - рок-группа из Швеции, основана в 2021 году2021 - Steel Rhino
+2023 - In Rhino We TrustЖанр: Heavy MetalПродолжительность: 01:28:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2523D09A782DCF7C877C9AFF55E5B43EF46400EC
+magnet:?xt=urn:btih:8A9E275C5729BECC5355594EF5EC8B69B5E845F3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706433   (113630) от 12.03.2024
+###  Публикация: 1806818   (65321) от 15.07.2025
 
-Keep It 2.4.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Арабский и Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F47845A35B68BF5C2D70A8B2CFF87B1190204F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706362   (113631) от 12.03.2024
-
-Terumasa Hino - Bluestruck (1990) [FLAC|Lossless|tracks + .cue] <Fusion, Bop>
+Shelly Manne & His Men - Play Peter Gunn (1959) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Romancero Gitano (Hino) - 8:05
-02. Sweet Love of Mine (Shaw) - 7:38
-03. Bluestruck (Hino) - 5:01
-04. Rain Again (Hino) - 7:17(   Читать дальше...   )Жанр: Fusion, BopПродолжительность: 00:57:46
+01. Peter Gunn [2:17]
+02. The Floater [4:34]
+03. Sorta Blue [4:14]
+04. The Brother [4:29](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:42:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94D82906405C899741F9C7605B80E7289A3D62E8
+magnet:?xt=urn:btih:0666A92A5066F42C80BE33247FB0D00C74AC13E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706247   (113632) от 12.03.2024
+###  Публикация: 1806904   (65322) от 15.07.2025
 
-Dani Bischoff - Cedars Boulevard (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+Cronos Compulsion - Lawgiver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Good Old Wheels (2:59)
-02. All Comes Easy (4:25)
-03. Out of This Train (2:51)
-04. Nothing but the Blues (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:18
+01. Obligate Condition (01:16)
+ 02. Maladapt (02:24)
+ 03. Gyre of Decaying Filth (02:04)
+ 04. Ancestral Remains (02:44)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CBF6BA5CDEDA43AA5692CB68F7B67D9BD7F3A51
+magnet:?xt=urn:btih:6B12ACF1D02D0E27BD1D2450E0E55FB5C7A175A7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706345   (113633) от 12.03.2024
+###  Публикация: 1806695   (65323) от 14.07.2025
 
-Sonny Stitt - Night Letter (1963, 1969) 1996, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+Doc Bowling and His Blues Professors - Sing the American Songbag (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Me and the Devil Blues (3:16)
+02.  Irene, Good Night (3:23)
+03.  Going Down the Road (Feeling Bad) (2:53)
+04.  Cotton-Eyed Joe (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE86F4500B3C65208F7FEF5150FCB4BD71BE3A19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806705   (65324) от 14.07.2025
+
+Shotgun Sam and his World Famous Blues Band - Shotgun Sam and his World Famous Blues Band (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Doodle Bop! (3:03)
+02.  Shake Your Hips (4:15)
+03.  Do it in the Road (3:10)
+04.  Six Bullets (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A0B24DB2FAF560359BE7F6BDE74260D5862334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806700   (65325) от 14.07.2025
+
+Mauro Ferrarese - Echoes 'long The Path (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chasin' Time (4:33)
+02.  Busker's Thoughts (3:01)
+03.  Eviction Notice (5:20)
+04.  Echoes 'long The Path (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967755E728951F8F55A89737860B6AD404DD0AAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806771   (65326) от 14.07.2025
+
+Мир и женщина / The World and the Woman (1916) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Своеобразная драматическая история. В начале фильма мы видим главную героиню и нам дают понять, что это, как раньше говорили, "женщина с прошлым". Видимо, у нее было и горе и страдания, но и грехов было немало. Еще молодая, но уже уставшая от жизни. И вот, случай помог ей отказаться от этой блестящей, соблазнительной и жестокой жизни большого города. Она (   Читать дальше...   )Производство: США / Thanhouser Film CorporationЖанр: драма, немое киноРежиссер: Фрэнк Ллойд, Юджин МурАктеры: Джинн Иглс, Бойд Маршалл, Томас А. Каррен, Grace DeCarlton, Wayne Arey, Кэри Л. Хатингс, Ethelmary OaklandПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DEEB5731FDA67898C71CFDEB9B98EC4EF37F5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806691   (65327) от 14.07.2025
+
+Carlos Camilo - Levitating (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sunday [7:58]
-02. Soul Shack [7:15]
-03. Love Nest [6:18]
-04. Hairy [5:57](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 01:14:45
+01.  Let's get started (4:01)
+02.  My heart is yours (4:06)
+03.  Soulmates (5:04)
+04.  Levitating (4:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:35:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EA91C1586051AA1619C5E9593E8E4CF275310D9
+magnet:?xt=urn:btih:BD6B4F18D0A68802803DCA3AC6C2895B7BCCE084
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706363   (113634) от 12.03.2024
+###  Публикация: 1806766   (65328) от 14.07.2025
 
-Газета | Народный совет №9 (20 февраля 2024) [PDF]
+James Day - Frequencies (2025) [MP3|320 Kbps] <Blues>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+01. One More River To Cross (03:31)
+ 02. Work Song (04:01)
+ 03. Area Grey (03:40)
+ 04. Ghost Train (04:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD0272ED5086614B3BB78E2BE8966D20955E03AA
+magnet:?xt=urn:btih:3C5CB3BAE5845DC8ADC259CEC1764AE283CBF62B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706228   (113635) от 12.03.2024
+###  Публикация: 1806696   (65329) от 14.07.2025
 
-Navicat for Redis on Mac 16.3.7 [Multi/Ru]
+E&B Haircut - Polaroid Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Navicat для Redis — это простой в использовании визуальный интерфейс для визуализации и оптимизации данных Redis. Он предоставляет надежный набор функций, которые упрощают, упрощают и повышают эффективность рутинных задач управления по сравнению с использованием только текстовых команд.
-Подключайтесь к любым локальным и удаленным серверам Redis и совместим с облачными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+01.  Polaroid Blues (2:46)
+02.  Booty Blues (2:31)
+03.  Still Rollin' Blues (3:02)
+04.  Scaredy Cat (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AAF50DCD6D0A71B55C0D5B3608C1638F6BC62BF
+magnet:?xt=urn:btih:46C31038A4185E15EBC4664E66442213067B4A41
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706244   (113636) от 12.03.2024
+###  Публикация: 1806732   (65330) от 14.07.2025
 
-Газета | Аргументы и Факты. Москва №10 (6-12 марта 2024) [PDF]
+The Crystal Tears - The Crystal Tears (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Rock, Gothic, Darkwave>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельная газета «Аргументы и Факты Москва» - одно из самых популярных изданий в России и за рубежом. Основные темы: информация о событиях в России и за рубежом, политика, культура, экология, социальные проблемы и многое другое. В 1990 году за самый большой тираж в мире (33,5 млн. экземпляров) была внесена в книгу рекордов Гиннеса. Еженедельник «АиФ» рассчитан (   Читать дальше...   )Жанр: Популярное изданиеИздательство: АО "Аргументы и Факты"Формат: PDFКачество: Обработанный скан
+01. Eternal Dusk(Part 1) [00:03:14]
+02. Solo Yo [00:04:30]
+03. Vampiro [00:03:19]
+04. Es Halloween [00:04:08](   Читать дальше...   )Жанр: Alt. Rock / Gothic / DarkwaveПродолжительность: 00:43:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3330995C7D3FCE679DD9BA828B1DA4E043C00102
+magnet:?xt=urn:btih:10082DDE80690801E1EBF190FB923CE7B88DC5EA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706323   (113637) от 12.03.2024
+###  Публикация: 1806693   (65331) от 14.07.2025
 
-Pathmaker - Something More (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+D.K. Harrell - Talkin' Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Little Taste (4:04)
+02.  Grown Now (3:52)
+03.  Talkin' Heavy (5:02)
+04.  PTLD (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154B3A099A4D3487DFB7F853FF8FEDE3442A7FFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806752   (65332) от 14.07.2025
+
+Night Must Fall - Dissonance of Thought (2007) (EP), Released, 2008, Descending Towards Damnation [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Catalyst (4:35)
-02. Voices In The Mirror (4:21)
-03. Forgive And Forget (3:41)
-04. The Defier (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:06
+01. Invocation
+02. Awaiting the Sixth ExtinctionЖанр: Funeral Doom MetalПродолжительность: 00:30:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB1547F665A87469841456F55A879280CADD135F
+magnet:?xt=urn:btih:CC75CAD23FC860BD24498C0F9B8643E5E8701828
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806733   (65333) от 14.07.2025
+
+Maniae - Vestiges (2023) (EP) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damnatio ad Bestias
+02. Clinical Messiah
+03. Gold into Your Veins
+04. Inner Plague(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6726B0E9B89FF428E8C78057D2081A500482C3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806776   (65334) от 14.07.2025
+
+Relligary - Hearts and Minds (2025) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts and Minds (00:52)
+02. Raven (05:34)
+03. Divine Calling (03:58)
+04. Hold Your Fire (06:36)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165067DA25949259743FAFDD3E4B85AAFF9BE974
 ```
 
 

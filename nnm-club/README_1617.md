@@ -1,682 +1,664 @@
-###  Публикация: 1774999   (71465) от 25.01.2025
+###  Публикация: 1751565   (42399) от 25.09.2024
 
-Labÿrinth (Labyrinth) - In The Vanishing Echoes Of Goodbye (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
+Вадим Демидов(Vicont) | Прораб попаданец (Книга 1).Сделай и живи спокойно. (2023) [MP3, Muxa rpex]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-• 01. Welcome Twilight (5:46)
-• 02. Accept The Changes (7:24)
-• 03. Out Of Place (5:02)
-• 04. At The Rainbow's End (5:10)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:57:45
+Попаданец в 1949 год. Хочешь прожить вторую жизнь? Легко! Выполни задание и живи дальше. Одно условие - до поры до времени веди себя спокойно и не лезь куда не просят. Не дай бог, что-то пойдёт не так и история изменится. Придётся постараться, раз уж такие условия. А кто говорил, что будет легко?Жанр: Фантастика, Попаданцы,Издательство: Author TodayПродолжительность: 11:05:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F934818BE8B4CBDAB18D1C7A7A595FBBACA0F641
+magnet:?xt=urn:btih:9CBC8A27CE9554A4A22082E2F5E24D0644811ACD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775095   (71466) от 25.01.2025
+###  Публикация: 1751403   (42400) от 25.09.2024
 
-Vintage Culture - Live @ Affairs, Green Valley Camboriu, Brazil (2025-01-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+Михаил Дорин | Авиатор. Назад в СССР (Книга 09) (2024) [MP3, Илья Маликов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42400.jpg" />
+</div>
+
+
+###  Подробнее
+
+1982 год. Активные боевые действия в Афганистане подошли к концу. Сергей Родин, с честью выполнив задание своей страны, возвращается в полк. Впереди прекрасное будущее, новые вызовы и свершения.И главная цель – поступить в школу лётчиков-испытателей.Жанр: Альтернативная история, Военно-историческая фантастикаИздательство: ЛитРесПродолжительность: 09:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5A016CF960FD33CEF609CE8AAFFEA1062EBFD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751540   (42401) от 25.09.2024
+
+Siri Umann, Aradia Voice - Arabic Deep House (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vintage Culture & Fancy Inc & Meca - Electricity
-02. CamelPhat x ARTBAT ft. Rhodes - For A Feeling (Adam Sellouk & Y do I Remix)
-03. Elderbrook & Vintage Culture - Run (DEPARTAMENTO Remix)
-04. Gabss & Vintage Culture - Creatures(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:01:42
+01. Siri Umann - Essence Of Istanbul (4:09)
+02. Siri Umann - Oasis (4:14)
+03. Aradia Voice - Como Beethoven (Vocal Mix) (4:22)
+04. Siri Umann - Secret Desert (4:24)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:18:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FFA416A87CC9692E96BE4E5F5B258001B282DA7
+magnet:?xt=urn:btih:E6B6DC1389DE60AA32C8BB0E7E37C6936B669FF7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775137   (71467) от 25.01.2025
+###  Публикация: 1751530   (42402) от 25.09.2024
 
-VA - Blue Notes, Vol.1: Milestones Of Jazz Legends (1950 - 1962) 10CD, 2022, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+Electric Callboy ( ex Eskimo Callboy) - Crystals (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lee Morgan - Candy [7:05]
-02. Lee Morgan - Since I Fell For You [5:38]
-03. Lee Morgan - C.T.A. [5:08]
-04. Lee Morgan - All The Way [7:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 12:19:32
+01. Pitch Blease [00:03:18]
+02. Baby (T.U.M.H.) [00:03:13]
+03. My Own Summer [00:03:41]
+04. Kill Your Idols [00:03:53](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:046AF1F3E8C93FAF65B07FCD1D631A819687CB82
+magnet:?xt=urn:btih:B50840308FB99365FB3DF6BFEBA23A88FB5F074B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775264   (71468) от 25.01.2025
+###  Публикация: 1751454   (42403) от 25.09.2024
 
-Obsidian Path - Ignite the Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fuel the Flame (3:00)
-02.  Racing the Storm (3:24)
-03.  Turn It Up (3:35)
-04.  Phoenix Rising (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEAE09E2D6A6C5DE854469660D1AEAFE7EA6F6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775106   (71469) от 25.01.2025
-
-Eric Prydz - Live @ 20 Years Of Pryda, HISTORY Toronto, Canada (2025-01-18) [MP3|320 Kbps] <Progressive House>
+VA - Best Relaxing Chillout & Lounge Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pryda - Annexet
-02. Pryda - Bergen
-03. Eric Prydz - Liberate (Eric Prydz 2017 Remix)
-04. Pryda - The Hoax(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:35
+01. Mono tuned - Deep Niche (4:28)
+02. Aurtigards - Concrete Cadence (4:22)
+03. Prandtl - Joyful Jive (4:21)
+04. Monte Venda - Galanty Show (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC54E05C836B1D53A4C4E75377783CC02E156CA5
+magnet:?xt=urn:btih:211D885BA638433FEACF61EE622171BB7178755C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775249   (71470) от 25.01.2025
+###  Публикация: 1751439   (42404) от 25.09.2024
 
-Anbaric - Energy Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+VA - Arabic Ethnic Deep House Mix (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sink Or Swim (3:57)
-02.  The Blind Leading The Blind (3:10)
-03.  Losing Myself (3:42)
-04.  Adrenalized (3:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:45
+01. Mo-Omar - Balearic Harem (5:31)
+02. Profesor Esteban - Bay Nikola (Ethno Deep Mix) (5:33)
+03. Ahmed Al Enizy - Oh Oo (5:59)
+04. Sam & Claude - Arab Money (Original Mix) (6:24)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:25:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD4FD8CAE78ECAFB53C2D0339D0766A8E26E3FC0
+magnet:?xt=urn:btih:9202B6E63FF165A981CF7F0E69D42AF261581F24
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775004   (71471) от 25.01.2025
+###  Публикация: 1751555   (42405) от 25.09.2024
 
-Across the Shade - Madness (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71471.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Falling Leaf (5:02)
-• 02. On The Horizon (3:35)
-• 03. Don't Fall Asleep (3:27)
-• 04. Protect The Day (3:46)(   Читать дальше...   )Жанр: Gothic Metal, Melodic Death MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7572B6B1D2C93086962078475031C31270797B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775121   (71472) от 25.01.2025
-
-Пятеро на одного (25.01.2025) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39AA1F726C1BC827BE7BFF8977D20DA571333310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775254   (71473) от 25.01.2025
-
-Любовь кассира / Le roman d'un caissier (1914) WEBRip [H.264/720p]
+Алмас (1936) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Драматическая история о двух поколениях. Банкир и кассир в его банке уже пожилые люди, все жизнь усердно и честно работающие. И имеющие за это не только честный заработок, пусть и разной величины, но и соответствующую репутацию. А вот их дети молоды и легкомысленны и очень огорчают своих родителей...Производство: Франция / Société Française des Films ÉclairЖанр: короткометражный, драма, немое киноРежиссер: Эмиль ШотарАктеры: Devalence, Нита Романи, Bahier, Georges Raulin, André Liabel, Жорж Сайяр, Suzanne RevonneПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:44:32
+Тема революции, свободы женщин и их борьбы против религиозных убеждений была одной из главных в азербайджанском кино 1930-х годов. Героиней этой картины стала молодая учительница Алмас, которая приехала работать в отдаленное горное селение, где придерживаются старых традиций.
+
+Фильм «Алмас» по одноименной пьесе Джафара Джаббарлы стал последней немой картиной в истории (   Читать дальше...   )Производство: СССР / АзгоскиноЖанр: социальная драма, история, немое киноРежиссер: Ага-Рза Кулиев, Григорий БрагинскийАктеры: Иззет Оруджзаде, Окума Курбанова, Хейри Амирзаде, Рза Тахмасиб, Алескер Алекперов, Алекпер Гусейн-заде, Алисаттар Меликов, Исмаил Хидаят-заде, Али Гурбанов, Азиза МамедоваСубтитры: русские (интертитры)Продолжительность: 01:05:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CBF30C147A94DCF93EDD0903071D4FA4758C3F4
+magnet:?xt=urn:btih:3BF2FFB569F06A049EC08E9944E97ABFE9D7E7B6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775256   (71474) от 25.01.2025
+###  Публикация: 1751431   (42406) от 25.09.2024
 
-Крис Пристли | Страшные сказки с Чёрного корабля (2023) [MP3, Фёдор Малышев]
+Олег Торбосов | Путь одного агентства (2021) [MP3, Олег Торбосов]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Три дня на побережье беснуется шторм. «Старый трактир», где живут Итан и Кэти, жмётся на краю скалы. Отец ушёл за доктором, и дети сидят одни, пока буря не приводит в их дом незнакомца. Он мастер рассказывать морские истории, одна страшнее другой. Об оживших татуировках, чёрных парусах, морских чудовищах и жутких открытиях. Итан с Кэти готовы слушать их бесконечно. (   Читать дальше...   )Жанр: детские приключения, зарубежные детские книги, страшные сказки, фантастика и фэнтези для подростковПеревод: Наталья АлександроваИздательство: СамокатПродолжительность: 04:45:31
+«Путь одного агентства» – бизнес-роман про то, как человеку, далёкому от мира элитной недвижимости, удалось за несколько лет с нуля построить агентство, которое на четвёртом году жизни получило десятки первых мест у московских застройщиков и стало лидером по продажам недвижимости большого мегаполиса.
+Это история про маркетинг и построение команды, про продажи в больших (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 12:10:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:550CBF00C052DC09314A564E5E3161EAE1CDB91A
+magnet:?xt=urn:btih:D0E57AD5901FCC0EBD69159FA5F5543FAEDDE765
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775219   (71475) от 25.01.2025
+###  Публикация: 1751528   (42407) от 25.09.2024
 
-VA - Markus Schulz - Year in Review 2024 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hel:Sløwed & Amber Revival - If You Only Knew (Intro Mix) (Mixed) [3:10]
-02. Yotto & AVIRA feat. ALSO ASTIR - Forget (Mixed) [2:51]
-03. PARAFRAME - Breathe (Mixed) [2:35]
-04. Markus Schulz & HALIENE - Death Of A Star (Mixed) [3:06](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F86E041BD6906FFDFE73258BABDBF06901F6D5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775103   (71476) от 25.01.2025
-
-VA - Dance Classics Gold 2 (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool & The Gang - Celebration
-02. Gloria Gaynor - Never Can Say Goodbye
-03. The Four Tops - Don't Walk Away
-04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11A02274CB65D187D1B26B9DB479F71103EAE70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775263   (71477) от 25.01.2025
-
-Rosy Vista - Forty (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Star Anna - Love and Sex and Fear of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Can’t Live Without My Radio
-02. Masquerade _ See You Later
-03. Uniform
-04. One Way(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
+01. Blood and Bubblegum [00:04:37]
+02. Crash Site [00:04:24]
+03. Follow My Instincts [00:04:20]
+04. In The Dark [00:04:08](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:45:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2655308AD38D473A24AABDDE088808E11C4DEED9
+magnet:?xt=urn:btih:474717E4019274679E67163B9ED5F7A758FFBD05
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775133   (71478) от 25.01.2025
+###  Публикация: 1751511   (42408) от 25.09.2024
 
-Горячие головы - Выходи за меня замуж (2025) Remastered 2025 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71478.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выходи за меня замуж (Remastered 2025)
-2. Джентельмены удачи (Remastered 2025)
-3. Танцы (Remastered 2025)
-4. Не верят девушки (Remastered 2025)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF49453576A311A5516E35EC3456D3F3DA5A7F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775011   (71479) от 25.01.2025
-
-Empire Of The Sun - Ask That God (2024) Deluxe Edition, 2025, EMI Recorded Music Australia Pty Ltd [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electropop, Synth-pop, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71479.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Empire Of The Sun - Changes (3:38)
-• 02. Empire Of The Sun - Cherry Blossom (3:28)
-• 03. Empire Of The Sun - Music On The Radio (2:56)
-• 04. Empire Of The Sun - The Feeling You Get (4:16)(   Читать дальше...   )Жанр: Electropop, Synth-pop, Indie PopПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC85C8DBF3149EB13964624AE215EAEBD864A9C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775189   (71480) от 25.01.2025
-
-DJ Maretimo - Winter Time Vol.13 - 18 Premium Trax...Chillout, Chillhouse, Downbeat Lounge (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Chill House, Downbeat, Lounge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71480.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Frank Borell - Don'T Be Shy (Skyfall Mix) (4:39)
-• 02. Airstream - Another Dream (Nightfly Mix) (4:37)
-• 03. Vladi Strecker - Winter Time (The Bossa Mix) (8:22)
-• 04. Retro Rider - Posada Al Mar (The Mystic Ocean Cut) (6:18)(   Читать дальше...   )Жанр: Chill-Out, Chill-House, Downbeat, LoungeПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89C3C06E40E4B34A0BFAE37A22EF4EA3BC59397
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775225   (71481) от 25.01.2025
-
-VA - The Orient Collective: Eastern Bloom (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elias Fassos & RisK (Gr) & Tibetania - Moonflower (Original Mix) (6:18)
-02. Baudoin & Tibetania - Daybreak (Original Mix) (6:51)
-03. Diego Galloso & Noam Garcia & Tibetania - Eastern Sun (Original Mix) (9:44)
-04. Bahri Bekil & Tibetania - Nomad (Original Mix) (4:56)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9B9617F2FF750F209E5F1F014680FC10CCF794
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773589   (71482) от 25.01.2025
-
-Clouds - Desprins (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Melodic Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disguise [00:07:13]
-02. Life Becomes Lifeless [00:07:55]
-03. Unanswered [00:06:31]
-04. Forge Another Nightmare [00:06:38](   Читать дальше...   )Жанр: Atmospheric Doom Metal, Melodic Funeral Doom MetalПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBD54F68DCB1ED8D544A96E82EFF736EFC2C185
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775014   (71483) от 25.01.2025
-
-Amaranthe - The Catalyst (2024) Bonus Version, 2025, Nuclear Blast [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metal, Power Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71483.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. The Catalyst (3:41)
-• 02. Insatiable (2:59)
-• 03. Damnation Flame (3:34)
-• 04. Liberated (3:06)(   Читать дальше...   )Жанр: Melodic Metal, Power Metal, MetalcoreПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E576E747C55FDB60F2CA53CD1D5DBADB655DC7C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775068   (71484) от 25.01.2025
-
-Панда и Антилопа / Xiong mao he xiao tiao ling / Panda and Springbok (2021) WEB-DL  [H.264/1080p] (Сезон 1,  Серии 1-52 из 52)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южноафриканская антилопа Лола и китайская панда Хэ-Хэ случайно встречаются в одной прекрасной долине. С этого момента начинается удивительная история их дружбы. Несмотря на различия в культурах и привычках, они быстро становятся лучшими друзьями. Герои отправляются в большое путешествие, параллельно рассказывая зрителям истории о своих традициях. Каждый новый день (   Читать дальше...   )Производство: КитайЖанр: мультфильм, фэнтези, приключенияРежиссер: Ли ЦзяньпинАктеры: Ма Чэн, Тан Сяоси, Го Чжэнцзянь, Чжао Минчжоу, Син Чао, Чжэн Сяопу, Вэй ИффаньПеревод: Дублированный (официальный)Субтитры: отсутствуютПродолжительность: ~ 00:12:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC08EF86C8DEA36A50D3BE1D0DFEB1F6B1A7F4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775260   (71485) от 25.01.2025
-
-Крис Пристли | Страшные сказки Женщины в белом (2023) [MP3, Фёдор Малышев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберту Харперу впервые предстоит совершить самостоятельное путешествие на поезде. Раньше его всегда кто-то сопровождал, а теперь он один, как взрослый, возвращается в школу после каникул. Но вскоре стук колёс замолкает: поезд останавливается перед тоннелем. Чтобы скоротать время, загадочная попутчица Роберта — женщина, с головы до ног одетая во всё белое, — рассказывает (   Читать дальше...   )Жанр: детские приключения, зарубежные детские книги, мистические сказки, ужасы, фантастика и фэнтези для подростков, хоррорПеревод: Наталья АлександроваИздательство: СамокатПродолжительность: 04:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAB2B4080BBC679E3406C4BE4B5CAEE7E52A1ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775192   (71486) от 25.01.2025
-
-De/Vision - Devolution (2003) 2CD [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drifting Sideways (T.O.Y.toburger Wald Mix)
-02. Digital Dream (Mesh Classic Cupboard Cut)
-03. Sadness (The Sad Death Of Mix)
-04. The Day's Not Done (Telekommander Mix)Жанр: SynthpopПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F1EE829BA2E68CA1C9237EDE9172863AB711AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775217   (71487) от 25.01.2025
-
-VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - Last Dance
-02. The Jacksons - Can You Feel It
-03. Kool & The Gang - Get Down On It
-04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A00B67CCDB3F2158E505D9F3030239808674061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775141   (71488) от 25.01.2025
-
-Газета | Мир Новостей №1(1619) (1 января 2025) [PDF]
+Газета | Народный совет №37 (3 сентября 2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В газете можно найти материалы практически на любую тему: о политике и экономике, о здоровье и садоводстве, о науке и о мире таинственного, непознанного. Советы врачей, психологов, экспертов по судебным делам, стилистов, косметологов, народных целителей - вот далеко не полный перечень того, что можно видеть на страницах "Мира новостей", тираж которого неизменно (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "Редакция газеты "Мир новостей"Формат: PDFКачество: Обработанный скан
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:015BA4CA1606318CF2CEB48060A8B95A6AB3CFB3
+magnet:?xt=urn:btih:9BCAD858AD5A4542ECE788E7B1A979B7C5F703FB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775220   (71489) от 25.01.2025
+###  Публикация: 1751529   (42409) от 25.09.2024
 
-VA - Dance Classics Gold 3 (1992) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+Galneryus - The Stars Will Light The Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Donna Summer - Last Dance
-02. The Jacksons - Can You Feel It
-03. Kool & The Gang - Get Down On It
-04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:21:26
+01. Go Towards the Utopia (Instrumental)
+02. The Reason We Fight
+03. Lost in the Darkness
+04. Finally, It Comes!(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E481A51F6E88BD5274986FCF8D1B56099130E1AA
+magnet:?xt=urn:btih:0FE03FF2CC84D34CB5C4A4F18293F3E501A25562
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775105   (71490) от 25.01.2025
+###  Публикация: 1751430   (42410) от 25.09.2024
 
-VA - Dance Classics Gold 2 (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+Ирина Млодик | Книга для неидеальных родителей, или Жизнь на свободную тему (2024) [MP3, Вера Романова]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kool & The Gang - Celebration
-02. Gloria Gaynor - Never Can Say Goodbye
-03. The Four Tops - Don't Walk Away
-04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:17:51
+Эта книга – не руководство по эксплуатации прибора под названием «ребенок», это размышления и наблюдения опытного психолога, работающего со взрослыми и детьми, чьи судьбы, истории и примеры могут помочь каждому, кто хочет вырастить счастливого человека, творящего собственную судьбу, она о том, как не воспитывать, а жить любя.
+Книга будет интересна как просто родителям, (   Читать дальше...   )Жанр: ПсихологияИздательство: ЛитРес: чтецПродолжительность: 06:39:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42616DFA38CE1BA1A41885CD7EF39BDEEAEDA959
+magnet:?xt=urn:btih:6EA664A438F05B10F6C6F3093FF424FC397E715B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751506   (42411) от 25.09.2024
+
+Газета | Народный совет №36 (27 августа 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6113F1DECAD890C458EB8248EE60F96EB42B380C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751527   (42412) от 25.09.2024
+
+Александр Куприн | Суламифь (2014) [MP3, Михаил Горевой]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
+Суламифь – это сказочная и поразительная история любви. Царь Соломон неотразимо красив, у него было 700 жён и 300 наложниц, а (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ИП Сергей ГригорянПродолжительность: 02:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B707085CE5174C67D798C2CD74175878DE3047
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751450   (42413) от 25.09.2024
+
+Журнал | Таинственные истории №19 (299) (2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42413.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: История, мистикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F890E262087F98B37ED31E34EBC01F0CFC4E8C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751464   (42414) от 25.09.2024
+
+Frank Sinatra - Sensational Sinatra (1997) Penny [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me Feel So Young [2:58]
+02. The Lady Is A Tramp [3:07]
+03. On The Sunny Side Of The Street [2:00]
+04. Dancing In The Dark [2:32](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Easy ListeningПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D7A6ACBD05EF7912B0E6E39B71365DBDDBF0FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751580   (42415) от 25.09.2024
+
+Ascension Ritual - Ascension Ritual (2024) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resurrection (05:26)
+ 02. Intersecting Lines (04:06)
+ 03. Walk with Me (04:50)
+ 04. Perseverance (04:31)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50FF16EC693312F0D77236609D1CEE523A1D67C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751531   (42416) от 25.09.2024
+
+Eagle Twin & The Otolith - Legends Of The Desert: Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horn Vs. Halo [00:11:39]
+02. Qasida of the Dark Doves [00:08:28]
+03. Crossway [00:08:53]
+04. Phosphene Dream [00:10:49]Жанр: Doom MetalПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1182C1A3C7F0DAC3EC11FC66B4C4D5FBE2FBA6AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751457   (42417) от 25.09.2024
+
+Ruth Moody - The Wanderer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Already Free (3:41)
+02. Twilight (4:05)
+03. The Spell Of The Lilac Bloom (feat. Joey Landreth) (3:45)
+04. Seventeen (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6938ECD81CE1A5D22E55136B67405B022B0F1A94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751407   (42418) от 25.09.2024
+
+Затяжной прыжок / Cutaway (2000) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгие годы агент под прикрытием, Виктор Купер, менял свои имена и легенды, разоблачая различных наркодельцов. Но однажды операция по перехвату контрабанды наркотиков в аэропорту Майами заканчивается полным провалом, и его отстраняют от ведения дела. Фанатичный Купер решает провести свое расследование. Вскоре он узнает о загадочном обществе парашютистов, денно и (   Читать дальше...   )Производство: США / Cutting Edge Entertainment, Golden ParaShoot Entertainment, Liaison EntertainmentЖанр: боевик, криминалРежиссер: Гай МаносАктеры: Том Беренджер, Стивен Болдуин, Деннис Родман, Максин Банс, Рон Сильвер, Рой Эйджлофф, Маркос А. Ферраэс, Адам Вайли, Томас Иэн Николас, Филлип ГлассерПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: английскиеПродолжительность: 01:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA3392EEAEBC418A77E9A0190F0585C5271DBC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751536   (42419) от 25.09.2024
+
+Opera One 114.0.5282.21 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDDF01E1FA8744410738407A5603D11CD992240A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751552   (42420) от 25.09.2024
+
+Призрак уездного театра (2016) WEB-DLRip (серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42420.jpg" />
+</div>
+
+
+###  Подробнее
+
+По произведению Татьяны Устиновой " Шекспир мне друг, но истина дороже ".
+Столичный режиссёр Максим Озеров и начинающий сценарист Федя Величковский приезжают в провинциальный Дрёмов, чтобы записать радиоспектакль с участием труппы местного театра. Командировка обещает быть отчаянно скучной. Однако во время представления за кулисами происходит невероятное: (   Читать дальше...   )Производство: Россия / «Свэлл Фильм»Жанр: Детектив, мелодрама, экранизацияРежиссер: Игорь НурисламовАктеры: Илья Носков, Пётр Коврижных, Алла Юганова, Сергей Перегудов, Светлана Смирнова-Кацагаджиева, Эрнест Тимерханов, Виктор Выбриенко, Екатерина Кукуй, Олеся Ерикова, Александр КудренкоСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9418E61220D864C494834086DD84FCCFE9B5C696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751551   (42421) от 25.09.2024
+
+Александр Мельчаев | Курс молодого адвоката. Практические рекомендации по уголовному процессу (2024) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто работу адвоката представляют так: проснулся, выпил чашку кофе, надел свой лучший костюм, приехал в суд, сразил судью и прокурора своей речью и вызволил доверителя на свободу...
+Однако все гораздо сложнее, чем кажется со стороны. Особенно когда ты начинающий молодой адвокат.
+Путь защитника тернист и труден, но его можно сделать проще с помощью этой книги.
+Данное (   Читать дальше...   )Жанр: Юридическая литератураИздательство: АСТФормат: FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2DBD11806CC450168E7727700832756ADCD65E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751543   (42422) от 25.09.2024
+
+Данияр Сугралинов | Дисгардиум (Книга 12). Единство (Том 2) (2024) [MP3, Влад Римский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь главного героя сложилась так, что теперь виртуальный мир «Дисгардиум» – единственная для него возможность выбиться в люди. Вот только начинать в мире игры приходится с самого низа, а пробиваться наверх очень тяжело в одиночку. Более того, Алекс Шеппард становится «угрозой» для виртуального мира – имба-игроком, вносящим в него дисбаланс. Раскрыть и обезвредить (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, LitRPGИздательство: 1С-ПаблишингПродолжительность: 09:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49595D11D93F1BC64CBF7B5EC4E87DC28DE55CEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751432   (42423) от 25.09.2024
+
+Google Chrome 129.0.6668.71 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148391DB2DB7EC9216174CCB905141C11C64F008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751400   (42424) от 25.09.2024
+
+VA - Hard Rock Social Club (2024) [MP3|320 Kbps] <Hard Rock, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Analog Sunshine - As The Miles Pass - (06:23)
+ 002. Marco Ragni Feat. Colin Tench - Between Moon And Earth - (03:25)
+ 003. The Silver Linings - Cosmic Excursions - (04:53)
+ 004. The Garment District - Left On Coast - (04:54)(   Читать дальше...   )Жанр: Hard Rock, Metal, RockПродолжительность: 11:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3996DCF5CDE1744FA69000E3BAD04E12DF3DAFCE
 ```
 
 
