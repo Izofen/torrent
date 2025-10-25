@@ -1,3 +1,36 @@
+###  Публикация: 472474   (84063) от 24.03.2012
+
+Don Burrows & The Mell-O-Tones - Non-Stop Flight: Great Music of the Swing Era (2005) [FLAC|Lossless]<Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84063.jpg" />
+</div>
+
+
+###  Подробнее
+
+ACT 1
+1. Let’s Get Together (Edgar Simpson / Chick Webb)
+2. Non-Stop Flight (Artie Shaw)
+3. All or Nothing at all (Jack Lawrence / Arthur Altman)
+4. Don’t be that way (Mitchell Parrish / Benny Goodman / Edgar Simpson)
+5. At Last (Mack Gordon / Harry Warren)
+6. Honeysuckle Rose (Andy Razaf / Thomas "Fats" Waller)
+7. Moon Glow (Eddie De Lange / Will Hudson)
+8. No Love, No Nothin’ (Mack Gordon / Harry Warren)
+9. Amapola (Albert Gamse / James Lacalle)(   Читать дальше...   )2005Жанр: Jazz, SwingПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472596   (84066) от 24.03.2012
 
 NG: Кладбище воинов. Ожившие самураи / Warrior Graveyard. Samurai back from the dead (2011) SATRip
@@ -621,30 +654,6 @@ magnet:?xt=urn:btih:EC5D2E3D371C2E3B5D644B5DDEE49CEB235A4307
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472479   (84127) от 24.03.2012
-
-Сборник схем для китайских телефонов [2012] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84127.jpg" />
-</div>
-
-
-###  Подробнее
-
-принципиальные схемы китайских телефонов2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538A1BFD72F1C85B6133F40F18F4F1FFFB0F8905
 ```
 
 

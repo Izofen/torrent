@@ -1,3 +1,36 @@
+###  Публикация: 484194   (88986) от 17.04.2012
+
+Antonio Vivaldi, Antonio Salieri, Gioacchino Rossini, Antonio Paskulli - Works for an oboe and a chamber orchestra: Moscow Virtuosi, Alexey Utkin & Heinz Holliger, conductor Vladimir Spivakov ( ...
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88986.jpg" />
+</div>
+
+
+###  Подробнее
+
+АНТОНИО ВИВАЛЬДИ Antonio Vivaldi
+Концерт ре минор для двух гобоев, струнных и бассо континуо [9:06]
+Concerto for 2 Oboes, Strings and Basso Continuo in d minor [9:06]
+1.	Allegro molto [2:42]
+2.	Largo.Allegro [3:43]
+3.	Largo [2:41]
+Концерт ля минор для гобоя, струнных и бассо континуо [10:06]
+Concerto for Oboe, Strings and Basso Continuo in a minor [10:06]
+4.	Allegro non molto [3:30]
+5.	Larghetto [3:34](   Читать дальше...   )1998Жанр: OboeПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C723C52BA03CBD37A35AF029727EA4E541A5F5AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483957   (88988) от 17.04.2012
 
 Неприкасаемые / Les Lyonnais (2011) HDRip [MP4 640x272]
@@ -621,30 +654,6 @@ magnet:?xt=urn:btih:966A31D0FBBD39306DDFB059775BAEB7BCF03E1A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5C45C4E192B235CEC34A3B123BB78AB82B2AF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484092   (89042) от 17.04.2012
-
-Uriah Heep - The Best of Uriah Heep. Wizards (2CD) (2011) [MP3|320 кб/с]<Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89042.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: Rock, Hard RockПродолжительность: 02:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306D02532CB02F5A6F796A72E3447A638635A4C1
 ```
 
 

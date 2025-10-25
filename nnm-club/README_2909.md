@@ -1,3 +1,36 @@
+###  Публикация: 476417   (85642) от 31.03.2012
+
+VA - Super Instrumental Collection Vol 1-35 (1994-2011) [MP3|320 кб/с]<Instrumental>
+
+>>След.
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85642.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ennio Morricone - Chi Mai (5:11)
+2. Richard Clayderman - Moonlight Sonata (3:31)
+3. Paul Mauriat - Bublitschki (2:48)
+4. James Last - Lonesome Shepherd (4:30)
+5. Diego Modena - Song Of Ocarina (3:42)
+6. Richard Clayderman - Strangers In The Night (3:21)
+7. Fausto Papetti - Feelings (3:38)
+8. Francis Goya - Woman In Love (4:02)
+9. Ennio Morricone - The Good, The Bad, The Ugly (2:42)
+10. Richard Clayderman - Pour Elise (2:29)1994-2011Жанр: InstrumentalПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F63CDDA75A5A642A3ABE90F781645C1CDF5F59F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 280579   (85643) от 31.03.2012
 
 Beelzebub / Вельзевул [2011, TV, 60] HDTV 720p Raw
@@ -654,32 +687,6 @@ magnet:?xt=urn:btih:752F9CADA506726C4E7E4FE9A1FC7EF4ECFDF45C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9521A454256F3BE7304D1A6660860B6388310754
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476628   (85695) от 01.04.2012
-
-Елена Борисова | Оценка и аттестация персонала [2002] [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85695.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается оценка и аттестация как один из важнейших инструментов управления персоналом. Теоретические положения дополняются рекомендациями по практическому применению и примерами из реальных ситуаций. Рассматриваются разные подходы к аттестации в отечественной и зарубежной теории и практике.  Особое внимание уделяется взаимосвязи аттестации и других разделов управления персоналом.
-
-Книга носит практическую направленность и позволяет самостоятельно построить процесс аттестации с учетом особенностей своей организации.2002Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8E8FCD8351FBC9EBA8DEC44823AAA0F60CA662
 ```
 
 

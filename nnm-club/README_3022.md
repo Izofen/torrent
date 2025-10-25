@@ -1,3 +1,35 @@
+###  Публикация: 453761   (93624) от 17.02.2012
+
+VA - Blacklite Tubes (2011) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flegma & Zyce - Out Of Control (8:26)
+02. Purple Raver - Total Integration (7:38)
+03. Nukleall - Ayahuasca Reset (7:50)
+04. Loud - Pink Noize (8:24)
+05. M-Theory - Exact Dosage (7:41)
+06. Nukleall - Ancient Plants (Barkode Rmx) (8:00)
+07. Hypnoise - Super Conscious (8:12)
+08. Ovnimoon & Axis - Galactic Mantra (Wizack Twizack Rmx) (8:41)
+09. Ghost Signal - Impulse Response (Rack Riders Rmx) (8:30)2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 01:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD5E2C30C29E672582A245F4699F15D9CB5E1CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453595   (93635) от 17.02.2012
 
 Astartica - Error Sapiens (2011) [MP3|320 kbps]<Psychedelic / Full On>
@@ -761,39 +793,6 @@ Soen - Cognitive (2012) [MP3|320 kbps]<Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69C0F76A18A675C440FC8D9B6616652C90282F62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454682   (93782) от 19.02.2012
-
-VA - Minimal Art v.6 (14.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Mansell - Minimal Business (Original Mix) (5:00)
- 02. Antoine Brezza - Star Face (6:33)
- 03. Aquinoise, Josh Bartoli - Wild (Original Mix) (7:52)
- 04. Dani Sbert - Crush Me (Original Mix) (6:24)
- 05. Daniel Zuur - Three Days (Original Mix) (6:55)
- 06. Du Sant - Rebote De Azules (Original Mix) (6:49)
- 07. Dub Dread - Warped (Ray Keith Remix) (6:06)
- 08. Giuseppe Visciano - Cocaine (Alessandro Grops Remix) (6:05)
- 09. Leano - Wtf (Original Mix) (7:46)
- 10. Lorenzo Damario - The Boat (Original Mix) (6:30)(   Читать дальше...   )14.02.2012Жанр: MinimalПродолжительность: 02:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31A56845F226F0F60CFBF35FF477BAF030B57A4
 ```
 
 

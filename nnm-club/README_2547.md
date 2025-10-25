@@ -1,3 +1,27 @@
+###  Публикация: 1796465   (66972) от 10.05.2025
+
+MotoGP. Этап 06 из 22. Гран-при Франции. Квалификация (10.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66972.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 мая 2025 суббота, 11:50 МСК. Этап 6 Ле Ман. Гран-при Франции. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015A5141C5E99361F2E0FB57FDD66B6A9409731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796507   (66973) от 10.05.2025
 
 Blood Incantation - Hidden History of the Human Race (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
@@ -635,33 +659,6 @@ Fuel for the Dogz - Puppy Massacre (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8729F381D7FB0D4BB291A044DBCB2A72FE7F8A90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796132   (66998) от 08.05.2025
-
-Kevin Moan & The Howling - Big Milk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blast of Love (2:35)
-02.  Queen Bee (2:44)
-03.  High Low (3:09)
-04.  Old Money Blonde (2:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DB436916806AD0A7DAC8EC72C6871D5590F509
 ```
 
 

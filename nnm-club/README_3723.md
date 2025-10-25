@@ -1,3 +1,184 @@
+###  Публикация: 1700422   (117173) от 16.02.2024
+
+Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy Obsession: Jazzy Erotic Sensual Experience (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Co ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sax for My Darling (4:34)
+02. Never Forget Our Love (3:40)
+03. Straight to His Arms (3:39)
+04. Brave Game (3:41)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary Jazz, LoungeПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E9338605EE227FD70E4536121B6690E81734D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700259   (117174) от 16.02.2024
+
+Topaz Gigapixel AI for Mac 7.0.2 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Gigapixel AI. — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, Topaz Gigapixel AI ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A693C1FB7B8156877B2120775A7086BEB15605
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700127   (117175) от 16.02.2024
+
+Pet Shop Boys - Bilingual (1996) 1st Holland Press [APE|Lossless|image + .cue] <SynthPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discoteca (4:38)
+02. Single (3:48)
+03. Metamorphosis (4:04)
+04. Electricity (4:58)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EE8314D91CB66E677C389E905A9E8863DD9E14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700155   (117176) от 16.02.2024
+
+UMC - 80s in Metal (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dirty Diana [4:32]
+02 - Holding Out For A Hero [4:34]
+03 - With Or Without You [3:43]
+04 - Ghostbusters [4:12](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE0C8BF824A4159BCC2E70816CFF11EB7A4D4ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700207   (117177) от 16.02.2024
+
+Журнал | Родина №2 (февраль 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный исторический журнал "Родина" — это продолжение традиций научно-популярной исторической журналистики, заложенных создателями одноименного дореволюционного издания еще в 1879 году. Современная "Родина" выходит с января 1989 года и неизменно предоставляет читателю богатый просветительский материал.Жанр: Исторический научно-популярный журналИздательство: "Редакция "Российской газеты"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60EEFCC6EFF406A49DEDCE2ADE167F488CEFB32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700109   (117178) от 16.02.2024
+
+Illumishade - Another Side of You (2024) [MP3|320 Kbps] <Symphonic Metal, Gothic Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter the Void [00:01:51]
+02. ELEGY [00:04:55]
+03. ENEMY [00:04:53]
+04. In the Darkness [00:04:23](   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Progressive MetalПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EA25E546AD7980C43FDAEE8D7ED11CD6C702E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700448   (117179) от 16.02.2024
+
+Sante DICOM Editor 10.0.6 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sante DICOM Editor — это профессиональный редактор DICOM, средство просмотра 2D/3D, анонимайзер, конвертер, дикомайзер, клиент PACS, мини-сервер PACS, устройство для записи CD/DVD пациентов (со средством просмотра) и многое другое.
+Sante DICOM Editor — ведущее в отрасли приложение постобработки для редактирования, преобразования и обработки файлов DICOM, оно используется (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3132AA8169F162CD2DFFA2460F84D8D711888256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700437   (117180) от 16.02.2024
 
 Monkey's Audio 10.50 [En]
@@ -480,189 +661,6 @@ magnet:?xt=urn:btih:33C40FE8A1217621559DB939B4FE1CDF2D10E90F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6585F22DF04574A3B8FB61319491CA8BF5F17547
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700277   (117199) от 16.02.2024
-
-Steve Hackett - The Circus and the Nightwhale (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steve Hackett (Stephen Richard Hackett) - британский гитарист и автор песен. Получил известность будучи участником прогрессив-рок-группы Genesis, к которой он присоединился в 1970 году. Хэкетт участвовал в записи восьми альбомов группы, покинул её в 1977 году, после чего занялся сольной карьерой.01. People of the Smoke
-02. These Passing Clouds
-03. Taking You Down
-04. Found and Lost(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F159BC93726BD455912500035618770320EC61E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700145   (117200) от 16.02.2024
-
-Peter Gabriel - Shaking The Tree: Sixteen Golden Greats (1990) 1st German Press [APE|Lossless|image + .cue] <Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solsbury Hill (4:20)
-02. I Don't Remember (3:48)
-03. Sledgehammer (4:56)
-04. Family Snapshot (4:25)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF519B2004F5D9B0593D856ED0A1E06D57941CD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699856   (117201) от 16.02.2024
-
-VA - Driving Songs The Ultimate Collection (2014) 5 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Iggy Pop - Real Wild Child (Wild One)
-02.  Ocean Colour Scene - The Riverboat Song
-03.  The Hives - Walk Idiot Walk
-04.  Blink 182 - All The Small Things(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 05:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDE6D7AF5279491FF611D2A0A7C36058F480506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700147   (117202) от 16.02.2024
-
-Мария Ермакова - Мы разбиваемся (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117202.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Мы разбиваемсяЖанр: PopПродолжительность: 00:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F7859FA795686C4551B4C599B208C42FCEA5A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700153   (117203) от 16.02.2024
-
-RJ TextEd 16.12 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117203.jpg" />
-</div>
-
-
-###  Подробнее
-
-RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования. Присутствует автоподстановка и ручная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C0D6F018B5322800BAB62BBEA80EE069C001AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700266   (117204) от 16.02.2024
-
-Steve Hackett - The Circus and the Nightwhale (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - People of the Smoke [4:51]
-02 - These Passing Clouds [1:36]
-03 - Taking You Down [4:18]
-04 - Found and Lost [1:50](   Читать дальше...   )Жанр: Pop Rock, Rock, Progressive RockПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0585EE37BE0B3A2F6A4CF1363F2BD47F8DCC1BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700141   (117205) от 16.02.2024
-
-Pet Shop Boys - Introspective (1988) 1st German Press / Holland Press [APE|Lossless|image + .cue] <SynthPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left To My Own Devices (8:17)
-02. I Want A Dog (6:16)
-03. Domino Dancing (7:41)
-04. I'm Not Scared (7:26)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F035E121995F1676DAA27FD32A660DC4EF5EF20
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1789908   (68220) от 06.04.2025
+
+Sheila - A L’avenir (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dilemne
+02 – Les amoureux
+03 – Rac‚e
+04 – Courir(   Читать дальше...   )Жанр: Pop ChansonПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2ACF01705CE10C504AD96914F814E5E61DA675
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789961   (68221) от 06.04.2025
 
 VA - Gaming Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -654,33 +681,6 @@ The Black Dog - Live At Festival Of The Mind 2024 (2025) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E81717F12C2199CCF3E4CD6BB1A3FC39C8ABFC34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789773   (68246) от 05.04.2025
-
-Night Intruder - Sick Pretty Thing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sick Pretty Thing (3:15)
-02.  Bucket List Of The Heart (3:48)
-03.  Devil In A Red Dress (3:20)
-04.  Born To Burn (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFF13B3CDE8D248344975B3376FB03CA1E7290E
 ```
 
 

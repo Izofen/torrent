@@ -1,3 +1,29 @@
+###  Публикация: 1787808   (68688) от 27.03.2025
+
+Шрифты - Creative Market - Archine Eamore | Fancy Classic Serif - 290922277 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archine Eamore | Fancy Classic Serif от Denustudios интересный шрифт подходящий для любых проектов.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B27A86D42B5F910412941642870FF274BB71817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787875   (68689) от 27.03.2025
 
 Nightwish - Over the Hills and Far Away (2001) EP, Released, 2014, Music On Vinyl [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
@@ -639,33 +665,6 @@ magnet:?xt=urn:btih:A2F8C881FA806420C16F49C7BEE16B806645112F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C1E86083FEC3672D82EFBD4E94A8A0B983E04E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787854   (68714) от 27.03.2025
-
-VA - Ibiza Spring 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaques Le Noir - Good Times with Me (Ciava Remix) (04:19)
-02. Calmabohain - Never Forget (03:25)
-03. Steen Thøttrup & Kaia Mainz - Dreamers (Radio Edit) (03:50)
-04. Mostly Unfamous - So Different (03:46)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FD500CB446BF40FC5544578AC524E570661DF2
 ```
 
 

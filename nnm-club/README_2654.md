@@ -1,3 +1,27 @@
+###  Публикация: 1783818   (69754) от 07.03.2025
+
+Шрифты - YouWorkForThem - Calps Font [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calps — это сжатый шрифт без засечек. Непритязательный дизайн, шрифт разработан так, чтобы быть последовательным для таких букв, как a, b, d, q, p, g и C, G, O, Q, создавая единообразие для набора. Каждый угол линии вырезается, чтобы уменьшить ее резкость, добавляя нотку дружелюбия. Если стандартный шрифт недостаточно сжат, есть тонкая вариация, предлагающая более (   Читать дальше...   )Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCB1B1CBAB792CB4D61163DAE90BE070288A5F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783689   (69755) от 07.03.2025
 
 VA - Venice Piano Sonata: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -632,33 +656,6 @@ StaxRip - инструмент для кодирования видео "все-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BC80612B32795480D1F89BDB3C9CE9F1ABC7948
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783804   (69780) от 07.03.2025
-
-VA - Vocal Trance Collection Vol. 3 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AFTERUS - Embrace The Night (DJKrissB Remix) [7:26]
-02. TroniKol - It Hurts (Extended Mix) [5:57]
-03. Master Beat Projekt - Free (Extended Mix) [7:02]
-04. Edplacid Patiño - The Phoenix (Extended Mix) [6:25](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4376DE1621DD7CA71FA3796DB088A88C9213BA60
 ```
 
 

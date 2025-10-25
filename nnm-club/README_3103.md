@@ -1,3 +1,84 @@
+###  Публикация: 483846   (99757) от 16.04.2012
+
+Газета | АиФ. На Даче №6 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета "Аиф. На Даче" — Популярное издание по “дачной” тематике для владельцев огородов, садовых участков, совхозов, питомников, дач и усадеб, а также для тех, кто только собирается ими стать.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE4BE29C69A7EBFE86DCC7B5C4728FDC5427DEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483731   (99758) от 16.04.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (16.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E473B1E2014D3AE88715037C284838637ED0CCC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483642   (99760) от 16.04.2012
+
+Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Progressive Rock, Electronic, Worldbeat>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Heartbeat of the Sun
+02. Slow Joe Rain
+03. Cut the Deck
+04. Starlight Starbright
+05. Who Stole The Show?
+06. Djinn Djinn
+07. This One Hour
+08. Supersonic Vision
+09. Time Never Ends
+10. Let There Be Light(   Читать дальше...   )2012Жанр: Psychedelic Progressive Rock, Electronic, WorldbeatПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D085FF29DB166C14ACCD02C60A57D07FF985F6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484022   (99763) от 16.04.2012
 
 Журнал | СтройПодряд №13 [2012 апрель] [PDF]
@@ -650,91 +731,6 @@ magnet:?xt=urn:btih:F9D2FCACCD54493EE0EDE90DB93B7090D03F41BD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D3B530983B8C95F01F4A2032D8D66A12ED0DC1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483907   (99840) от 17.04.2012
-
-Cindy Lora-Renard - Journey Through Sound (2009) [MP3|160-320 кб/с]<New age, Meditative>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99840.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:28) 1. Evening Star
-(4:54) 2. Theme From The Disappearance of the Universe
-(5:02) 3. Om Mani Padme Hum
-(3:25) 4. Shamanic Dance
-(4:50) 5. Journey Through Sound
-(3:21) 6. The Call of the Wolf
-(3:47) 7. The Heart Awakens2009Жанр: New age, MeditativeПродолжительность: 00:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980C49A1D41A4CBDE7C40509A1684966A74415A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483168   (99846) от 17.04.2012
-
-[Wallpapers] Wallpaper Sexy Girls 0.6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64AC5802E58B128BFC056E3712079FB1B675F37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484059   (99851) от 17.04.2012
-
-Randall - Eight Storeys (2004) [MP3|320 кб/с]<Ambient, Istrumental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Randall - Eight Storeys (2004)
-Год: 2004
-Жанр: Ambient, Istrumental
-Продолжительность: 00:40:50
-Лейбл: Spacious Music
-Страна: UKКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130338DFB0022C07FCAC091E9305007281470AB1
 ```
 
 

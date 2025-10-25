@@ -1,3 +1,30 @@
+###  Публикация: 1729919   (53433) от 13.06.2024
+
+Axel Rudi Pell - Risen Symbol (2024) [MP3|320 Kbps] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Resurrection (Intro) (01:42)
+ 02 Forever Strong (04:41)
+ 03 Guardian Angel (05:27)
+ 04 Immigrant Song (05:47)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BB97688EF8E140B7BFB7388B2C2D1D7FFE57C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729922   (53434) от 13.06.2024
 
 Black Country Communion - V (2024) [MP3|320 Kbps] <Hard Rock>
@@ -613,30 +640,6 @@ magnet:?xt=urn:btih:B40936702E2C8535032DD0E5A7DC8F1A1C2F06E3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:409DA070AFF59ABC49A567B81999B8C4BF39E004
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729981   (53459) от 13.06.2024
-
-WinCatalog 2024.7.5.612 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53459.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinCatalog - это простая в использовании программа-каталогизатор, предназначенная для каталогизации дисков, файлов и папок. Приходилось ли Вам когда нибудь просматривать содержимое десятков CD в поисках нужной программы или песни? Используя WinCatalog Вам больше никогда не придется тратить время на поиск. Достаточно один раз добавить Ваши диски в WinCatalog и поиск (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B12B84E718FE9DD02BE6B9806B30796E6CEA2D
 ```
 
 

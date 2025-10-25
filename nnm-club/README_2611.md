@@ -1,3 +1,30 @@
+###  Публикация: 1788000   (68636) от 28.03.2025
+
+Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King's a Bitch  03:48
+02. The Prophecy  04:03
+03. Dying of the Light  03:47
+04. Don't You Ever Leave Me  03:37(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBAE8ABF745D22A6997F1F16189448D8D3E09DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788080   (68637) от 28.03.2025
 
 Пётр Ершов | Конёк-Горбунок (Инсценировка) (2023) [MP3, Сергей Лукьянов, Клара Лучко, Валентина Сперантова и др.]
@@ -643,33 +670,6 @@ VA - I Love ZYX Italo Disco Collection 11 (2011) 3 CD [OGG Vorbis|480 Kbps] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3717FD991860E38707A47E06D770E4B3925219C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788055   (68662) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 10 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Mine - Hypnotic Tango (Extended Player '89)
-02. Robert Camero - Lady Suprise (12'' Version)
-03. Broken Dreams - Broken Dreams (12'' Version)
-04. Taco - Got To Be Your Lover (Special D.J. Remix)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91BF17B07CA365F63E4C61489EBCCE9008665AF
 ```
 
 

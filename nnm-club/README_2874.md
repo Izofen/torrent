@@ -1,3 +1,27 @@
+###  Публикация: 472479   (84127) от 24.03.2012
+
+Сборник схем для китайских телефонов [2012] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84127.jpg" />
+</div>
+
+
+###  Подробнее
+
+принципиальные схемы китайских телефонов2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538A1BFD72F1C85B6133F40F18F4F1FFFB0F8905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472559   (84128) от 24.03.2012
 
 The Chronicles of Shakespeare: Romeo & Juliet / Хроники Шекспира. Ромео и Джульетта (P) [Ru] 2011
@@ -630,39 +654,6 @@ magnet:?xt=urn:btih:719735D19A60E1012B60C23F6715E2435378476B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACF3A153E1D64640760EB35D7DAD8C9599258B5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472486   (84181) от 24.03.2012
-
-Kaspersky World 1.3.2.103 [Multi / Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky World – это комплексное решение для работы с антивирусными продуктами Лаборатории Касперского. Позволяет загружать ключи, сбрасывать триал и т. д.
-
-Поддерживаемые продукты Kaspersky Lab:
-Kaspersky Antivirus 6,
-Kaspersky Antivirus 7,
-Kaspersky Antivirus 2009,
-Kaspersky Antivirus 2010,
-Kaspersky Antivirus 2011,
-Kaspersky Antivirus 2012,
-Kaspersky Internet Security 6,(   Читать дальше...   )Название программы: Kaspersky WorldЯзык интерфейса: Multi / Rus
-
-## Скачать торент
-```bash
-нет
 ```
 
 

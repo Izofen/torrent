@@ -1,3 +1,30 @@
+###  Публикация: 1780108   (70534) от 16.02.2025
+
+Jan Blomqvist - MUTE (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Unsaid [00:02:17]
+02. Underwater [00:04:06]
+03. Destination Lost [00:03:39]
+04. Midnight Sun [00:03:24](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EB08860CDA0C2BD25DA0BBA2CBC4256487C894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780019   (70535) от 16.02.2025
 
 W.A. Production - KickShaper 1.0.1 VST, VST 3, AAX (x86/x64) RePack by BUBBiX [En]
@@ -622,31 +649,6 @@ magnet:?xt=urn:btih:286C8AC91932A5ED0D7417D21A1BE411128877BA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5215013B808006D6655617DADA85AD5F526FFEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780052   (70560) от 16.02.2025
-
-StaxRip 2.44.4 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70560.jpg" />
-</div>
-
-
-###  Подробнее
-
-StaxRip - инструмент для кодирования видео "все-в-одном", который предназначен для преобразования Blu-ray/DVD/DVB и других видеоформатов в DivX, XviD, H.265, H.264. Поддерживает различные видеформаты (XviD, x264/H264/AVC, x265/H265/HEVC, VP9, AVI, MP4, MKV, WEBM) и аудиоформаты (MP3, AC3, MP2/MPA, AAC, DTS, WAV).
-Присутствует аппаратное кодирование для (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA955A89CD1AE4D172CE1ED3CEF4A7F72B19E3A
 ```
 
 

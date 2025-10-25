@@ -1,3 +1,181 @@
+###  Публикация: 1747310   (104783) от 04.09.2024
+
+Горизонт в огне / Couleurs de lincendie / The Colors of Fire (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Париж, 1927 год. Умирает богатейший банкир Франции. Его дочь Мадлен, наследница огромной финансовой империи, остается одна против стаи жаждущих наживы акул. Очень скоро они втягивают ее в безумную авантюру и оставляют без гроша. Чтобы вернуть свое и отомстить обидчикам, Мадлен затевает смертельно опасную игру: шантаж, провокации, торговля секретными технологиями. (   Читать дальше...   )Производство: Франция, Бельгия / Canal+, CNC, Cine, Departement de la CharenteЖанр: драма, историяРежиссер: Кловис КорнийякАктеры: Леа Дрюкер, Бенуа Пульворд, Алис Исааз, Кловис Корнийяк, Фанни Ардан, Оливье Гурме, Жереми Лопез, Альбан Ленуар, Йохан Хелденберг, Нильс Отенен-Жерар, Октав БоссюэПеревод: Дублированный (Pride Production)Язык озвучки: Русский, ФранцузскийСубтитры: Английские, ФранцузскиеПродолжительность: 02:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3268E9796A40A3AE71384BC77DE188D61D90BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747344   (104784) от 04.09.2024
+
+Firefox Browser 130.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDD85BF91DFEFB52F1659C46035B79FCD276734
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747176   (104785) от 04.09.2024
+
+JetBrains RubyMine 2024.2.1 Repack by Sitego [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104785.jpg" />
+</div>
+
+
+###  Подробнее
+
+RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
+Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B480FAD9BCA478F3A6F99BB9966ED8A7B5F65E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747091   (104786) от 04.09.2024
+
+Egali Zunno - Human Foundation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human Foundation (3:32)
+02. Roots of Instinct (3:08)
+03. The Crossroad of the Spirit (3:17)
+04. Awakening of the Void (3:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490575563CB8EF692BCB1AF64A02F1877FF5AAFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747218   (104787) от 04.09.2024
+
+Журнал | Живу с диабетом №9 (69) (сентябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Живу с диабетом» - уникальное издание, посвященное сахарному диабету. Это одно из наиболее распространенных и серьезных заболеваний эндокринной системы человека, требующее повышенного внимания больного к своему здоровью. Консультанты издания готовы ответить на самые сложные вопросы, связанные с этой проблемой, а также рассказать о самых передовых методиках (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032DD5021579945FDA1D88DA39110575AED05E36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747027   (104788) от 03.09.2024
+
+VA - Keep It Trance Vol. 24 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.A.R.E - Determination (Original Mix) [6:06]
+02. Henry Caster - Electric Orb (Original Mix) [5:40]
+03. Focusing - Lone Eagle (Radio Mix) [4:49]
+04. Jona D - We Are... (Original Mix) [6:58](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8427937ABD856ABDD1BD75BB82FBCEB999CF1E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746749   (104789) от 03.09.2024
+
+VA - Nothing But... Trancetopia Vol. 18 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MikkoT - Kaiho (Original Mix) (04:01)
+02. Magnetti - Living In The Present (Extended Mix) (04:36)
+03. Tycoos & Candle Di - Ignition (Extended Mix) (04:49)
+04. Vikram Prabhu - Whispers (Original Mix) (03:41)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A03A99D4DB8B01C0382405738A9E0BB59AE1265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746547   (104790) от 03.09.2024
 
 Cat Stevens - Foreigner (1973) Remastered, 2024, UMC [FLAC 24/96|Lossless|WEB-DL|tracks] <Soft rock, blue-eyed soul, folk rock, art rock, progressive rock>
@@ -503,195 +681,6 @@ Relaxing Piano Man - On the Road Again (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7622192596FCF9BF016DE2B9D75E04C85DE4915
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746883   (104809) от 02.09.2024
-
-Soft Jazz Mood, Jazz Guitar Music Zone, Old School Funk Squad - Highway Jazz: Hitting the Road with Funky Guitar (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roadtrip Grooves (4:22)
-02. Old School Funk Squad - Funky Highway Beats (4:25)
-03. Jazz Guitar Music Zone - Jazz on Wheels (4:05)
-04. Highway Serenade (3:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2071C204E08041F5E3A3139A7BF3769EC7ABB66B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746920   (104810) от 02.09.2024
-
-VA - DJ 301 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Bouche - Bolingo (Love Is In The Air) (Caribian Mix)
-02. Technotronic - Pump Up The Jam ('97 Remix)
-03. 2 Shy - You Give Me All I Need (Radio Edit)
-04. DJ Bobo - Respect Yourself (Radio Mix)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F98CA044420159DD6C207B8CEEACD9FC456F77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746903   (104811) от 02.09.2024
-
-VA - DJ Hits Vol. 275 (1997) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Bobo - Respect Yourself (B+B Remix)
-02. Unique II - Do What You Please (Prolongation Mix)
-03. Intonation feat. Joee - Feel It In The Air (Club Mix)
-04. Disco Babes feat. Patricia - Car Wash (Extended)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Euro HouseПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB4BC464D57D0A748AE40C69784BB92DB9DC8EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746771   (104812) от 02.09.2024
-
-Los Bitchos - Talkie Talkie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, indie pop, psychadelic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi! [00:03:08]
-02. Talkie Talkie, Charlie Charlie [00:03:02]
-03. Don't Change [00:03:10]
-04. Kiki, You Complete Me [00:03:01](   Читать дальше...   )Жанр: Alternative, indie pop, psychadelicПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E8E0417BADB565BAABBE0D4040BBEEAD613AF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746843   (104813) от 02.09.2024
-
-David Kushner - The Dichotomy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No High [00:03:02]
-02. Poison [00:03:02]
-03. Skin and Bones [00:03:34]
-04. Hero [00:03:26](   Читать дальше...   )Жанр: PopПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6D3BE54D858CAAE5E36B71D48E56AB63AF162C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746880   (104814) от 02.09.2024
-
-Roberta Gambarini & Hank Jones - You Are There (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are There (Remastered) (2:47)
-02. Then I'll Be Tired of You (Remastered) (5:07)
-03. People Time (Remastered) (2:31)
-04. When Lights Are Low (Remastered) (4:59)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBA1608CD953977C345E355F2884288FFA08A67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746936   (104815) от 02.09.2024
-
-Steve Smith and The Sneakers - The Glory Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before You Start To Run (3:12)
-02. I Ain't Done Yet (with the blues) (3:43)
-03. Doug's Song (4:37)
-04. Till I Met You (4:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6DC62CDD8B55956E8D0D3DD8C4550364ABE68F
 ```
 
 

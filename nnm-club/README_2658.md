@@ -1,3 +1,30 @@
+###  Публикация: 1782962   (69858) от 03.03.2025
+
+Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction - Joey [0:45]
+02. Cherokee [9:17]
+03. Ceora [13:51]
+04. I'm in the Mood for Love [6:36](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E53170D50F806E70F34D1F02431AB4943F9A98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783020   (69859) от 03.03.2025
 
 НХЛ 2024-2025. Торонто Мэйпл Ливс - Питтсбург Пингвинз (02.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
@@ -643,32 +670,6 @@ VA - Car Rides: Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB7DDC253C3C5EA9BD1E51A5CB108AC23A800EED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783024   (69884) от 03.03.2025
-
-Шрифты - Akbar [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неплохой шрифт с поддержкой кириллицы.
-
-Спасибо пользователюФормат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED61B83FBD68D52064D400CE05DBC4E3CC90E45
 ```
 
 

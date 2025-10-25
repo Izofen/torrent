@@ -1,3 +1,97 @@
+###  Публикация: 472869   (97591) от 24.03.2012
+
+[Wallpapers] HD Wallpapers Pack 16
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97591.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 16
+Название: HD Wallpapers Pack 16
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3BDAC2A13AC35E87D61F17925D593316885A9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472750   (97594) от 24.03.2012
+
+VA - XXXL Супер Танцевальный 50\50 Весна (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loverush UK! feat. Bryan Adams - Tonight In Babylon (Steve Smart & WestFunk Radio Edit)
+02. Дискотека Авария и Кристина Орбакайте - Прогноз Погоды (DJ Tarantino Sax Remix)
+03. Rico Bernasconi & Beenie Man Feat. Akon - Girls (Radio Mix)
+04. Юлия Савичева - Сердцебиение (DJ Tarantino Remix)
+05. Picco - Mi Cafe (Ph Electro Remix Edit)
+06. Серебро - Мама Люба (Dj Vengloff & Dj Kabal Radio Mix)
+07. Jean Roch feat. Nayer & Pitbull - Name Of Love (Radio Edit)
+08. DJ Vengerov feat. Инфинити - Ты Мой Герой (Radio Remix)
+09. Rihanna - You Da One (DJ Fashion & Andrey S.p.l.a.s.h. Remix)
+10. Градусы - Заметает (DJ HiTretz & Sergei Karpov Remix)2012Жанр: Pop,DanceПродолжительность: 06:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F56C38DEA52AA543BD72D97F227FE89B81E626
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472752   (97595) от 24.03.2012
+
+VA - Весенний музыкальный бум 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97595.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пропаганда - Нет-Да (3:37)
+2. Britney Spears - Criminal (DJ Sergey Fisun Bootleg Remix) (2:41)
+3. Ирина Нельсон - Теплое солнце (3:10)
+4. Руслана - Скучаю (3:39)
+5. Вирус - За Тобой - копия (3:11)
+6. Арина Домски - Просто Любить (3:10)
+7. T - Killah Feat. Ольга Бузова - Не Забывай (3:26)
+8. Taio Cruz Feat. Flo Rida - Hangover (Hardwell Radio Edit) (3:12)
+9. Armin Van Buuren feat. Adam Young - Youtopia (2:48)
+10. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri feat. Mat Twice - Tell Me WAF (Radio (3:09)2012Жанр: PopПродолжительность: 05:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80B9414FC94009F019523E9042E02418F9DF75E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472344   (97598) от 24.03.2012
 
 Аран / Arang (2006) DVDRip
@@ -629,89 +723,6 @@ VA - Trancern 33.4: Official Compilation (25.03.2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAD886DAAB1D7FF788EB4A8E1713922F2C10DB0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473475   (97667) от 25.03.2012
-
-Сокровища Царицы Елены (2012) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хитон Господень и Терновый венец, Плат Богородицы и Пелены Богомладенца, мощи волхвов и сандалия Спасителя - как сложилась судьба этих святынь и почему сегодня они находятся в Европе? Этим и другим вопросам посвящён документальный фильм-исследование о христианских святынях. Многие реликвии сохранились благодаря трудам Равноапостольной Царицы. Всю жизнь, собирая их как бесценные сокровища, она сама стала святой, а ее тело сегодня почитается как одна из реликвийЖанр: ДокументальныйРежиссер: Е. КаретникПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB63D763ADF29C0503605C91EE5C050C24F729C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473003   (97669) от 25.03.2012
-
-VA - Лучшие клубные хиты (2012) [MP3|192-256 кб/с]<Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97669.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Maxima - Могла Бы Быть Любовь (Fidel Wicked Rmx) (3:17)
-2. Shyma - Ветрами (Flashtronica remix) (3:14)
-3. Hardwell - Cobra (Official Energy Anthem) (6:46)
-4. Dj Bobo - Everybody's Gonna Dance (Radio Version) (3:40)
-5. Idiot Boyz - Bass In Your Face (3:59)
-6. Тамерлан И Алена Омаргалиева - Ты Только Мой (Sense Of Noize Extended Reedit) (4:26)
-7. Jessica Mauboy - Inescapable (3:35)
-8. Rico Bernasconi & Beenie Man feat. Akon - Girls (T & K remix) (4:58)
-9. Dazzle - Global Forcast (original mix) (6:49)
-10. Горячий Шоколад - Без Ума От Счастья (Andry Makarov Remix) (4:32)2012Жанр: Dance, ClubПродолжительность: 07:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A078E44FE3A5BC54AC76EBBC62595CE32E7FCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473246   (97670) от 25.03.2012
-
-Юрий Узбяков | Мастера советской карикатуры [1964] [PDF, DjVu]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97670.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВОТ ТО-ТО И ОНО!
-Если человек не прожил и полстолетия, если в младенческие годы он уже требовал вместо соски акварельные краски, если несколько позже закончил художественный институт, был на фронте, видал-перевидал немало в жизни и стал карикатуристом,— это хорошо.
-Юрий Узбяков родился в 1916 году, з младенческом возрасте требовал акварельные краски, учился в Художественном институте имени Сурикова, ходил по фронтовым дорогам, повидал немало в жизни и стал карикатуристом. И хорошо сделал. ...Формат: PDF, DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7591D3CF931527D987CD9663124AA2AE193766A7
 ```
 
 

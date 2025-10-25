@@ -1,3 +1,102 @@
+###  Публикация: 487520   (100481) от 25.04.2012
+
+VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100481.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Sergey Fisun - History 2012
+002. David DeeJay feat. Ami - Magnetic
+003. Medina - Gutter
+004. Robert M And Dirty Rush - Heart Of You (Radio Edit)
+005. Ne-Yo - She Uses Me (Masturbation)
+006. Linkin Park - Wretches And Kings
+007. Maroon 5 Feat. Christina Aguilera - Moves Like Jagger (Bit Error Radio Mix)
+008. Ronski Speed feat. Renee Stahl - Out Of Control (club mix)
+009. Chuckie feat. Gregor Salto - What happens in Vegas
+010. Deepside Deejays - Never Be Alone (Radio Edit)(   Читать дальше...   )2012Жанр: Pop. DanceПродолжительность: 06:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69D30F858E998FFAAD013A088F011D4851EEAAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487620   (100483) от 25.04.2012
+
+VA - Западный Еврохит Топ-Чарт (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100483.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
+002 Gravitonas - Call Your Name
+003 Matisse & Sadko Vs. Mark Knight - Sveska Got A Love (Duher & D-Frost Bootleg)
+004 Pitbull Ft. Havana Brown - We Run The Night
+005 Baccara - Cara Mia
+006 Atlantica - La Vie Est Belle
+007 Bobina - You Belong To Me
+008 Dj Sandro Escobar Feat. Katrin Queen - Mi Amor (Radio Mix)
+009 Fumin - After Party (Starz Angels Remix)
+010 Vanguarde - Gimme Gimme Gimme (Abba)2012Жанр: Pop,DanceПродолжительность: 07:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DB178260E4FD160ED95E54704907935F9E34B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486215   (100485) от 25.04.2012
+
+Alpha Kawu - Cryogenic time (2011) [MP3|320 кб/с]<Ambient / Easy listening / Experimental / IDM>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black and white 02:48
+ 2. Aufstehen 01:57
+ 3. Sirius 06:20
+ 4. Frozen Karl-Johans 05:43
+ 5. ill gift 01:50
+ 6. Kawu Sun 09:16
+ 7. Cano Cristales 05:50
+ 8. Sennacherib 06:53
+ 9. The citadel 04:14
+ 10. To nowhere (part one) 07:35(   Читать дальше...   )Жанр: Ambient / Easy listening / Experimental / IDMПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A796EEF607EFD71F937492289E02186BE247D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487360   (100490) от 25.04.2012
 
 Before The Dawn - Rise Of The Phoenix (2012) [MP3|256 кб/с]<Melodic Death Metal>
@@ -619,81 +718,6 @@ magnet:?xt=urn:btih:7B9BB69DAF355A2EEE965DFF80C05077AA4422B9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D225BB01351FA6212CE9C013A1854A4345C1040
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488476   (100524) от 26.04.2012
-
-[Wallpapers] Best Impressive Full HD Wallpapers (27.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778A22D6EF47FF26651EF4489F822251B419EB20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770379   (100527) от 31.12.2024
-
-Журнал | ТЕХСОВЕТ премиум №9-10 (227) (сентябрь-октябрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100527.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ТЕХСОВЕТ премиум»— путеводитель по эффективным техническим решениям. Широкий спектр производственно-технических публикаций по актуальной тематике: нефтегазовый комплекс, энергохозяйство предприятия, энерго- и ресурсосбережение, технологии металлообработки, импортозамещение, логистика и складское оборудование, информационные технологии и связь.Жанр: Информационно-рекламное изданиеИздательство: ИП Гайдукова Н.А.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C41906CDF100E76E34D33CEE9B7FA39BC92C8E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770176   (100528) от 31.12.2024
-
-Alter Ego - By Any Means Necessary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Email the Queen [00:05:13]
-02. Recycled Women [00:05:48]
-03. Don't Dim Your Light [00:03:59]
-04. Rise and Grind [00:03:22](   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2571F896146CC13E196060FAE05C3EECEBB75CAA
 ```
 
 

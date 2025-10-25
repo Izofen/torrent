@@ -1,3 +1,30 @@
+###  Публикация: 1785534   (69234) от 16.03.2025
+
+Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|image + .cue|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69234.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Intro - The Gate
+A2 Noose
+A3 Shadegrown
+A4 Bleed(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46037E3858D6AAE0DB92A4B0851C5E6334BD124
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784919   (69235) от 16.03.2025
 
 Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
@@ -636,33 +663,6 @@ magnet:?xt=urn:btih:4C1E307F6A29A04B57B26D5986A3314B6DBBCCE1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BFABC987BB0BD71368587BDEB4466E328712B94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785587   (69260) от 16.03.2025
-
-VA - Авторский сборник Шансона otKOSTETa (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Константин Жиляков - Русский Шансон (3:47)
-02.  Михаил Бородин - Пули Дни (3:22)
-03.  Сергей Сидель - Кореша (4:08)
-04.  Валерий Козьмин - Связаны судьбою (3:51)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDE5AF0B46A2BD404729090387F1F876C6E7C75
 ```
 
 

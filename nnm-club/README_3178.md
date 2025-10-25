@@ -1,3 +1,219 @@
+###  Публикация: 1762173   (102966) от 24.11.2024
+
+PJ Harvey - To Bring You My Love (1995) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Bring You My Love (5:34)
+02. Meet Ze Monsta (3:29)
+03. Working for the Man (4:49)
+04. C'mon Billy (2:51)(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECBD1124413DEB889D51F95D021F11FBDA45A66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762054   (102967) от 24.11.2024
+
+Интоксикация - The Best 1996-2002 (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сарацины / Saracens
+02. Умереть молодым / To die young
+03. Если не закон / If not the law
+04. Рай или тюрьма / Heaven or prison(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FD84BBD35770393A46D249811360D099860448
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762080   (102968) от 24.11.2024
+
+Aeon Gods - King Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun-God [00:04:00]
+02. King Of Gods [00:04:25]
+03. Aeon Gods [00:05:23]
+04. Babylon Burning [00:05:00](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD30B040E380C4FD5808D59C9F248ADDF5B578DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762131   (102969) от 24.11.2024
+
+Father John Misty - Mahashmashana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mahashmashana [00:09:19]
+02. She Cleans Up [00:04:26]
+03. Josh Tillman and the Accidental Dose [00:05:12]
+04. Mental Health [00:06:28](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC8E638EC98BD2C4129E036746B28564EEF7087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762212   (102970) от 24.11.2024
+
+Егор Крид - Меньше чем три (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выше облаков [00:02:48]
+02. Время [00:01:50]
+03. <3 / Забудь меня [00:02:39]
+04. Pusto.mp3 [00:02:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8FB2C61FB099D43AB6D7C6AD81235EEE399462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762050   (102971) от 24.11.2024
+
+Пикник - Немного Огня (1994) Release 2004, Grand Records [WavPack|Lossless|image + .cue] <Soft Rock, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Немного Огня
+02. Твое Сердце Должно Быть Моим
+03. За Невинно Убиенных
+04. Теряя Их На Ветру(   Читать дальше...   )Жанр: Soft Rock, Goth RockПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9486ED0CC60F63586175DA4BC712EA5DAD2A52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762336   (102972) от 24.11.2024
+
+Пикник - Железные Мантры (2008) [WavPack|Lossless|image + .cue] <Soft Rock, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Недобитый Романтик
+ 02. Гиперболоид
+ 03. Колдыри Да Колдобины
+ 04. Железные Мантры(   Читать дальше...   )Жанр: Soft Rock, Goth RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D30931637BD9BAACF40A921D503C43ED93A67A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762135   (102973) от 24.11.2024
+
+Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Brazil, 9362498095, AA0003000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Step Closer (4:07)
+02. From The Inside (3:25)
+03. No More Sorrow (5:06)
+04. Given Up (3:16)(   Читать дальше...   )Тип издания: DigipakЖанр: Alternative / Nu-MetalПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5251FF51EB6DAA51C6D98D6971A509EF3A7598AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762133   (102974) от 24.11.2024
 
 Linkin Park - Live In Texas (2003) 2003+, China, 7-88000-508-0 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
@@ -457,216 +673,6 @@ Maggoth - System Error (2011) Ressued, 2017, Defense Records [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:195F2C4393D6F243A2F57D86228135F1A12C927E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761910   (102992) от 23.11.2024
-
-Coldness - Poisoned Gift (2004) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Destroyed the I 03:12
-02. Living a Lie 02:48
-03. That Is All 02:43
-04. None 03:31(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30403D71F1EA01FA000694A3B23F74E5DCD3B9F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761968   (102993) от 23.11.2024
-
-Plague Widow - Plague Widow (2012) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Womb
-03. Mabus Incarnate
-04. Abyss I(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2743DF15621F18DB5861A413462D29F30DB64E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761970   (102994) от 23.11.2024
-
-Psychotomy - Antinomia (2015) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antinomia 01:50
-02. The Worship of Contempt 04:01
-03. Reprieve 03:01
-04. Neglected Entropy 03:43(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6CBFF67695B43B11BC515C42CC727354D3FF0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761902   (102995) от 23.11.2024
-
-Carmina - Carmina (2008) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsolescence planifiée 04:27
-02. Je suis déjà mort 03:41
-03. Maîtriser le chaos 03:04
-04. Légion 02:26(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B510EFF6AD84C49905E5FA287901678CA9908B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761997   (102996) от 23.11.2024
-
-НХЛ 2024-2025. Колорадо Эвеланш - Вашингтон Кэпиталз (21.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102996.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 ноября 2024, пятница. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 17 414 зрителей (94% при вместимости 18 573)
-Главный судья: Франсис Шаррон (Оттава, Канада); Главный судья: Бо Халкидис (Лондон, Канада); Линейный: Либор Суханек (Стод, Чехия); Линейный: Си Джей Мюррей (Питтсбург, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BB5B193C832E0DA313C271F29BFC830079C4ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762042   (102997) от 23.11.2024
-
-В.М. Чхиквадзе | Борьба за мир - неодолимое движение современности (1969) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа рассказывает о возникновении всемирного движения сторонников мира, о важнейших этапах его развития, социальной природе, основных принципах, формах и методах его деятельности. В работе характеризуется нравственная сила движения сторонников мира, его руководящие органы, а также взаимодействие с другими силами, выступающими за мир.Жанр: История, политология, социология, публицистикаИздательство: МысльФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAF8CA52957B17BA2239822E522AF63882E82D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762026   (102998) от 23.11.2024
-
-Crossbone Skully - Evil World Machine (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102998.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Evil World Machine (Extended) (6:11)
-• 02. The Boom Went The Boom (feat. Phil Collen) (3:40)
-• 03. Money, Sex, or God (3:39)
-• 04. Flip The Bird (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D62A0EAEF0B1424DABEF49A38A7A4ED34013EB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762113   (102999) от 23.11.2024
-
-Главная дорога (23.11.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьяный участник экзамена на права, неприятный итог покатушек на столичном тротуаре в ковше погрузчика, черный лед в Приморье и эпичная авария с 11 авто.
- Опять не заводится! Машина сломалась сразу после покупки в автосалоне. Как вернуть автохлам продавцу с выгодой?
- Будущее уже наступило — беспилотные автомобили среди людей! Андрей Федорцов и Денис Юченков испытали (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79F808BB5BD497E31CF8D8BD61C5C14ECEC6061
 ```
 
 

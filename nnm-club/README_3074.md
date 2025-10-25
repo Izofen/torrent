@@ -1,3 +1,93 @@
+###  Публикация: 475796   (98135) от 31.03.2012
+
+VA - Clubber.RU (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Vengerov Feat. Рома Жуков & Паола - Переливы (Club Remix)
+02. Dj Цветкоff & Оля Милакса - Белая Ночь (Dj Solovey Remix)
+03. Geegun И Юлия Савичева - Отпусти (Dj Stylezz Remix)
+04. Katrin Moro - Давай Любить ( Vova Baggage Remix )
+05. Ligalize - Будущие Мамы (Dj Paulbass & Dj Gorodnev Hot Mix 2012)
+06. Maksim - Kaк Летать (Dj Shevtsov Alex & Menco Extended Mix)
+07. Mixi - До Рассвета (Dj Solovey Remix)
+08. Mixi - Между Мной И Тобой (Dj Andy Wait Remix)
+09. Mixi Feat. Young Zeke - Текила (Alex Neo Remix)
+10. Noggano - Застрахуй (Dj Viduta Remix)2012Жанр: Dance, ClubПродолжительность: 04:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DECD66D2F6D091B2B218B6318B1EC740DE2C3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474244   (98137) от 31.03.2012
+
+DJ Kocmoc - Electro Sensation vol.22 (12.03.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98137.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nero – Guilt (DallasK Remix)
+2. Felguk - Bassive (Original Mix)
+ 3. 2-4 Grooves feat. Amina - Melodie (Extended Mix)
+4. Inna feat. Flo Rida - Club Rocker (Mike Candys Extended Mix)
+5. Flo Rida - Good Feeling (J.O.B. Remix)
+6. DJ Antoine - Welcome To St.Tropez (Mike Candys After Summer Bootleg Mix)
+ 7. DJ Antoine - Every Breath You Take 2012 (Voodoo & Serano Remix)
+ 8. Marq Aurel & Beatbreaker feat. Nate Monoxide - Road Rat (Major Tosh Remix)
+9. Pitbull feat. Ne-Yo & Nayer - Give Me Everything Tonight (Danny Rush Remix)
+ 10. Sean Finn - Show Me Love 2012 (Rockstroh Remix)(   Читать дальше...   )12.03.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476134   (98138) от 31.03.2012
+
+Журнал | Благоустройство №2 [2012 март] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто создает уют. Основная цель — помочь сориентироваться потребителю на рынке товаров и услуг в области благоустройства жилья, то есть — посоветовать, направить, разъяснить, дать оценку и помочь при выборе. Для этого мы привлекаем к сотрудничеству экспертов в области ремонта, строительства и дизайна.2012 мартФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B161308A18FEA8941E86EFDBAA0B88A31FCFB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475957   (98139) от 31.03.2012
 
 VA - Клубная 100-ка (2012) [MP3|160-320 kbps]<Club>
@@ -688,87 +778,6 @@ VA - Горячая 200ка@Ru (2012) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2A75048C4A4ED6E4A366E75D02B2100CB507765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476467   (98171) от 31.03.2012
-
-VA - MAXI. Super Dance на Maximum FM (2012) [MP3|192 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98171.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ThomTree - When The Sun Comes Out (Justin Corza meets Greg Blast Edit) (3:32)
-2. Temple One Feat. Neev Kennedy - Love The Fear (Eximinds Remix) (7:53)
-3. Stefy De Cicco ft. Dhany - Deep Down Inside Of You (Elegance Ext. Mix) (6:26)
-4. Rob Mayth - Another N8(Exclusive Edit) (3:33)
-5. Rihanna - S&M (DJ Kez & Nexboy Remix) (5:31)
-6. Rene De La Mone & Slin Project - 2012 (Get Your Hands Up)(Topmodelz Edit) (3:22)
-7. Power Play - Wole Ole ( Oj Tam Oj Tam 2 ) (5:06)
-8. Pitbull feat. Flo Rida - Move Shake (4:38)
-9. Young London - Let Me Go (DJ Solovey Remix) (5:02)
-10. Tradelove - Pum Back (Original Mix) (5:46)2012Жанр: Pop,DanceПродолжительность: 08:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C00ACD33D3358AA6A410EEAF07F6363646BB8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475393   (98172) от 31.03.2012
-
-Юджин Пеппероу | Открыватель талантов [1991] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юджин Пеппероу (1991Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFFD12B9D60CC570A519C225DAD0A492F034493
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475401   (98177) от 31.03.2012
-
-Юджин Пеппероу | Попытка к бегству [1991] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юджин Пеппероу (1991Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297F68FADD9A7937D9A901D562781E1279D8DCFF
 ```
 
 

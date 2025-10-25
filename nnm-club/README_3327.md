@@ -1,3 +1,183 @@
+###  Публикация: 1735680   (106863) от 09.07.2024
+
+Байкеры / The Bikeriders (2023) WEB-DLRip [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106863.jpg" />
+</div>
+
+
+###  Подробнее
+
+1960-е. Мотоклуб, в котором собираются местные аутсайдеры, постепенно превращается в сборище бандитов.Производство: США / 20th Century Studios, Regency Enterprises, Regency TelevisionЖанр: драма, криминалРежиссер: Джефф НиколсАктеры: Джоди Комер, Остин Батлер, Том Харди, Майкл Шеннон, Майк Фейст, Бойд Холбрук, Норман Ридус, Дэймон Херриман, Бо Напп, Эмори КоэнПеревод: Дублированный (Movie Dubbing / Bravo Records Georgia) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:57:14Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735748   (106864) от 09.07.2024
+
+Николай Чуковский | Хочу всё знать! (Выпуск № 6). Великие мореплаватели. Джеймс Кук (2007) [MP3, Денис Некрасов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Хочу всё знать!
+Николай Корнеевич Чуковский (1904–1965) – русский писатель, переводчик прозы и поэзии, сын писателя Корнея Чуковского.
+Как были открыты Австралия и Таити?
+Как исчезали с карты земли белые пятна?(   Читать дальше...   )Жанр: Историческая литература, биографияИздательство: Элитайл, СиДиКомПродолжительность: 04:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C901A8BD2068249D2A3F9A48DA0FAAF5894637
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735515   (106865) от 09.07.2024
+
+TeknoVore - Caerdroia (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Hard Techno, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament [00:04:05]
+02. Synthesize [00:04:50]
+03. Citadel [00:04:00]
+04. Woodchipper [00:05:14](   Читать дальше...   )Жанр: Dark Electro, Hard Techno, IndustrialПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06E5AB30E863CA78B028F86CB9392BCB9831901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735388   (106866) от 09.07.2024
+
+Дмитрий Колдун - Ночной Пилот (2012) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночной Пилот
+ 02. В Комнате Пустой
+ 03. Корабли
+ 04. Не Моя Вина(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FD6DDD2C3EB661D78A1785A101F82082C0EA12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735775   (106867) от 09.07.2024
+
+Тайна Кара-Тау / Тайна чёрных гор (1932) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начальник небольшой железнодорожной станции, которая находилась в степях Казахстана, нашел каучуконосное растение — хандриллу. С его помощью можно было бы добывать резину. Чтобы исследовать окрестности станции, в Казахстан прислали группу геологов во главе с профессором Шахровым, который всеми правдами и неправдами настойчиво будет доказывать отсутствие каучуконосов (   Читать дальше...   )Производство: СССР / ВостоккиноЖанр: социальная драма, немое киноРежиссер: Александр ДубровскийАктеры: Владимир Гардин, Николай Кутузов, Хаким Давлетбеков, Евгения Пырялова, Борис АзаровСубтитры: казахские латиница, русские (интертитры)Продолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1C54CBEE8DEF317E39A0A3F348973C8B9449A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735697   (106868) от 09.07.2024
+
+Simone Kopmajer - Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pick Yourself Up
+02. Black Tattoo
+03. Careless Whisper
+04. Little Green Apples(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D2F260D71A38361AB0D89B9B868090F424E465
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735714   (106869) от 09.07.2024
+
+До свидания, дети / Au revoir les enfants (1987) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на воспоминаниях Луи Маля, которому шёл двенадцатый год, и он учился в католическом колледже. Зимой начала 1944 года он стал свидетелем рейда гестапо, в результате которого трое еврейских учеников и один учитель были отправлены в Освенцим (все они по прибытии были отправлены в газовые камеры), а директор был арестован (он был отправлен в Маутхаузен, (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ) / Centre National de la Cinématographie (CNC), Images Investissements, Stella FilmЖанр: драма, военныйРежиссер: Луи МалльАктеры: Гаспар Манесс, Рафаэль Фейтё, Франсин Расетт, Станислас Карре Де Мальбер, Ирен Жакоб, Филипп Морье-Жану, Франсуа Берлеан, Франсуа Негре, Петер Фиц, Паскаль Риве, Бенуа АнриетПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F44DB6E4F272286CDF0FCBAEE97C77DFA67AAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735752   (106870) от 09.07.2024
 
 В.И. Смирнов | Технология интегральных микросхем (2023) [PDF]
@@ -472,195 +652,6 @@ Sunbomb - Light Up The Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25D87193E2F404F7043F96F4C407FB0A94C8FDF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735525   (106889) от 08.07.2024
-
-Limbonic Art - Opus Daemoniacal (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106889.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ad Astra Et Abyssos
-2. Deify Thy Master
-3. Consigned To The Flames
-4. Vir Triumphalis(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3920EF2CB0A09F24A90663D4C5246F254EBB511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735542   (106890) от 08.07.2024
-
-Heavy Star - Ride On (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Lady Firefly
-02. Razor Blade
-03. Lexi Love
-04. Rock 'N' Roll Again(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C72CA1D37A0ACF5AF03F79881480BF216B37D7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735414   (106891) от 08.07.2024
-
-Kissin Dynamite - Back With A Bang (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back With A Bang (3:34)
-02. My Monster (4:07)
-03. Raise Your Glass (3:38)
-04. Queen Of The Night (3:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5C6D0CABD25294D31BACEAAE7FD79EDC9B5BA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735537   (106892) от 08.07.2024
-
-Illdisposed - In Chambers Of Sonic Disgust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spitting Your Pain
-02. I Walk Among The Living
-03. Lay Low
-04. The Ill-Disposed(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D63318A360D68E4BB15C92941C13E80EA29C340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735426   (106893) от 08.07.2024
-
-The Commoners - Restless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil Teasin' Me (4:24)
-02. Shake You Off (3:56)
-03. The Way I Am (3:34)
-04. Restless (5:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA1426FC9C75AAE8397162F1A987207AC170286
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735436   (106894) от 08.07.2024
-
-Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Space Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Gone (4:13)
-02. In Between The Black And White (4:19)
-03. Courage Or Conviction (7:04)
-04. Least Of All You (4:13)(   Читать дальше...   )Жанр: Progressive Rock, Space Rock, Psychedelic RockПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8038504E2A1F9F4199AEC4CDB474E54080E05CFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735487   (106895) от 08.07.2024
-
-Sabïre - Jätt (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doorway (Entry) (03:43)
- 02. Pure Fucking Hell (03:56)
- 03. Ice Cold Lust (05:02)
- 04. I'm A Rock (04:40)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9E392F24F65F2CDF3D02210C8781F8FE8C73A3
 ```
 
 

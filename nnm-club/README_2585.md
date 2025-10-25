@@ -1,3 +1,30 @@
+###  Публикация: 1790929   (67960) от 11.04.2025
+
+Headcrasher - Nothing Will Remain (1989) 2 x CD, Reissue, , 2017, Punishment 18 Records, Special Edition [FLAC|Lossless|image + .cue] <Thrash, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67960.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 - Nothing Will Remain:
+01. Intro 01:23
+02. Blood from the Sky 05:05
+03. Live or Die (W.C.W.C.) 03:50(   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 01:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF4EEF86DD6A28EE56149E0FE2E06F662C5961C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790946   (67961) от 11.04.2025
 
 Lev Kushnir Quartet - Stars Fell On Samotlor (2001) 2024, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -623,30 +650,6 @@ magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB9C211DC013DF659429EDFAB4856403DBD5231C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790866   (67986) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Gold & Black Plaid Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67986.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных узоров в золотую и черную клетку (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671971AC067A5D5CF116462B705AA8CB7DB996E3
 ```
 
 

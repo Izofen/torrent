@@ -1,3 +1,30 @@
+###  Публикация: 280870   (88920) от 16.04.2012
+
+Литературный сериал "Этногенез" | Аудиокниги проекта "Этногенез" (2009-2012) [MP3]
+
+>>3
+>>25
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88920.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Этногенез» — самый грандиозный проект в истории литературы, который продлится несколько лет и не имеет аналогов.
+
+Феномен «Этногенеза» в том, что каждая книга — это отдельная история, каждая серия — самостоятельный сюжет; но при этом все они являются пазлами, из которых складывается неожиданная общая картина.
+(   Читать дальше...   )Жанр: Фантастика
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483625   (88923) от 16.04.2012
 
 The Lord of the Rings: The Battle for Middle-earth 2 The Rise of the Witch-king / Властелин Колец: Битва за Средиземье 2 Под знаменем Короля-чародея (RePack) [Ru] 2006 | NICK0304
@@ -634,39 +661,6 @@ Chris Botti & Friends Night Sessions: Live In Concert (2001) DVD5
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484194   (88986) от 17.04.2012
-
-Antonio Vivaldi, Antonio Salieri, Gioacchino Rossini, Antonio Paskulli - Works for an oboe and a chamber orchestra: Moscow Virtuosi, Alexey Utkin & Heinz Holliger, conductor Vladimir Spivakov ( ...
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88986.jpg" />
-</div>
-
-
-###  Подробнее
-
-АНТОНИО ВИВАЛЬДИ Antonio Vivaldi
-Концерт ре минор для двух гобоев, струнных и бассо континуо [9:06]
-Concerto for 2 Oboes, Strings and Basso Continuo in d minor [9:06]
-1.	Allegro molto [2:42]
-2.	Largo.Allegro [3:43]
-3.	Largo [2:41]
-Концерт ля минор для гобоя, струнных и бассо континуо [10:06]
-Concerto for Oboe, Strings and Basso Continuo in a minor [10:06]
-4.	Allegro non molto [3:30]
-5.	Larghetto [3:34](   Читать дальше...   )1998Жанр: OboeПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C723C52BA03CBD37A35AF029727EA4E541A5F5AA
 ```
 
 

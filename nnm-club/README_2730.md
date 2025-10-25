@@ -1,3 +1,30 @@
+###  Публикация: 1772912   (71730) от 12.01.2025
+
+Olivia Rox - Super Cool Songs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Changes [00:03:34]
+02. Bubble Pop [00:03:03]
+03. Ignite [00:02:52]
+04. Pheromones [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C83D65E9FFA8DF49E2D29E8CF294297D143339
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772646   (71731) от 12.01.2025
 
 The Flirts - Blondes, Brunettes & Redheads (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Hi NRG, Disco>
@@ -641,33 +668,6 @@ magnet:?xt=urn:btih:D8619110CCB8396E9EE0B33D6E4DC7123EEE9D68
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35D7299D43C236FE623B852C3B3D314710824162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772893   (71756) от 12.01.2025
-
-VA - Relaxation Hub, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slow World - Seijaku (Silence) (03:45)
- 02 - Living Room - Organic Sundance (Ambient Dub) (03:29)
- 03 - Five Seasons - Delphina (04:04)
- 04 - PaiJun - Elemental (Neptun Dub Mix) (04:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84A355D26D4140100FE9F0A3A7A9841808EF8D0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1794034   (67310) от 28.04.2025
+
+VA - Franz Schubert – Night Wanderer (1997) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67310.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Piano Trio N°. 2 In E-flat - Andante Con Moto -10:52
+Piano – Trio Di Trieste
+2. Ave Maria
+Arranged By – Mischa Maisky - 5:32(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037622EA6732DFA29AA35B958B23A15131B31A8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794346   (67311) от 28.04.2025
 
 Паттерны - Free PSD Templates - Diamond Pattern Set [JPG, PNG, AI, PSD, EPS]
@@ -608,30 +635,6 @@ magnet:?xt=urn:btih:83365D30623E6E837DE4964C891D6456BB91A32B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A0A64E367DD29922C461869F7F1535DA308A66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794193   (67336) от 28.04.2025
-
-Смешанные единоборства. UFC on ESPN 66: Гэрри vs. Пратес / Full Event (26.04.2025) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67336.jpg" />
-</div>
-
-
-###  Подробнее
-
-UFC Fight Night: Machado Garry vs. Prates (также известный как UFC on ESPN 66) — турнир по смешанным единоборствам, организованный Ultimate Fighting Championship, который состоялся 26 апреля 2025 года на арене «T-Mobile Center» в городе Канзас-Сити, штат Миссури, США. Изначально в качестве заглавного события турнира был запланирован бой в полутяжёлом весе, в котором (   Читать дальше...   )Жанр: спортЯзык озвучки: РусскийПродолжительность: 06:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0EB711F0C19355DFBCC5469861F906B73B6C3D
 ```
 
 

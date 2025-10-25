@@ -1,3 +1,218 @@
+###  Публикация: 1751621   (104046) от 26.09.2024
+
+Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Савават Юлаев (Уфа) (25.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Савават Юлаев (Уфа) (25.09.2024)
+СУДЬИ Беляев Сергей (Воскресенск, Россия) Светилов Алексей (Москва, Россия)
+СТАДИОН «Арена Трактор» (Челябинск) Зрителей: 7500Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB35868924E8613E18FBEAE9E93BEF39C5A9B04B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751727   (104047) от 26.09.2024
+
+Richie Kotzen - Nomad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheap Shots (3:24)
+02. These Doors (4:23)
+03. Insomnia (4:47)
+04. Nomad (6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACBE8FDC581FD08B0A61EBEDD0E0D14C8420323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751635   (104048) от 26.09.2024
+
+The Cold Stares - The Southern (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Alt Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horse To Water (3:59)
+02. Coming Home (3:09)
+03. Looking for a Fight (3:24)
+04. Blow Wind Blow (3:29)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Alt RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340A107248C9765979F54DC86E94D0998EDAE6CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751742   (104049) от 26.09.2024
+
+Virgin Steele - Guardians Of The Flame (1983) Reissue, Remastered, 2024, Steamhammer, The Anniversary Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Say Goodbye (Tonight) (4:56)
+02. Burn The Sun (4:30)
+03. Life Of Crime (4:45)
+04. The Redeemer (7:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC87FF4B18F8D04E2E7258DAECC800F4A6B49D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751523   (104050) от 26.09.2024
+
+Arma - Brazilian Genocide (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe in Nothing [00:04:23]
+02. Those Who Died [00:04:27]
+03. Brazilian Genocide [00:04:23]
+04. Things That Cannot Be [00:03:25](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358AA21296772A9734371C1875E54FD9CEBE9105
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751628   (104051) от 26.09.2024
+
+Shrinking Mode - Choices of Passion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coffee High (2:43)
+02. Mix of Passion (2:19)
+03. Don't Drink Coffee Too Much (2:29)
+04. Midnight Sugar (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943825E82BFD5906788608338581F43AEAF239C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751632   (104052) от 26.09.2024
+
+Sylvain Rifflet - We Want Stars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Dance (2:34)
+02. The Mojo (3:18)
+03. Mǎmǎhūhū (4:36)
+04. Bach and Boom (5:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EB8E61812BCC135E36243FDEF38D5A9002E1B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751517   (104053) от 26.09.2024
+
+Kate Pierson - Radios & Rainbows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil Love [00:03:48]
+02. Take Me Back to the Party [00:03:58]
+03. Every Day is Halloween [00:04:28]
+04. The Beauty of it All [00:04:21](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89414A8339A6390475B311B8DEA754A3F514B5B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751603   (104054) от 26.09.2024
 
 Cannonball Adderley - Paris Jazz Concert: Salle Pleyel, Olympia (1960, 1961,1969) 2CD, 2002, LaserLight [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -475,218 +690,6 @@ Magnus Dauner - Portrait In Rhythm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B633E840519AFCB2000F22C2B0DBEC3022050238
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751434   (104072) от 25.09.2024
-
-Eric Escanes - Near and Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skipping Stone (3:43)
-02. PAX (4:43)
-03. Baba (2:08)
-04. Tokyo Moon (3:27)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A53B4456E145EC5C876586B2EF31CAF9F6B591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751445   (104073) от 25.09.2024
-
-Max Diller & Blossom - Solastalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After the Rain (4:27)
-02. Broken Flower (7:21)
-03. Sun Dance (5:00)
-04. Still Blooming (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93397C0FC7F17F5C6BA942C01D63968D4E32D74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751441   (104074) от 25.09.2024
-
-Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - ЦСКА (Москва) (24.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Амур (Хабаровск) - ЦСКА (Москва) (24.09.2024)
-СУДЬИ Васильев Алексей (Санкт-Петербург, Россия) Гашилов Виктор (Пермь, Россия)
-СТАДИОН «Платинум Арена» (Хабаровск) Зрителей: 7100Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C657833DADA823CA966610E73DDAA181BE237892
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751452   (104075) от 25.09.2024
-
-Хоккей. КХЛ 2024-2025. Куньлунь Ред Стар (Пекин) - Торпедо (Нижний Новгород) (24.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Куньлунь Ред Стар (Пекин)  - Торпедо (Нижний Новгород) (24.09.2024)
-СУДЬИ Бирин Виктор (Москва, Россия) Сидоренко Максим (Белоруссия)
-СТАДИОН «Арена Мытищи» (Мытищи) Зрителей: 1386Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70D018DE3E53CBF5E1417A3400664128DB9BA1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751448   (104076) от 25.09.2024
-
-Хоккей. КХЛ 2024-2025. Барыс (Астана) - Динамо (Москва) (24.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Барыс (Астана) - Динамо (Москва) (24.09.2024)
-СУДЬИ Наумов Денис (Тольятти, Россия) Фатеев Иван (Россия)
-СТАДИОН «Барыс Арена» (Астана) Зрителей: 5310Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BD0FC14C66F4A567FE495C25780A9B9CF2628E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751442   (104077) от 25.09.2024
-
-Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024)
-СУДЬИ Лаврентьев Антон (Казань, Россия) Спирин Виктор (Россия)
-СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 4872Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCA19CE24C0CE434654F3E71615B3D191956726
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751054   (104078) от 23.09.2024
-
-Frankywright - Echoes of Sorrow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Did You Go (5:30)
-02. Goodbye, My Love (3:21)
-03. Midnight Tears (5:51)
-04. Echoes of Sorrow (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DCC94CBC52640BBA9A735F701D980AD3ADAC74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751048   (104079) от 23.09.2024
-
-Dred Scott Trio - Cali Mambo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moses Patrou - Cali Mambo (4:38)
-02. Tom Beckham - Star Eyes (6:33)
-03. Tom Beckham - Poinciana (5:46)
-04. Tom Beckham - La Enganadora (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A775B916486B4B5DBBCA0DA07237E918CDF070
 ```
 
 

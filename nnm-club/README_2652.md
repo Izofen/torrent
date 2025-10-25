@@ -1,3 +1,27 @@
+###  Публикация: 1783987   (69702) от 08.03.2025
+
+Звуковые библиотеки - Gobuz - Refocus with Nature FX [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальные звуки дикой природы при разных погодных условиях: звуки утреннего леса, тихие вечерние крики птиц, ветреная весенняя атмосфера и т.п.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90555406A40769D26C87C5534678C47626D3C4D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783980   (69703) от 08.03.2025
 
 Роберт Дарнтон | Цензоры за работой. Как государство формирует литературу (2017) [PDF]
@@ -610,33 +634,6 @@ magnet:?xt=urn:btih:C2697273EB584C4C5361DC6C99A80C9FF059330A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD2A4EFD7CF1A8C2F672107B550AD815F0DC302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783918   (69728) от 08.03.2025
-
-Lacrimosa - Lament (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark Wave, Modern Classical>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lament [9:33]
-02 - Ein Sturm zieht auf [7:31]
-03 - Ein langer Weg [7:35]
-04 - Du bist alles was ich will [5:43](   Читать дальше...   )Жанр: Gothic Metal, Dark Wave, Modern ClassicalПродолжительность: 01:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9C0D64C98BE107B7A89178A96EFBDEDF44344C
 ```
 
 

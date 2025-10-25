@@ -1,3 +1,29 @@
+###  Публикация: 476388   (85606) от 31.03.2012
+
+Эккарт Потт | Большая энциклопедия природы от А до Я. Жизнь животных. Том 1-4 [2002] [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том 1-3. Жизнь животных
+Первые три тома серии, имеющие общее заглавие "Жизнь животных", расскажут вам о повадках, питании, размножении и ареале обитания того или иного вида. Каждый том снабжён уникальными фотографиями.
+ Написанные с большой любовью и проникнутые заботой о сохранении исчезающих животных, эти книги, без сомнения, будут интересны всем любителям природы.Жанр: Справочный материалФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B32316EB3D84B2B305214440EBB5565ABEDAFA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476425   (85607) от 31.03.2012
 
 Разделитель / The Divide (2011) BDRip
@@ -641,39 +667,6 @@ Alkid Live CD/DVD/USB 30.03.12 [Русский]
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476417   (85642) от 31.03.2012
-
-VA - Super Instrumental Collection Vol 1-35 (1994-2011) [MP3|320 кб/с]<Instrumental>
-
->>След.
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85642.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ennio Morricone - Chi Mai (5:11)
-2. Richard Clayderman - Moonlight Sonata (3:31)
-3. Paul Mauriat - Bublitschki (2:48)
-4. James Last - Lonesome Shepherd (4:30)
-5. Diego Modena - Song Of Ocarina (3:42)
-6. Richard Clayderman - Strangers In The Night (3:21)
-7. Fausto Papetti - Feelings (3:38)
-8. Francis Goya - Woman In Love (4:02)
-9. Ennio Morricone - The Good, The Bad, The Ugly (2:42)
-10. Richard Clayderman - Pour Elise (2:29)1994-2011Жанр: InstrumentalПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F63CDDA75A5A642A3ABE90F781645C1CDF5F59F
 ```
 
 

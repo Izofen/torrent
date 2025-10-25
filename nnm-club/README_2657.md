@@ -1,3 +1,30 @@
+###  Публикация: 1783226   (69832) от 05.03.2025
+
+Dommin - The Martyr (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Martyr [00:05:35]
+02. Breaking Down [00:05:19]
+03. Rule To Break [00:03:30]
+04. Thorns & Roses [00:04:06](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED4878A5C3DB9D1159510C26929713D0899C4D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783288   (69833) от 05.03.2025
 
 VA - SaberWave Best Of 4 Years (2025) [MP3|320 Kbps] <Trance>
@@ -656,33 +683,6 @@ Thrashfire - турецкая метал-группа, основанная в �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60E025A726FE4BED589DE7273F818F6C3BE46AC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782962   (69858) от 03.03.2025
-
-Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction - Joey [0:45]
-02. Cherokee [9:17]
-03. Ceora [13:51]
-04. I'm in the Mood for Love [6:36](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E53170D50F806E70F34D1F02431AB4943F9A98
 ```
 
 

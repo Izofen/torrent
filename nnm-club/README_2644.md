@@ -1,3 +1,29 @@
+###  Публикация: 1784804   (69494) от 13.03.2025
+
+Шрифты - Creative Market - Leina Savira Stylish Serif Font - 290805668 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Leina Savira Stylish Serif — это яркий, современный шрифт с засечками, сочетающий элегантность с индивидуальностью. Благодаря своему изысканному дизайну этот шрифт добавляет ощущение изысканности и очарования любому проекту.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A4B1AE3659C73F6E36D2C8EF841B2B738A8012
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784765   (69495) от 13.03.2025
 
 Visions Of Atlantis - Armada LIVE Over Europe (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal, Power Metal>
@@ -640,33 +666,6 @@ magnet:?xt=urn:btih:246B8D0D098FC36470E63429E0BEEBC6E22318A5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E83BE697A72EE29DA2B542463CC5645B92FFE9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784945   (69520) от 13.03.2025
-
-Wily Bo Walker - The Rattlin Bone Theatre Show Volume 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shoot Me Down (3:50)
-02.  Drag Me Down (3:00)
-03.  Down Amongst the Dead Men (4:47)
-04.  Ain't Gonna Dig My Own Grave (No More) (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DD74C251E4570A8B7A49C558625EAB1C334E10
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1780546   (70456) от 18.02.2025
+
+VA - Velvet Dreams the Smooth Lounge Sounds of Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chillaxonic - Nowhere to Somewhere (5:02)
+02.  eJazz Artistry - Come Share My Love (4:31)
+03.  Chillaxonic - Oasis (4:58)
+04.  Love Suggestions - Treasure (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2C988251502788FD45404F1790C4B253947CE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780413   (70457) от 18.02.2025
 
 VA - Trance Winter 2025 (2025) [MP3|320 Kbps] <Trance>
@@ -622,33 +649,6 @@ Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:923395256A189CD35830C79E58E427A321AF1789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780181   (70482) от 17.02.2025
-
-The Creaking Floorboards - They're Waiting out of Sight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eat That! (3:30)
-02.  Intentions (3:52)
-03.  Cougar (3:39)
-04.  Good to Be King (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3408F3EEA6BE6790CEA473C896EAA6FD9B9CBD6
 ```
 
 

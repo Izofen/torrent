@@ -1,3 +1,187 @@
+###  Публикация: 1706249   (113663) от 12.03.2024
+
+Журнал | Профиль №9-10 (224) (март 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0504693013985ABEE75E38D82939289E3DD381
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705696   (113664) от 12.03.2024
+
+Jackie DeShannon - Little Bit Of Heaven: The 1964 Metric Music Demos (2023) [FLAC|Lossless|tracks] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Bit Of Heaven (2:12)
+02. Day Dreaming Of You (2:05)
+03. You Should Have Been There (1:53)
+04. Till You Say You'll Be Mine (2:37)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3248C2602AC0AA08AF867ED72F208F6EEFA580F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706395   (113665) от 12.03.2024
+
+Boxy SVG 4.26.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2012-2024 Jaroslaw FoksaПоддерживаемая ОС: macOS 11.1 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFF843E25673760D6FB08D361F5D2231302E406
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706426   (113666) от 12.03.2024
+
+Alice Cooper - The Sound Of A (2018) EP [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113666.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Sound Of A
+Backing Vocals – Demi Demaree, Johnny Reid
+Bass – Dennis Dunaway
+CoordinatorЖанр: Hard RockПродолжительность: 00:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40808193201D6410309FF8299A95830D9F1B047B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706198   (113667) от 12.03.2024
+
+Steve Baxter - Crusade Blvd (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crusade Blvd (4:17)
+02. Scam Call (4:22)
+03. Hands Together (4:42)
+04. Old School Jam (feat. Ellis Hall) (3:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83126295DF31F39058FB2F9C693C0EDB5C9DF154
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706251   (113668) от 12.03.2024
+
+Indigo Flood - You To Me Are The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adjustments (7:56)
+02. You To Me Are The Blues (6:23)
+03. When He Comes Down (6:02)
+04. Heartache Don't Last Long (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA707681C880BCA95DFA440D556E8D774B306A54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706045   (113669) от 12.03.2024
+
+The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Дай мне прибежище.
+02 - Тщетная любовь.
+03 - Деревенщина.(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DABBDA1C30A4E68942C9FF76B67A1242FFC5F24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706322   (113670) от 12.03.2024
 
 VA - Игра в четыре руки. Песни Аркадия Укупника (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
@@ -482,184 +666,6 @@ Whorehouse Love - Whorehouse Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:681B494665AA783DC56D20FEA09C8DECD7B6BDC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706039   (113689) от 11.03.2024
-
-Pantheist - Kings Must Die (2024) [FLAC 24/48; 24/44.1|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kings Must Die (featuring Jake Harding) (14:45)
-02. 1000 Years (Performed at Organic Doom Vol I) (2:51)
-03. O Solitude (Performed at Organic Doom Vol I) (9:53)
-04. Strange Times (Performed at Organic Doom Vol I) (22:04)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357406A46852C24899B1B7E94D988713B6F86429
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706013   (113690) от 11.03.2024
-
-George Shearing Trio & Stephane Grappelli - The Reunion (1976) 1987, MPS Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Coming Virginia [3:06]
-02. Time After Time [4:48]
-03. La chanson de rue [3:59]
-04. Too Marvelous for Words [4:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780FBE1B23B51C6785F5372161BC0FC620F504D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706171   (113691) от 11.03.2024
-
-FSNotes 6.7.0 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113691.jpg" />
-</div>
-
-
-###  Подробнее
-
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2024 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Украинский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36EB553A315C27F8892247423E16C23DF634343F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706155   (113692) от 11.03.2024
-
-Mp3tag 1.8.16 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mp3tag - мощный и простой в использовании инструмент для редактирования метаданных аудиофайлов. Музыканты, ди-джеи, подкастеры и аудиоэнтузиасты используют его для множества различных аспектов обработки аудиофайлов.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2021-2022 Florian HeidenreichПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA10029C28169D390D34F2326CAD8432714D30E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706163   (113693) от 11.03.2024
-
-NoteList 4 v.4.3.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113693.jpg" />
-</div>
-
-
-###  Подробнее
-
-NoteList - это многоформатный сборщик заметок, в котором вы можете сохранять заметки в текстовом или RTF-формате с включенными изображениями.
-Вы даже можете скопировать и вставить веб-сайт из сафари, и они будут сохранены как rtf со встроенными изображениями.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2634840660EF2839E8A9FEFBA4F30C613C57D41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705974   (113694) от 11.03.2024
-
-Algebra - Pulse? (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ego Destroyed
-02. Inner Constraints
-03. Addicted To Authority
-04. Digital Master(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37D5327FE9CA86C2BEAAF6861FA5EDD563CC8FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706206   (113695) от 11.03.2024
-
-GarageSale 9.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2023 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3E670F9A44E3F42761981DCAB9FF99A599A14A
 ```
 
 

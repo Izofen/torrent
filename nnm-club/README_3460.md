@@ -1,3 +1,185 @@
+###  Публикация: 1720334   (110321) от 03.05.2024
+
+Сергей Соловьёв | История России с древнейших времен (Том 17, 18) (2014) [MP3, Юрий Заборовский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый труд великого русского историка Сергея Михайловича Соловьева (1820-1879) является крупнейшим достижением русской исторической науки XIX в. Соловьев - "первый среди равных" в плеяде блестящих русских историков, в которую входят Н. Карамзин, В. Ключевский, Н. Костомаров, А. Пресняков, Т. Грановский, С. Платонов и многие другие.
+Семнадцатый том (   Читать дальше...   )Жанр: ИсторияИздательство: Нигде не купишьПродолжительность: 40:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF92FAF21C73F6C6CF55441B59F888209BEC16A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720373   (110322) от 03.05.2024
+
+VA - Trance In Motion Vol.375 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary McPhail - The Big Babushka - My Everything (Extended Mix)
+02. Armin van Buuren & GRYFFIN - What Took You So Long (Extended Mix)
+03. Craig Connelly - Perseverance (Extended Mix)
+04. Angelus - Deus Volente (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56372F29BC275DC4A0F8CC77B4F9EF143519F58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720473   (110323) от 03.05.2024
+
+The Future Sound Of London - ISDN (30th Anniversary Edition) (2024) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Ambient, Experimental, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just A Fuckin' Idiot [00:05:45]
+02. The Far Out Son Of Lung And The Ramblings Of A Madman [00:04:08]
+03. Appendage [00:02:36]
+04. Slider [00:07:22](   Читать дальше...   )Жанр: Ambient, Experimental, Modern ClassicalПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A221855E74075E81E9E6E8924CBB6F63AB48ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720299   (110324) от 03.05.2024
+
+Icecream PDF Editor Pro 3.23 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75242E456471823DB4A121AE9B9190F3FBE37255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720488   (110325) от 03.05.2024
+
+VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juantxo Munoz & Robric & Tibetania - Desert Moon (Original Mix) (6:42)
+02. DJ Arte & Alsur & Tibetania feat. DJ Mell - Eunoia (Original Mix) (5:07)
+03. Juantxo Munoz & Robric & Tibetania - Oman (Original Mix) (6:22)
+04. Indiano & Tibetania - White Love (Original Mix) (7:18)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD09ABE447896D9B65E5D806A2DA0214451CD84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720371   (110326) от 03.05.2024
+
+VA - Trance In Motion Vol.374 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelus - Knock (Extended Mix)
+02. Adam Reece - Zion (Extended Mix)
+03. TH3 ONE - Horizon (Extended)
+04. 0Gravity - Another Dimension (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02DA37433EAE1821E85C3C6CFE81A75002B78B64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720483   (110327) от 03.05.2024
+
+InnoExtractor Ultra 7.3.2.535 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110327.jpg" />
+</div>
+
+
+###  Подробнее
+
+InnoExtractor - это мощное приложение, которое поможет вам распаковать инсталляторы Inno Setup, используя технологию InnoUnp.
+С помощью InnoExtractor вы можете изучить внутреннюю структуру и содержимое программы установки, а также извлечь их в локальную папку или на портативные устройства без необходимости запуска программы установки.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB2A5DC64E6B3727E97F186A44829AF8997976D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719911   (110328) от 03.05.2024
 
 Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (2023) [FLAC|Lossless|tracks] <Uplifting Trance, Progressive Trance>
@@ -456,185 +638,6 @@ Affinity Publisher - программное обеспечение нового 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D9B2830541F6657647CA5D0C92943ABC1F4833
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720465   (110347) от 03.05.2024
-
-Calibre 7.10.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F762285F502D87ADF93CBC5AC19A20FB3C2E2163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720297   (110348) от 03.05.2024
-
-VA - Lounge Sexiest Ladies, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Messengers & Jamaican Reggae Cuts - This Girl (Chill Mix) (03:07)
- 02. Eve St. Jones - Everywhere (03:01)
- 03. Urban Love & Ivette Moraes - Roads (02:52)
- 04. Dinah Eastwood - I Ran (So Far Away) (04:02)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994452252B95F9FEE7F0880D16EDC88D4E97CD54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720463   (110349) от 03.05.2024
-
-MAGIX Samplitude Pro X8 Suite 19.1.3.23431 (x64) Portable by 7997 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Samplitude Pro X – это программное обеспечение для производства музыки, предназначенное в первую очередь для профессионалов в этой области, отвечающее самым высоким требованиям качества при аудиопроизводстве, от первого дубля до финального мастеринга.
-Samplitude Pro X предлагает звукозаписывающим и микширующим инженерам уникальные функции, которые революционизируют (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF06F98041DE223C5EE6D3D6AF20D45DCEBB01C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720296   (110350) от 03.05.2024
-
-Icecream Photo Editor Pro 1.50 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Photo Editor - лучший бесплатный фоторедактор и менеджер фотографий для Windows. С легкостью редактируйте свои фотографии как профессионал: добавляйте текст и изображения, обрезайте и изменяйте размер, добавляйте фильтры, создавайте коллажи и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF36058CEA2F28BD72E41868ECBDC4DA550C1181
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720178   (110351) от 02.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Лос-Анджелес Кингз - Эдмонтон Ойлерз (01.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110351.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 мая 2024, четверг. 05:00 МСК. 1/4 финала - Запад. 5-й матч. Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18 347 зрителей (98% при вместимости 18 641)
-Главный судья: Ти Джей Люксмор (Тимминс, Канада); Главный судья: Горд Дуайер (Галифакс, Канада); Линейный: Либор Суханек (Стод, Чехия); Линейный: Скотт Черри (Дрэйтон, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124F2287F266BBE3D9B4E098621B65C97A37FD3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720112   (110352) от 02.05.2024
-
-Bathym - Into Darkness (1990) Demo, Reissue, 2023, Doomed to Obscurity Records [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Palace of Belial (05:42)
-02. Into Darkness (04:54)
-03. Legion of Hate (04:48)
-04. Congregation of the Dead (04:08)Жанр: Black, Death MetalПродолжительность: 00:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952BD710198AB910FC96C0147ACA1EC21DB5041A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720157   (110353) от 02.05.2024
-
-Rudi Tuesday Band - Before The Petrichor (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Rose In The Desert (4:20)
-02. Leaving The Rain Behind (4:16)
-03. I'm Okay! (3:37)
-04. I Walk Alone (3:41)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51628A464D2B744403BF6CFC6154A70F365040C1
 ```
 
 

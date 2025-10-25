@@ -1,3 +1,27 @@
+###  Публикация: 1728552   (53927) от 08.06.2024
+
+Сплит. Звезда на грани / Hwanyeo / Angry Woman / Wannabe (2024) WEB-DL [H.264/1080p] [звук с TS]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Триумфальное возвращение на экран в прошлом известной актрисы под угрозой, когда она становится свидетелем несчастного случая. Однако может ли она доверять самой себе, ведь в девушке давно копится чувство соперничества и злость на весь мир.Производство: Корея Южная / Joy n CinemaЖанр: триллерРежиссер: Ю Ён-сонАктеры: Пак Чи-ён, Сон Джи-ын, Ким Ну-ри, Ли Джи-хун, Ким Хи-сан, Хан Ын-со, Со Джин-вонПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: Русский, КорейскийСубтитры: ОтсутствуютПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727971   (53928) от 08.06.2024
 
 VA - Biker Blues, Hard Times (2024) vol.1 [MP3|320 Kbps] <Blues, Blues Rock>
@@ -609,31 +633,6 @@ magnet:?xt=urn:btih:48AA0B64278AA2D61581DC560295C76519D8569F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE88745502E312673F022DED411CEB77299DA2D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728813   (53953) от 08.06.2024
-
-Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53953.jpg" />
-</div>
-
-
-###  Подробнее
-
-An essential teacher's companion to an innovative, uniquely visual English-language course, this guide helps English teachers--including those for whom English is not their native language--create clear, focused lesson plans, explain difficult concepts in a simple and concise way, and make language learning exciting, intuitive, and incredibly easy.
-English for Everyone (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A430A4BBA28A9CA39A4DA32DC17D0029ACFC6F
 ```
 
 

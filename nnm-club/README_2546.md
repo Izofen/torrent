@@ -1,3 +1,30 @@
+###  Публикация: 1796609   (66946) от 11.05.2025
+
+Keiko Lee - Voices (2002) Sony Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine [6:17]
+02. Love Dance [5:47]
+03. My Romance [5:13]
+04. I Saw the Light [4:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852AC7A15B04DE651751550E9462334310B808D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796699   (66947) от 11.05.2025
 
 Fairy Tail Gaiden | Хвост Феи - Гайден (2015) [3 части, 53 главы] [Манга] [Русский] [PNG, JPG] [Complete]
@@ -642,30 +669,6 @@ Evan Christopher - Django a la Creole (2008) Lejazzetal [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C3755DF1C3718146D6A12DD0CE2CD256F375343
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796465   (66972) от 10.05.2025
-
-MotoGP. Этап 06 из 22. Гран-при Франции. Квалификация (10.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66972.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 мая 2025 суббота, 11:50 МСК. Этап 6 Ле Ман. Гран-при Франции. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5015A5141C5E99361F2E0FB57FDD66B6A9409731
 ```
 
 

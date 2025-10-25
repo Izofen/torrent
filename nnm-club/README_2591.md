@@ -1,3 +1,27 @@
+###  Публикация: 1790324   (68116) от 08.04.2025
+
+FolderSizes 9.7.517 Enterprise [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68116.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью программы FolderSizes вы сможете определить количество свободного места на жестком диске. FolderSizes предоставляет подробную информацию о размере папок и файлов по каждому разделу жесткого диска. Кроме этого, программа использует диаграммы для наглядности. Используя данный программный продукт, вы сможете найти файлы, удаление которых позволит освободить (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436CE26F23086FD85CF81EFC3A603681F9C320D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790240   (68117) от 08.04.2025
 
 Лиана Алавердова | Пережить утрату близкого человека: как помочь себе и другим (2024) [MP3, Светлана Селивёрстова]
@@ -621,33 +645,6 @@ VA - Nothing But... Trancetopia, Vol. 24 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0E1726FC1C9BBF591A8FE376B83FB7345774D87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789993   (68142) от 07.04.2025
-
-Markus Schulz - Global DJ Broadcast World Tour, MAD Club Wynwood Miami (2025-04-04) [MP3|320 Kbps] <Trance, Techno, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Layton Giordani x Tiga x Audion - Let's Go Dancing
-02. Kölsch & Kevin de Vries - Gate
-03. Markus Schulz presents Dakota - Manray
-04. Ramon Tapia - Last Step(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E23340C4C0C5CFCEA4F887EC7D4FE087C09222C
 ```
 
 

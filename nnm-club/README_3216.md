@@ -1,3 +1,213 @@
+###  Публикация: 1752240   (103967) от 29.09.2024
+
+Jade Macrae - In My Veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of Sight (3:49)
+02. Rose Coloured Glasses (4:13)
+03. A Little Joy (5:10)
+04. Early In The Morning (5:30)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B610A31947DE725F151DFA982970E623EF3DC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752006   (103968) от 28.09.2024
+
+Brant Bjork Trio & Brant Bjork - Once Upon A Time In The Desert (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U.R. Free (4:47)
+02. Backin' The Daze (3:42)
+03. Higher Lows (3:57)
+04. Down The Mountain (4:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D7F4F499A82F92BC4707ED3E7107B7816B5699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752070   (103969) от 28.09.2024
+
+MotoGP. Этап 15 из 20. Гран-при Индонезии. Квалификация (28.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103969.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 сентября 2024, суббота. 05:50 МСК Этап 18 Мандалика. Гран-при Индонезии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C62D025E12AF052DB9310B82A935A7961C6DA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751994   (103970) от 28.09.2024
+
+Albert Bover - A Parisian Affair (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Douce amertume (5:10)
+02. Sol en Vigo (4:18)
+03. O Castro (5:38)
+04. Cyclic Episode (4:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE38E8E9078EF84D858D91070CB5F867382100D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751987   (103971) от 28.09.2024
+
+Пятеро на одного (28.09.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DA24E31D3F8D4AE56D04B42D0CC58F6C56085F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752033   (103972) от 28.09.2024
+
+Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Lossless|image + .cue] <Slamming Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collapse 2:05
+02. Spatial Deformation 3:20
+03. Extraterrestrial Paradox 3:20
+04. Absolute Elimination of Existence 3:07(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751851   (103973) от 28.09.2024
+
+Sonny Stitt & Don Patterson - The Boss Men (1965) 2001, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All God's Chillun Got Rhythm [3:50]
+02. Answering Service [4:44]
+03. Tangerine [5:30]
+04. Night Crawler [5:54](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB38E871F9FE8ECBC6BE168A526759633DB625D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751920   (103974) от 28.09.2024
+
+Fred Hersch - Silent, Listening (2024) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star-Crossed Lovers [3:58]
+02. Night Tide Light [3:28]
+03. Akrasia [4:15]
+04. Silent, Listening [3:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F492CF8479E7DE9772C71BB57726728C4AEABE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752011   (103975) от 28.09.2024
 
 El Poder de la Infancia - El Poder de la Infancia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -461,216 +671,6 @@ VA - Vocal Anthems Amsterdam (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B30D0AAEF1B064A0A3BAD3E45B6D980B5E1A94E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752027   (103993) от 28.09.2024
-
-VA - Free To Dance, Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ENSIEL - With U (02:25)
-02. A-Park & DJ Polique - For You (Extended Mix) (03:16)
-03. Chris Simmons - My Heart (04:15)
-04. Narra - Bodyrock (04:52)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C786F6A2A74115DCCE6E1DA55B900383C380110A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752068   (103994) от 28.09.2024
-
-Van Morrison - New Arrangements And Duets (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain’t Gonna Moan No More (feat. Kurt Elling)
-02. Broken Record (feat. Kurt Elling)
-03. Avalon Of The Heart
-04. Close Enough For Jazz (feat. Curtis Stigers)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A3C6A1B3F13B246A0CE95ACAD88A1B5AA41022
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752134   (103995) от 28.09.2024
-
-Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hordes Of Chaos (A Necrologue For The Elite)
-02. War Curse
-03. Escalation
-04. Amok Run(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D80331D39C286292C6D5754E137676E48667D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752010   (103996) от 28.09.2024
-
-Серцелев - Молитвы. Заклинания. Гимны. (2024) [MP3|320 Kbps] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103996.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Завтра не будет
-2. На ручки
-3. Фитовать всю жизнь
-4. Отвлеки(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876395213A83F03DB862241E79B0BAE85A0DD21A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752106   (103997) от 28.09.2024
-
-Поедем, поедим! Карелия: горный парк Рускеала, ретропоезд и 3 блюда из одной форели (28.09.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди побывал в Карелии! Ведущий прокатился на ретропоезде, посетил горный парк Рускеала, нашел свою карельскую бабушку, сходил на гастросмотрины, ознакомился с карельской кухней и приготовил три блюда из одной форели.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911756A5DB6F328D94B478715066F8EFA45DF87F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752053   (103998) от 28.09.2024
-
-Frank Sinatra - Frank Sinatra: Legend (1998) Hey Presto! [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Surrey With The Fringe On Top [2:20]
-02. The Devil And The Deep Blue Sea [2:12]
-03. That Old Black Magic [2:26]
-04. I Don't believe In Rumours [2:44](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6D3FDEE5531D70E772FE0A8C3F9F6E51A84360
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752095   (103999) от 28.09.2024
-
-VA - Redux Selection Vol. 10 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryn Whiting - See The Sign (Extended Mix) [7:33]
-02. Andre Wildenhues - Oceans Symphony (Extended Mix) [7:11]
-03. STNX - Destruction (Extended Mix) [6:35]
-04. Vapour Trail - The Furthest Sense (Extended Mix) [7:05](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FE00A47D621803B6C4694EEE252AA7568875FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752102   (104000) от 28.09.2024
-
-MotoGP. Этап 15 из 20. Гран-при Индонезии. Спринт (28.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104000.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 сентября 2024, суббота. 10:00 МСК Этап 18 Мандалика. Гран-при Индонезии. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE68E9088B4DE94DB212A22C74FE0430BFA98DCB
 ```
 
 

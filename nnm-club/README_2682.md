@@ -1,3 +1,30 @@
+###  Публикация: 1780181   (70482) от 17.02.2025
+
+The Creaking Floorboards - They're Waiting out of Sight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eat That! (3:30)
+02.  Intentions (3:52)
+03.  Cougar (3:39)
+04.  Good to Be King (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3408F3EEA6BE6790CEA473C896EAA6FD9B9CBD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780200   (70483) от 17.02.2025
 
 Blues Prescription - The Late Night Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -663,33 +690,6 @@ magnet:?xt=urn:btih:C57B795EC333959A16BAC28D6BD9F11992C89BC8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0598ABE58729DB80D7732C7B0A376414E84A1A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780029   (70508) от 16.02.2025
-
-The Phil Woods Quintet - Mile High Jazz: Live In Denver (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for K.B. [10:40]
-02. Song for Sass [12:30]
-03. Harlem Nocturne [10:27]
-04. Godchild [7:12](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CF40EBE14BB05835F31E84331F1AE5C563B3EC
 ```
 
 

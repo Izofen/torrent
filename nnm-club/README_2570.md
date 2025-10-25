@@ -1,3 +1,30 @@
+###  Публикация: 1792932   (67570) от 22.04.2025
+
+Dhune - Agony Tool (2025) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Dirt [00:03:47]
+02. Bite Me [00:05:02]
+03. We'll Disappear [00:04:09]
+04. Agony Tool [00:04:57](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDB066C486C17708E06FDC7707FEDD1BA9ACB3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792533   (67571) от 20.04.2025
 
 Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
@@ -647,33 +674,6 @@ Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mai
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDD0E3ACD4295D43439576FFB701197C01755694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792395   (67596) от 20.04.2025
-
-Ори!Зона! - 20 лет спустя (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Суета [00:03:00]
-02 - Оглянись [00:03:12]
-03 - Мой друг [00:02:44]
-04 - Я живу, и горю лишь тобой [00:02:57](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB489702C4C195C28558BF1DA2B002E2B44468B
 ```
 
 

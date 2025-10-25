@@ -1,3 +1,85 @@
+###  Публикация: 483291   (100018) от 19.04.2012
+
+VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aquatica — Angels 08:20
+02. Bizzare Contact Phanatic And Electro Sun — Out Of Your Love (Sesto Sento remix) 07:47
+03. Sesto Sento And Space Cat — Getting High Power (Cosmic Tone remix) 08:15
+04. U_Recken — The Other Side (Visual Paradox edit) 06:52
+05. System Nipel — Psytronic 07:05
+06. Psynina — Sound Of Reality 07:04
+07. Aquatica And Ultravoice — Diamond Sky (Indra remix) 07:22
+08. Sesto Sento — Getting Fused (Silicon Sound remix) 07:32
+09. Visual Paradox And Cosmic Tone — Stop The Beat (Twina remix) 06:35
+10. Ultravoice — Dark Side (Psynina remix) 09:292012Жанр: Trance, Psy Trance, Full OnПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484984   (100022) от 19.04.2012
+
+Величайшие автомобили: Land Rover / Great Cars: Land Rover (2004) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тяга к приключениям, не угасающая жажда исследовать неизвестное, побывать там где еще не ступала нога человека, первым достичь вершины или пересечь континент - именно это стремление стало причиной сухопутных экспедиций, которые прославили Land Rover. Именно оно спровоцировало появление целого семейства автомобилей этой марки.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041862CC662F6048FE1F51675F106E26C0121A11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483944   (100024) от 19.04.2012
+
+Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It
+ 02. WhitewashЖанр: Stoner Noise RockПродолжительность: 0:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485101   (100025) от 19.04.2012
 
 [Wallpapers]HQ Color HD Amazing Wallpapers
@@ -605,82 +687,6 @@ Mixed Wallpapers 0.8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDD6F19F5FF780DFE2D6EB2E1DB80E9CC8EA46DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485638   (100100) от 21.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D731611FCCA882AC8713791F93686B41BA4078B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485635   (100102) от 21.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29D6C787DB0320228B9AF50F01D0A56DC1CEDC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486232   (100103) от 21.04.2012
-
-[Wallpapers]45 Wonderful Planes
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100103.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]45 Wonderful Planes
-Название: 45 Wonderful Planes
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpegВремя раздачи: до 5 скачавших
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6016503E29F8C4981DAB037E4CFEFAE3E8797625
 ```
 
 

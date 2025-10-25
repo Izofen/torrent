@@ -1,3 +1,192 @@
+###  Публикация: 1709636   (112779) от 25.03.2024
+
+Эдит Несбит | Сказки о Драконах. Ловцы Драконов (2005) [MP3, Галина Бахарева и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Мой котёнок».
+Эдит Несбит (1858–1924) – британская писательница, автор более 60 стихотворений, рассказов и произведений для детей.
+Пересказ по мотивам книг Эдит Несбит. Постановка Галины Бахаревой.
+Когда-то на Земле жили доблестные рыцари, огнедышащие драконы, огромные великаны и прекрасные принцессы. Замечательные были времена. Об этих временах и рассказывает (   Читать дальше...   )Жанр: Зарубежная литература для детей, музыкальная сказкаИздательство: Музыкальное издательство «Три белых кошки»Продолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EFA5F01D3BE5F79813EA92AD98A15E7DD99A8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709622   (112780) от 25.03.2024
+
+Wynton Marsalis Septet - Citi Movement (1993) 2CD, Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End [3:05]
+02. The Legend of Buddy Bolden [4:44]
+03. Swingdown, Swingtown [9:00]
+04. Highrise Riff (1, 2, 3, 4) [7:04](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 02:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CA80F84A6CD2964A7C829E3E425E40149D8522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709761   (112781) от 25.03.2024
+
+Night Crowned - Tales (2023) [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Namnlosa (05:36)
+02. She Comes At Night (05:04)
+03. Nattramn (04:51)
+04. Loviatar (06:17)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7948A9C79BAB904FEFF5D396CAC88F69F283A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709576   (112782) от 25.03.2024
+
+Hellfueled - Volume One (2004) Reissue, 2005, Art Music Group [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Out (03:40)
+02. Midnight Lady (04:24)
+03. Second Deal (03:17)
+04. Someone Lives Inside (03:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06772F6E2ED693DDCB71879997B7A2985E047A98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709642   (112783) от 25.03.2024
+
+Hellfueled - Emission of Sins (2009) [APE|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Angels Die
+02. Am I Blind
+03. I Am The Crucifix
+04. A Remission Of My Sins(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02C5BEBC5C77F8711D13D258BBE09685EBC3B82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709619   (112784) от 25.03.2024
+
+Hellfueled - Born II Rock (2005) Reissue, 2006, Art Music Group [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Enough (04:07)
+02. Regain Your Crown (03:06)
+03. Look Out (03:37)
+04. Friend (03:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1461359D1E46E6F24C3766480753A8F4913006E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709756   (112785) от 25.03.2024
+
+Night Crowned - Hadanfard (2021) [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nattkront (04:33)
+02. Rex Tenebrae (05:55)
+03. Fjattrad (05:48)
+04. Ett Gravfast Ode (04:28)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDE81228F4CC80DB3622B4C6BE661EE85F70B94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709744   (112786) от 25.03.2024
 
 Night Crowned - Impius Viam (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death Metal>
@@ -487,195 +676,6 @@ Sons of Morpheus - Fruits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE484285BC978B77505A0E3700960D3E7D06FE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709422   (112805) от 24.03.2024
-
-Astral Gray - The Past Is In The Way (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Year Of The Clown [00:03:37]
-02. Chivalry's Death [00:04:32]
-03. We Can't Lose What We Never Had [00:03:28]
-04. Wisdom From a Madame [00:03:33](   Читать дальше...   )Жанр: Progressive, Psychedelic RockПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D38DEB1A6495032C6D7A1E5FE8D86585101397
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709363   (112806) от 24.03.2024
-
-Michael van Merwyk - Blues Everywhere I Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Everywhere I Go (4:50)
-02. I Never Really Thought About Evil (4:47)
-03. Raise Your Voice (7:18)
-04. Cool Down (2:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C9810BB517AF101B49C4155293C5A04E2CF77F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709297   (112807) от 24.03.2024
-
-Buddy Rich - Giant Steps (1977) 2000, Point Entertainment [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment's Notice [5:30]
-02. Giant Steps [5:36]
-03. Buddy's Cherokee [7:31]
-04. Take the A Train [6:17](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC82696E37C0B5131D1879C70799B28F82AD759
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709298   (112808) от 24.03.2024
-
-Syd Lawrence And His Orchestra - The Big Sound Of Syd Lawrence And His Orchestra: 21 Big Band Favourites (1989) Pickwick Compact Discs [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big B ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Favourite Things [3:04]
-02. The Very Thought Of You [4:37]
-03. I'll Be Seeing You [3:17]
-04. There, I've Said It Again [3:07](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A98166353610DFABD1456F4DF975DD2BEF5943D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709296   (112809) от 24.03.2024
-
-Django Reinhardt - And His American Friends Complete Sessions (1934 - 1947) 4CD, 2000, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At the Jimmy's Bar [2:52]
-02. How High the Moon [2:23]
-03. If Dreams Came True [2:55]
-04. Hallelujah [3:01](   Читать дальше...   )Жанр: SwingПродолжительность: 05:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66A672F99CDCF175D96E86427A2CDE0671137B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709403   (112810) от 24.03.2024
-
-Bodyfarm - Malicious Ecstasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112810.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Retaliate
-2. Pervitin
-3. Onward Doomsday
-4. Gates Of Malignancy(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3F2DBDB6E781F7D5E2F3818973E012A946C114
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709208   (112811) от 24.03.2024
-
-Clarion Void - Failure in Repetition (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repetition I [00:00:58]
-02. Through Chaos We Succeed [00:03:10]
-03. Sisyphus Wept [00:04:29]
-04. This Is the Water [00:04:36](   Читать дальше...   )Жанр: Black Metal, Death Metal, Doom MetalПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2C85F3076B0144CB3E14236D097008422B1459
 ```
 
 

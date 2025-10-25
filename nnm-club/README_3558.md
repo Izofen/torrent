@@ -1,3 +1,182 @@
+###  Публикация: 1709133   (112883) от 23.03.2024
+
+Sleeping Well - Wisdom Of The Ages (2024) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Golden Dawn (14:14)
+ 02 - Chronicles Of Pyropolis (08:11)
+ 03 - Of Beggars & Kings (04:56)
+ 04 - Horus (07:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF82E38E4E5A081A0F8CC7603F4CAAB0DAD4F139
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709058   (112884) от 23.03.2024
+
+Boris Tolstobokov - Quantum Satis (1988) 2023, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Imagination [19:28]
+02. Game In Beads [30:57]Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7BD7B1DDF6320FB4C11DD7CC55E89DFC5E0684
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709148   (112885) от 23.03.2024
+
+Holler - Reborn (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Believe
+02. I Don't Want
+03. Music Is The One
+04. Into Me Forever(   Читать дальше...   )Жанр: AORПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1776BABC7E5963655B4049E8EDBEC6D6AB974B2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709163   (112886) от 23.03.2024
+
+Своя игра (23.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112886.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D269C6076FBED96093BC08E7E76FB47DA68C7560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709044   (112887) от 23.03.2024
+
+Cookie 7.2.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 12.0 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3801225D0134B88EFB504C82BB43E1B707ACD372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709052   (112888) от 23.03.2024
+
+Брайан Трейси | Наука денег (2018) [MP3, Алексей Мужицкий]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новинка 2018 года от бизнес-спикера мирового уровня Брайана Трейси уже помогла тысячам людей достичь процветания! Тема денег во все времена и везде остается одной из самых спорных, увлекательных, исследуемых, эмоциональных и заставляющих думать. Деньги всегда на пике интереса. Но вокруг финансов столько дезинформации, что порой мы еще больше запутываемся в своих (   Читать дальше...   )Жанр: БизнесИздательство: AB PublishingПродолжительность: 05:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586410CC0EA9D2FE9FE898B160239EB958065692
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709089   (112889) от 23.03.2024
+
+Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agent Of Liberty (Nik Z. WC Remix)
+4:56
+02. Lady Ecstasy (Extended Version) 5:32
+03. Love Spy (Night Mix) 8:40(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A292C14F7DCA7575F0939424D8D3676B9F6AF79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709093   (112890) от 23.03.2024
 
 Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
@@ -486,192 +665,6 @@ Aktarum - Gang Of Trolls (2010) [FLAC|Lossless|image + .cue] <Black Metal, Folk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C50453DBCD30B588F926D3DDB137D89DADF82DEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708813   (112909) от 22.03.2024
-
-Celso Salim & Darryl Carriere - About Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BBQ (4:36)
-02. Sweet Thing (4:34)
-03. Please Stop (4:52)
-04. In Your Arms (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DB15EE42AE590D8EDF89422611F5A5B849589B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708817   (112910) от 22.03.2024
-
-I Shot A Man - Dues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arnold Wolf (3:54)
-02. Moanin' At Midnight (2:44)
-03. Contemplation Blues (4:34)
-04. Desert Room (4:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0A602984716877B67205258A14F832B0653A3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708848   (112911) от 22.03.2024
-
-Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready?
-02. Love Hungry
-03. Burning Up
-04. The Fight Goes On(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25F32133441C14161B96E23F78C7A37EB878476
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708935   (112912) от 22.03.2024
-
-Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112912.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Weakling Avenger
-A2 Raining Murder
-A3 Sin Origin
-B1 Command(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DFD1F23E84D899651C9087B7FFCD79906F3681
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708699   (112913) от 22.03.2024
-
-Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112913.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lifeless
-A2 The Beast
-A3 The Claws Of Time
-B1 Across The Vacuum(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE5232675FD56D4512611FFD5A3418E6FDB0590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708779   (112914) от 22.03.2024
-
-Lords Of Black - Mechanics Of Predacity (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For What Is Owed To Us
-02. Let The Nightmare Come
-03. I Want The Darkness To Stop
-04. Let It Burn(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC1DAEDC25E34FC592748BEFC2913945FB388A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708929   (112915) от 22.03.2024
-
-AMD Radeon Software Adrenalin Edition 24.1.1 WHQL (GCN 4/5 - Polaris/Vega) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112915.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMD Radeon Software Adrenalin Edition представляет собой новое, современное и полностью переработанное приложение, предоставляющее пользователям полный контроль над графикой Radeon, игровыми функциями и настройками, стриминговыми сервисами и многим другим. Геймеры могут получить доступ ко всем функциям ПО прямо в игре, пользуясь таким же интерфейсом, который доступен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F425E53E6CEB21624EA2CBF35BC4EA423721CDC6
 ```
 
 

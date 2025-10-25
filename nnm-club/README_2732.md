@@ -1,3 +1,30 @@
+###  Публикация: 1772687   (71782) от 11.01.2025
+
+BlackSun - Karma Somnium (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karma Somnium 02:35
+02. Last Chapter 04:23
+03. Mirror 04:34
+04. Warrior's Fate 06:40(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FB3C83E3C67531554DE609BBBCCD8455C861F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772574   (71783) от 11.01.2025
 
 Михаил Ульянов | Приворотное зелье (2003) [MP3, Вячеслав Герасимов]
@@ -648,33 +675,6 @@ magnet:?xt=urn:btih:5708763E06A1A105D4D50D458953AA70364F1FC3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EF4BDFC2A386A211226C192A48BDCA3548DB206
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771855   (71808) от 08.01.2025
-
-VA - Disco Down The Best of 2022 (2022) [MP3|320 Kbps] <House, Nu-Disco, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FLIP-DA-FUNK - Real Love (05:10)
-02. Chemars - Infatuation (05:42)
-03. Corrado Alunni - The Feeling (05:09)
-04. Mike Chenery - True (05:26)(   Читать дальше...   )Жанр: House, Nu-Disco, ElectroПродолжительность: 09:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E8DFE3BAB0A71F37EB687D6BE4158887D0794A
 ```
 
 

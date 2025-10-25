@@ -1,3 +1,93 @@
+###  Публикация: 477392   (98483) от 03.04.2012
+
+VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Molla & Marquis - Self Control (Radio Edit)
+02. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri Feat. Mat Twice - Tell Me Waf
+03. Example - Changed The Way You Kiss Me (Mike Candys Remix)
+04. Armin Van Buuren Pres. Gaia - Stellar (Original Mix Edit)
+05. Scooter Feat. Vicky Leandros - C'est Bleu
+06. Lady Gaga - Marry The Night (David Jost Twin Remix)
+07. Basto! - Again And Again (Bassanova And Moradzo Remix)
+08. Dj Smash & Chinkong - Lifemission (Radio Edit)
+09. Dj Rynno And Sylvia - Feel In Love (Radio Edit)
+10. Alexandra Stan - Crazy (Nir Ozer Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB65284B810A5697469B4B5282DD1C29CEBBFC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476579   (98484) от 03.04.2012
+
+Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Grindcore / Goregrind / Death'Roll>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Nota Maron
+ 02. Fecal Deluxe Party
+ 03. El Modelo Shitman
+ 04. Lord Of The Gas
+ 05. Las Tías Buenas No Cagan
+ 06. Cagando En Arguelles
+ 07. Coprovoyeur
+ 08. Vejado Por Gordas Deprvadas
+ 09. Salcedo's Adventure
+ 10. Coprosicion Incedente(   Читать дальше...   )2011Жанр: Grindcore / Goregrind / Death'RollПродолжительность: 00:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477167   (98485) от 03.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (02.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477185   (98486) от 03.04.2012
 
 [Wallpapers] Computer Desktop Wallpapers Collection (03.04.12)
@@ -640,96 +730,6 @@ VA - Муз-прорыв Record 50/50 (2012) [MP3|160-320 кб/с]<Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2055BB29F673634A6ECF985EB5C554FA523E402E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477456   (98534) от 04.04.2012
-
-Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tears Of Horizon (Breaking Dawn Mix) (02:23)
-02.The Rising Of a New Day (Original Mix) (09:07)
-03.Water (Original Mix) (05:13)
-04.Norther Lights (Extended Mix) (06:06)
-05.Falling Stars 9.0 (Radio Edit) (03:52)
-06.Nature 2.0 (Extended Mix) (09:04)
-07.No Silence (DNA Revolutions Remix) (08:28)
-08.When The Rain Falls (Original Mix) (03:52)
-09.The Beauty Of Life (Extended Mix) (09:28)
-10.Beach Breeze (Original Mix) (03:59)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7F934A86F61CED6E7986E701419837A3726C6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477831   (98537) от 04.04.2012
-
-ChipaChip - Постоянство (2012) [MP3|320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Из города с улицей Лизюкова
-02. Про растения (ft. PlaZo)
-03. Где-то вдали
-04. Очередь вникуда (ft. Sandz)
-05. Дай мне драпа
-06. Это уже где-то было (Скит)
-07. Сентябрь (ft. Серёжа Внатуре, Филя Файя, parachute)
-08. Постоянство
-09. Заморочки (ft. Артём Татищевский, Ворошиловский андеграунд)
-10. Пути назад нет (Скит)(   Читать дальше...   )2012Жанр: RapПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA592F2771A11B2AF1B082ADC0D7C954E58DCDCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477877   (98538) от 04.04.2012
-
-Журнал | Просто. Вкусно № 3 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто любит вкусно готовить. «ПРОСТО. ВКУСНО» создает особенное настроение: кухня превращается в гастрономическую лабораторию, где происходят удивительные открытия. «ПРОСТО. ВКУСНО» — это кулинарный журнал, который помогает повысить качество жизни простыми и доступными способами.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DECC99E074758277BEF3E5EFC8318C5BAE9CC7A
 ```
 
 

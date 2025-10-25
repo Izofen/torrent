@@ -1,3 +1,28 @@
+###  Публикация: 471447   (83443) от 21.03.2012
+
+Победить рак. Серия №2 (2012.03.21) SATRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это фильм о надежде, вере и борьбе за исцеление многих людей с главной болезнью современности — раком. Он призван возродить надежду у уже отчаявшихся выздороветь и убедить их в том, что с этим возможно не просто жить, а жить хорошо!
+  Катерина Гордеева расскажет в своем проекте о том, что этого диагноза не нужно бояться, с ним необходимо бороться и его реально победить!Жанр: ТелепередачаПродолжительность: ~ 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3548BB41DF192615C7B563C6BEAFE73FC69666DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470637   (83449) от 21.03.2012
 
 Richard Harvey — Арабские ночи [Арабские приключения] / Arabian Nights (2000) [MP3|320 кб/с]<OST>
@@ -659,39 +684,6 @@ magnet:?xt=urn:btih:08FF4D0D63D2BCD3B47BE633C1ACAEA9734CA81D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F011B08FA993F7A9200BCAF52A902DCFC7A4C19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471128   (83494) от 21.03.2012
-
-VA - Romantic Collection - Ballads about love (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julio Iglesias - Nostalgie
-02. Fausto Papetti - Windmilles Of Tour Mired
-03. Foreigner - Waiting For A Girl Like You
-04. Overkill - Girl, You`ll Be A Woman Soon
-05. Tony Braxton - Un Break My Heart
-06. Abba - The Winner Takes It All
-07. Cris norman - Some Hearts are Diamonds
-08. Rolling stones - Angie
-09. Sting - Fragile
-10. James Last - Lonesome Shepherd(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C8A2EB588B6372BD7F8D62CEAD69CD1B9C4286
 ```
 
 

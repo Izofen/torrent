@@ -1,3 +1,185 @@
+###  Публикация: 1727162   (108579) от 01.06.2024
+
+Snakeskin - Tunes For My Santimea (2016) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le seul vrai
+02. Moonlightfire
+03. Alive
+04. Santimea(   Читать дальше...   )Жанр: Industrial, Gothic MetalПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B2A5BC0F5B2653BBFCAF2292EF7DB1EC7FC205
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727236   (108580) от 01.06.2024
+
+VA - DJ Hits Vol. 19 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Circle - Games People Play (Radio Edit)
+02. Dr. Alban - Let The Beat Goes On (Short Version)
+03. Hit'n'Run - Jump '94 (Short Radio)
+04. Double Trouble - I Swear (Single Version)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792C2D36B95EE3B9831DAD1152C78553A50E9336
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557726   (108581) от 01.06.2024
+
+Bolu2 Death - OBRAVIVA, Vol. 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal, Flamencore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flores (4:12)
+02. Dystopia (3:53)
+03. Donde Acaba El Mar (3:46)
+04. Go Away (3:57)(   Читать дальше...   )Жанр: Metalcore, Nu-Metal, FlamencoreПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C49EC5E1B6F0BD193919FDC182874E64AF380C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727184   (108582) от 01.06.2024
+
+VA - The Deep Collective: Melodic Haze (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaiotto & M-Sol DEEP - Amor Del Mar (Original Mix) (7:52)
+02. MeckaMacke & M-Sol DEEP - Last Impression (Original Mix) (8:28)
+03. Eigenart & M-Sol DEEP - Dreaming Of You (Original Mix) (6:52)
+04. Koala & Darles Flow & M-Sol DEEP - I Feel You (Original Mix) (6:43)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9F504DFCD1DCED6CA247B1BA54D3F262CEE0C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727286   (108583) от 01.06.2024
+
+Telegram Desktop 5.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFF812C05FBB699CB22E7988246692040AC1385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727147   (108584) от 01.06.2024
+
+OfficeSuite Pro + PDF v14.5.52368 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108584.jpg" />
+</div>
+
+
+###  Подробнее
+
+OfficeSuite Pro + PDF - это полнофункциональный офисный пакет для Android. Данное приложение позволит Вам создавать, редактировать и просматривать файлы в формате MS Word и Excel, а также просматривать документы PDF и презентации PowerPoint. При помощи OfficeSuite Professional Вы сможете просмотреть вложения к письмам в таком же виде, как и на ПК. Или даже создать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 30.05.2024Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE171AE1CD91693F409475C7E15EF6023FD66CB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727307   (108585) от 01.06.2024
+
+Архимандрит Софроний (Сахаров) | Видеть Бога как Он есть (1997) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108585.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге я останавливаюсь вниманием на описании части ниспосланных мне опытов. Однако, параллельно с этим, считаю важным упомянуть, что весь ход моей жизни в Боге привел меня к убеждению, что всякое отклонение нашего умного сознания от правильного разумения Откровения неизбежно отразится на проявлениях нашего духа в повседневности. Иными словами: истинно праведная (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0789544F6C84D44F23FA0A724DBDBF6A66D1F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727070   (108586) от 01.06.2024
 
 VA - DJ Hits Volume 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
@@ -480,188 +662,6 @@ magnet:?xt=urn:btih:DA5A09891E6E02496C4CD948C20482B5E79C0DDE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1133E4CE8F1A8D3208224846EFC7259F599AB96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726998   (108605) от 01.06.2024
-
-Image Uploader 1.4.1 Build 5153 Nightly + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image Uploader - бесплатная программа для Windows c открытым исходным кодом, предназначенная для загрузки изображений, фотографий, кадров из видео в интернет. Для хранения файлов программа использует несколько десятков общедоступных хостингов изображений и файлов. При этом программа автоматически генерирует миниатюры желаемого размера, масштабирует изображения, по (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE65A4FA339010BBD0D84DF78D4165D278F8259F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727205   (108606) от 01.06.2024
-
-Главная дорога (01.06.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поток воды из-под земли против «Нивы» в Самаре, иномарка в пекарне Перми и невозмутимая пенсионерка на питерской КАД.
- Дети развлекаются — платят родители: мальчики в седанчике и девочки на скутерах — чем заканчиваются для семей недетские покатушки?
- Проверить давление у себя и в колесах: когда пора ехать к доктору и на шиномонтаж? Уникальные испытания шин. Какие сгорят (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AAF845254018A7FD3208F93AB93E3473ED5ABF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727276   (108607) от 01.06.2024
-
-Bad Omens - Concrete Jungle (2024) The OST [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C:\Projects\CJOST\BEATDEATH
-02. V.A.N
-03. THE DRAIN
-04. TERMS & CONDITIONS(   Читать дальше...   )Жанр: Metalcore, Alternative Metal, Alternative RockПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D93C6468550E3069C33E8A78BA04518DCA1001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727264   (108608) от 01.06.2024
-
-По Самарканду (1930) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108608.jpg" />
-</div>
-
-
-###  Подробнее
-
-"По Самарканду" - культурологический документальный фильм, снятый в рамках 3-й фабрики Госкино в 1930 году. Кинолента содержит уникальные кадры, открывающие для зрителя памятники восточной архитектуры и обыденную жизнь горожан.Производство: СССР / ГоскиноЖанр: документальный, видовой, история, немое кино, короткометражныйРежиссер: Константин ГаврюшинЯзык озвучки: немойСубтитры: русские (интертитры)Продолжительность: 00:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B90CEB1B347AAD77F5272B6772E38E0E18BC903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726864   (108609) от 31.05.2024
-
-Lucius - Wildewoman - The New Recordings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wildewoman (00:04:12)
-02 - Turn It Around (00:03:29)
-03 - Go Home (feat. Marcus Mumford) (00:03:28)
-04 - Hey, Doreen (00:04:37)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB4AF29AB0577D10275F207096DA3E33F9BD1BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726810   (108610) от 31.05.2024
-
-Tim Warfield - One For Shirley (2008) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristo Redentor - Calvary [9:44]
-02. Oasis [8:43]
-03. Lullaby for Nijee [6:22]
-04. The Beat Goes On [11:45](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACBEA0FD84D524AC3B7D179A40891BACC9535DA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726918   (108611) от 31.05.2024
-
-David Schumacher - Every Corner (1993) Amosaya Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky in the Park [6:13]
-02. Every Corner [8:09]
-03. The Long Goodbye [7:28]
-04. Just Friends [8:31](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A63455EB16CBAB8BD75A4DFAE512BB15270229
 ```
 
 

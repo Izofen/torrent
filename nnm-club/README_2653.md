@@ -1,3 +1,30 @@
+###  Публикация: 1783918   (69728) от 08.03.2025
+
+Lacrimosa - Lament (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark Wave, Modern Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lament [9:33]
+02 - Ein Sturm zieht auf [7:31]
+03 - Ein langer Weg [7:35]
+04 - Du bist alles was ich will [5:43](   Читать дальше...   )Жанр: Gothic Metal, Dark Wave, Modern ClassicalПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9C0D64C98BE107B7A89178A96EFBDEDF44344C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783969   (69729) от 08.03.2025
 
 Инухико Ёмота | Теория каваии (2018) [PDF]
@@ -644,30 +671,6 @@ magnet:?xt=urn:btih:0F26041E1D03ADCE79ED4F3D5A732C482BCFB3DE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1982C8CDCA131727F3047B7EFA338C60940BD662
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783818   (69754) от 07.03.2025
-
-Шрифты - YouWorkForThem - Calps Font [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calps — это сжатый шрифт без засечек. Непритязательный дизайн, шрифт разработан так, чтобы быть последовательным для таких букв, как a, b, d, q, p, g и C, G, O, Q, создавая единообразие для набора. Каждый угол линии вырезается, чтобы уменьшить ее резкость, добавляя нотку дружелюбия. Если стандартный шрифт недостаточно сжат, есть тонкая вариация, предлагающая более (   Читать дальше...   )Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBCB1B1CBAB792CB4D61163DAE90BE070288A5F0
 ```
 
 

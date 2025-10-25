@@ -1,3 +1,186 @@
+###  Публикация: 1700700   (116991) от 18.02.2024
+
+Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35/dlc) Repack Decepticon
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень неприятно сражаться отдельно от остальных. Сражаться в отдельной версии игры «Казаки: Снова война», напротив, очень приятно. Этот комплект, содержащий в себе все наработки из игр «Казаки: Европейские войны» и «Казаки: Последний довод королей», полностью удовлетворит запросы как старых, так и новых поклонников серии. В этом дополнении вас ждет 100 увлекательных (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: СтратегияЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AF894D82575FC015E3061219401B4A0F787C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387639   (116992) от 18.02.2024
+
+Андрей Усачёв, Сергей Махотин | Как Бабы-Яги сказку спасали (Аудиоспектакль) (2006) [MP3, Олег Табаков и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Усачёв, не будучи в преклонном возрасте, уже стал классиком детской литературы. Он уникален. Усачев общается с детьми на понятном им языке, не придуманном. Таких людей всегда хочется спросить: каким же вы были ребёнком, если вы ТАКОЙ взрослый?... Персонажи его сказок, стихов, рассказов и песен – это всегда дети, хоть и в обличие зверей или сказочных существ. (   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаВ ролях: Олег Табаков, Валентин Гафт, Клара Румянова, Юрий Гальцев, Всеволод Абдулов, Ирина Муравьева, Вера Васильева, Игорь ЛивановПродолжительность: 04:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECE87E7AC2DE9BBC56200872A6BAB2D84847C00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700638   (116993) от 17.02.2024
+
+Atrophy - Violent by Nature (1990) Reissue, 2007, Metal Mind Productions [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puppies And Friends
+02. Violent By Nature
+03. In Their Eyes
+04. Too Late To Change(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296C65BFE30F3BCF9AD7D37DB34F166EF6116610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700550   (116994) от 17.02.2024
+
+Donald Byrd - A New Perspective (1963) 1999, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elijah [9:21]
+02. Beast of Burden [10:08]
+03. Cristo Redentor [5:43]
+04. The Black Disciple [8:12](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4B3AD6FDD3D7170CBB0E681922A8B78713F543
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700303   (116995) от 17.02.2024
+
+Atrophy - Socialized Hate (1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chemical Dependency(04:07)
+02. Killing Machine(03:47)
+03. Matter Of Attitude(03:24)
+04. Preacher, Preacher(04:17)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9B283471A5CB00194D847384A4C3B641D332B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700275   (116996) от 17.02.2024
+
+Atrophy - Chemical Dependency (1987) Demo, Reissue, 2019, VIC Records [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chemical Dependency
+02. Rest In Pieces
+03. Preacher, Preacher
+04. Suicide Pact(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE737EA419D3C10876C5E8414FD92E63AC38B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700650   (116997) от 17.02.2024
+
+Sanz - Let Us Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth-pop, Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Us Die (04:03)
+02. Suck Your Love (04:20)
+03. Follow Me (03:57)
+04. Break Me Down (04:10)(   Читать дальше...   )Жанр: Electronic, Synth-pop, RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A44D8248C7AFE8D899A60E726B11312FBF1B22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700562   (116998) от 17.02.2024
 
 Smooze Pro 2.0.72 [En]
@@ -497,191 +680,6 @@ Oscar Dennard - The Legendary Oscar Dennard (1958) 1989, Somethin' Else [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4CAE4BE6031F30CA8C945744E6FA16115F41DD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700624   (117017) от 17.02.2024
-
-Ветер с порогов / Последний лоцман (1929) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начинается сооружение Днепрогэса. Дом лоцмана Остапа Ковбаня, который всю жизнь водил суда через пороги нижнего течения Днепра, предназначен на слом. Больше всего сокрушается отец — гибнет привычный уклад большой семьи. Но дети, ставшие первыми строителями Днепростроя, не разделяют переживаний старого лоцмана.Производство: СССР, ВУФКУ (Киев)Жанр: драма, история, немое киноРежиссер: Арнольд КордюмАктеры: Николай Садовский, Лидия Островская-Кордюм, Иван Кононенко, Николай Братерский, Глеб КузнецовСубтитры: украинские (интертитры), русские отдельным файломПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84742D929EB2A5D2B82BD9C7F5E155125D638335
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700641   (117018) от 17.02.2024
-
-VA - Ultimate House Winter 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Schwarz - Spend On You (Original Mix) [02:59]
-02. DMKN - Close To Me (Piano House Mix) [03:03]
-03. Booty Kisses - Need You (Original Mix) [02:48]
-04. Phonetic Kids - Never Know (Original Mix) [02:51](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483C437B9FDDA52F6F05F85E2AA225ED2647C2CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700538   (117019) от 17.02.2024
-
-Гнилой Район - В Деревне У Дедушки (2022) Переиздание Bonus Edition, 2023, RUMEDIA.IO [FLAC|Lossless|WEB-DL|tracks] <Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забойная Песня [00:03:07]
-02. Никому не отдам [00:03:51]
-03. В деревне у дедушки [00:04:04]
-04. Город [00:03:24](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D93049C4A91648C44BE039629905E8009D81EE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700653   (117020) от 17.02.2024
-
-Луи Буссенар | Капитан Сорви-голова (2012) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиокнига.
-Луи Анри Буссенар (1847–1910) – французский писатель, автор захватывающих книг о путешествиях и войнах, приключенческих романов и неутомимый путешественник, любимый писатель не одного юного поколения.
-Невероятные приключения, путешествия в далекие страны, борьба за справедливость, смелость и отвага – всё это можно найти в книгах Луи Анри Буссенара, (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторические приключения, романИздательство: МедиаКнигаПродолжительность: 08:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F78223B2EA8AE89E12BB7A6A70AA9B92E275B18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700435   (117021) от 17.02.2024
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 01 (2024) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alisha DJ - Forest Lake (Radio Edit) [3:43]
-02. Amir Rad - After The Flood (Original Mix) [6:00]
-03. Born 87 - Blame (Extended Mix) [5:56]
-04. Gosselt - In Too Deep (Original Mix) [3:40](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5780455A3DFA476EAA0133020AB89B0F003A705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700520   (117022) от 17.02.2024
-
-Гнилой Район - В деревне у дедушки (2023) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забойная
-02. Никому не отдам
-03. В деревню дедушки
-04. Юра ХойЖанр: RockПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D553AE88915739B9AE8E417EA46BDFABA54A98C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700594   (117023) от 17.02.2024
-
-Jazz Instrumental Music Academy, Calming Jazz Relax Academy - Vintage Elegance: Vibes of Smooth Jazz, Relaxing Jazz Atmosphere, Background for Nice Evening Time (2024) [FLAC 24/48|Lossless|WEB-DL|t ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day (3:25)
-02. Calming Jazz Relax Academy - Soft Winds (3:33)
-03. Moonglow (3:23)
-04. Calming Jazz Relax Academy - Deep Purple (3:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982ACCE1C2F6572EC447056822349F84FB812F5B
 ```
 
 

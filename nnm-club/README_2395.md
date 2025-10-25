@@ -1,3 +1,30 @@
+###  Публикация: 1707632   (62637) от 17.03.2024
+
+VA - Rock & Blues Rock compilation part 65 (2024) [MP3|320 Kbps] <Rock & Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trixie Whitley - Pieces
+02. Medicine Head - Alibi
+03. Geordie - Little Boy
+04. Trixie Whitley - Closer(   Читать дальше...   )Жанр: Rock & Blues RockПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9623A9838993F3E3F79985ECCC2BFC657E80AE64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707572   (62638) от 17.03.2024
 
 Кэтрин Энджел | Секс в эпоху согласия (2024) [MP3, Сания Галеева]
@@ -608,30 +635,6 @@ magnet:?xt=urn:btih:C52E83239974A00E1753A66956B51CD10757FCCA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E30AC4F544C74D3A12B013452400A32DF57310BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707737   (62663) от 17.03.2024
-
-Office Installer & Office Installer+ 1.06 by Ratiborus [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office Installer - программа предназначена для online и offline установки Office 2016/2024 C2R. Так же имеется возможность создать свой дистрибутив Office для последующей установки Office offline.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9B930682109D06D91E2583758A4F4D6682DC3E
 ```
 
 

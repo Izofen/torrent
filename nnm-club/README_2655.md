@@ -1,3 +1,30 @@
+###  Публикация: 1783804   (69780) от 07.03.2025
+
+VA - Vocal Trance Collection Vol. 3 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AFTERUS - Embrace The Night (DJKrissB Remix) [7:26]
+02. TroniKol - It Hurts (Extended Mix) [5:57]
+03. Master Beat Projekt - Free (Extended Mix) [7:02]
+04. Edplacid Patiño - The Phoenix (Extended Mix) [6:25](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4376DE1621DD7CA71FA3796DB088A88C9213BA60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783801   (69781) от 07.03.2025
 
 Джек Вэнс | Узкая полоса (2020) [MP3, Puffin Сafe]
@@ -638,33 +665,6 @@ Nsai — это минималистичный и аккуратный шриф�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E493999DE609085EDB5A4D484CC15FBA5B391F94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783623   (69806) от 06.03.2025
-
-VA - Chillout & Lounge Moods (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crispy Galaxy - Sweet Rum (04:22)
- 02. Kaxamalka - Brightening Bond (04:29)
- 03. Nicola Grassetto - Aquamarine (Extended Mix) (05:30)
- 04. Prandtl - A Clear Trend (04:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0697BAD9124EC25BF6166BD77FB135741479CD72
 ```
 
 

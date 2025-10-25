@@ -1,3 +1,30 @@
+###  Публикация: 1787854   (68714) от 27.03.2025
+
+VA - Ibiza Spring 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaques Le Noir - Good Times with Me (Ciava Remix) (04:19)
+02. Calmabohain - Never Forget (03:25)
+03. Steen Thøttrup & Kaia Mainz - Dreamers (Radio Edit) (03:50)
+04. Mostly Unfamous - So Different (03:46)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FD500CB446BF40FC5544578AC524E570661DF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787783   (68715) от 27.03.2025
 
 Скоростной спуск / Downhill Racer (1969) BDRip [H.264/720p] [MVO]
@@ -650,33 +677,6 @@ Emily Remler - Cookin' At the Queens: Live In Las Vegas (1984,  1988) 2CD, 2024,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A960E123838A0DB935420365BEF2174A4AA95B49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787580   (68740) от 26.03.2025
-
-Vhäldemar - Sanctuary Of Death (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil´s Child
-02. Dreambreaker
-03. Deathwalker
-04. Sanctuary Of Death(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30666BD9684770B4C39C3FF4F285024359BAC08F
 ```
 
 

@@ -1,3 +1,28 @@
+###  Публикация: 1778122   (70924) от 08.02.2025
+
+Soft Organizer Pro 10.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soft Organizer - утилита для полного удаления ненужных программ из системы.
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного (   Читать дальше...   )Язык интерфейса: Русский, английский, украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10703D6563619ABB23611674D377BFAE0B3ECFD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778025   (70925) от 08.02.2025
 
 XnView MP 1.8.5 + Portable [Multi/Ru]
@@ -630,33 +655,6 @@ Majestica - Power Train (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ADC7DE29F1BE887B28C2CFA05D59B671EF1A42F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777800   (70950) от 07.02.2025
-
-VA - Armin van Buuren - A State Of Trance 1211 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JOA – Missing Part Of Me
-02. Lycii – Alone
-03. Matt Fax – Vision
-04. Jerome Isma-Ae & JES – Come Alive(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD8F92E19ADABAB6F6C24A82F4A1FF5BB9CD3DC1
 ```
 
 

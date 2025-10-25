@@ -509,6 +509,87 @@ magnet:?xt=urn:btih:765C02618C9E497F1083B3303D798A18FFBC7DDC
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596196   (131220) от 30.12.2012
+
+Elisabeth Schwarzkopf - Opera Arias (1990) [FLAC|Lossless]<Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mozart: Le Nozze Di Figaro    (04:08)
+02. Mozart: Cosi fan tutte    (09:20)
+03. Mozart: Don giovanni    (06:25)
+04. Verdi: Messa da requiem    (14:18)
+05. Humperdinck: Hansel und gretel    (06:01)
+06. Lehar: Die Lustige Witwe    (05:47)
+07. J.Strauss II: Die fledermaus    (04:46)
+08. Puccini: Turandot    (02:31)
+09. R.Strauss: Ariande auf Naxos (06:47)
+10. R.Strauss: Der Rosenkavalier    (03:43)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D40DDB97DF1FA8A0BC138605F0B488AF9BEA58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596221   (131303) от 30.12.2012
+
+Vladimir Horowitz - Horowitz Plays Clementi, Piano Sonatas (1989) [FLAC|Lossless]<Classical, Sonatas, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Sonatas, PianoПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2C11C34014257C7AAAE72334F980B2F04FA63D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596594   (131408) от 30.12.2012
+
+Sviatoslav Richter - Tchaikovsky Recital (1993) [FLAC|Lossless]<Classical, Romantic Period, Recital>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Romantic Period, RecitalПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D913DAAA53CCD2E5A79F4750266D8AB96B5F2B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682341   (131821) от 06.12.2023
 
 Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
@@ -621,89 +702,6 @@ VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40F174617FDF56C2ADA8D468376E56408DA812A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594769   (133120) от 27.12.2012
-
-Шнитке - Concerto Grosso no. 1, Quasi una sonata, Moz-Art а la Haydn, A Paganini: Kremer, Gridenko, Smirnov, Schiff (2010) [FLAC|Lossless]<Classical, Modern, Avant-garde>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto Grosso no. 1 (1976-77)
-01 (1) Prelude: Andante
-02 (2) Toccata: Allegro
-03 (3) Recitativo: Lento
-04 (4) CadenzaЖанр: Classical, Concerto, Modern, Avant-gardeПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594504   (133429) от 26.12.2012
-
-Wolfgang Amadeus Mozart - Piano Concertos K.453 & 482 (Kristian Bezuidenhout, Petra Mullejans & Freiburger Barockorchester) (2012) [FLAC|Lossless]<Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No.17 K.453 in G Major
-01. Allegro
-02. Andante
-03. Allegro
-04. Rondo in A major K.386Жанр: Classical, ConcertoПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E312A518CE6405346242CECD4D31B0D3905FE70D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676563   (134237) от 29.11.2023
-
-Serj Tankian - Invocations (2023) Live [MP3|320 Kbps] <Classical, Modern>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Mountain (feat. Azam Ali, Brian Thorsett, Charles Elliott & Francesca Genco) (Live) [4:46]
-02. Free The Piano (feat. Azam Ali, Brian Thorsett, Charles Elliott & Francesca Genco) (Live) [3:50]
-03. Der Voghormia (feat. Azam Ali) (Live) [4:09]
-04. Aurora's Dream (feat. Azam Ali) (Live) [6:55](   Читать дальше...   )Жанр: Classical, ModernПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863D526D6704381C4A838E486701403DDC6D4B85
 ```
 
 

@@ -1,3 +1,186 @@
+###  Публикация: 1711415   (112467) от 30.03.2024
+
+Texas & Spooner Oldham - The Muscle Shoals Sessions (Parce que - La Collection) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Alternative Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Would I Lie To You (The Muscle Shoals Sessions) [3:44]
+02 - I Don't Want A Lover (The Muscle Shoals Sessions) [3:36]
+03 - Save The Last Dance (The Muscle Shoals Sessions) [3:43]
+04 - Halo (The Muscle Shoals Sessions) [3:10](   Читать дальше...   )Жанр: Pop Rock, Alternative Rock, Indie RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35D5FC14AC41E87D004159FFDEE3203B5141435
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711245   (112468) от 30.03.2024
+
+Ivory Tower - Heavy Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive metal, Power metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Rain [00:05:52]
+02. Holy War [00:06:27]
+03. Never [00:05:48]
+04. The Destination [00:06:54](   Читать дальше...   )Жанр: Progressive metal, Power metalПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF51854DDF93F7BE18301D4C099F9E3DC4DF5F67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711243   (112469) от 30.03.2024
+
+The Prog Collective - Dark Encounters (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkest Hour [00:04:00]
+02. Ominous Signs [00:04:00]
+03. At The Gates [00:03:54]
+04. Dark Days [00:05:09](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9DAEB1D935293C23572E9782D2ECC9851D1333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711446   (112470) от 30.03.2024
+
+Fall Of Serenity - Open Wide, O Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thy Pathway
+ 02 - Darkness, I Command
+ 03 - I Don't Expect I Shall Return
+ 04 - Wastelands(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46D4BDA5A7F4DC4725A8FCD34393811135BFC7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711466   (112471) от 30.03.2024
+
+Пятеро на одного (30.03.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF29ECB0E1D699B6C2D22AFA913986EF7A3D11D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711381   (112472) от 30.03.2024
+
+MarsEdit 5.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2024Разработчик: © 2024 Red Sweater Software, LLC.Поддерживаемая ОС: macOS 10.15.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B7BF4F8FE8465B3BA72D6C5A71E69B552CA27B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711355   (112473) от 30.03.2024
+
+Spiritual Seasons - Medieval Time (2019) [FLAC|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galician Capoeira
+02. Pipes Jig
+03. Ai Vis Lo Lop
+04. Branle d'Ecosse  - Douce Dame Jolie(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B176D60114CF901E5781B7A995CE97A20AFD27F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711540   (112474) от 30.03.2024
 
 Журнал | Главбух №7 (апрель 2024) [PDF]
@@ -489,184 +672,6 @@ magnet:?xt=urn:btih:38F23307E6E0340F19947BF36F807517E4FB6214
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33CC508E3FE9A60F59D9CC3E77D503BE8C6E963D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711421   (112493) от 30.03.2024
-
-Digital Emotion - The Maxi-Singles Collection (2023) Compilation [FLAC|Lossless|image + .cue] <Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Go Yellow Screen (12″ Version) 8:36
-02. Get Up (Remake 1986) (12″ Version) 6:41
-03. Don’t Stop (Remix Ed Smit) 6:24
-04. Don’t Stop (Part 2) (7″ Version) 3:45(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EB81FB3F07376313407780D76E30CFE521B942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711451   (112494) от 30.03.2024
-
-Воображаемый друг / Imaginary (2024) WEB-DLRip [H.264/1080p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с мужем и двумя падчерицами Джессика переезжает в отчий дом — место, где она была счастлива. Девушка надеется, что это вернёт ей вдохновение для продолжения серии детских книг, а девочкам поможет прийти в себя после того, как их родной матери было диагностировано психическое заболевание. Младшенькая находит в подвале плюшевого медвежонка и теперь целыми днями (   Читать дальше...   )Производство: США / Blumhouse Productions, Lionsgate Films, Tower of Babble EntertainmentЖанр: ужасыРежиссер: Джефф УодлоуАктеры: ДеВанда Уайз, Тэджен Бёрнс, Пайпер Браун, Бетти Бакли, Том Пэйн, Вероника Фалькон, Samuel Salary, Мэттью Сато, Аликс Анджелис, Ванета Уолмсли и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:15Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711590   (112495) от 30.03.2024
-
-Spoq - Solace (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Breaks, DubStep, House,  Ambient, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive Breaks, DubStep, House,  Ambient, ElectronicПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8C3B6B437F27C9365DDABF76F9C106C88FB548
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711312   (112496) от 30.03.2024
-
-VA - Dance Party Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galantis - One, Two, & 3 (03:26)
-02. Tiësto - Waterslides (02:38)
-03. Bebe Rexha - Satellite (Alle Farben Remix) (03:24)
-04. Robin Schulz - One by One (feat. Oaks) (02:41)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA21FABD878453E33A012FCB7833E6B120C04EF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711499   (112497) от 30.03.2024
-
-Алексей Глызин и группа "Ура" - Зимний сад (1990) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Зимний сад — 4.35
-02. Африка — 4.35
-03. Все позади — 3.40(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91ED4FEE76E057A44C7742168A21330F6EABA7C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711568   (112498) от 30.03.2024
-
-Joe Satriani & Steve Vai - Satch/Vai: The Sea of Emotion, Pt. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satch/Vai: The Sea of Emotion, Pt. 1 (5:54)Жанр: RockПродолжительность: 00:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76FA97E3B9F68F46C9E612BE616BEF26C1109AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711574   (112499) от 30.03.2024
-
-Q-Dir 11.51 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB29C0EAD0ACEE7D8413100F6F0B4CBD755E98CF
 ```
 
 

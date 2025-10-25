@@ -1,3 +1,36 @@
+###  Публикация: 455743   (94328) от 25.02.2012
+
+VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anjiro Rijo – Sunshine (Original Mix) (7:07)
+ 02. Carl Louis & Martin Danielle - FiveAM (Thomas Sagstad Remix) (6:41)
+ 03. Carl Louis, Martin Danielle - Five AM (Original Mix) (6:08)
+ 04. Daviddance - South Bitchs feat Rona Geffen (Original Mix) (7:16)
+ 05. Dirty South & Thomas Gold & Kate Elsworth - Alive (Idriss Chebak Xmas Remode) (5:25)
+ 06. Domestic Technology - Split It Up (Original Mix) (8:00)
+ 07. Garuso - I Need You (Original Mix) (7:07)
+ 08. Jane Maximova - Amid The Road (Original Mix) (5:20)
+ 09. Jeremy Rowlett - Vanilla Skies (Wilson & Mclennan Cruise Control Remix) (9:48)
+ 010. Kanov - Meditations (Andrew Benson Remix) (7:03)20.02.2012Жанр: Progressive HouseПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD9F888C57903B51D72C45C78B504CF348DEA84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455620   (94335) от 25.02.2012
 
 VA - Minimal Art v.11 (19.02.2012) [MP3|320 kbps]<Minimal>
@@ -691,30 +724,6 @@ magnet:?xt=urn:btih:608B4AFE008848DED0254BD35B8B3723702F439E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A055AD42537F0EB80288BC0ABD7D68FA8B03610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822151   (94502) от 05.10.2025
-
-MediaInfo 25.09 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94502.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaInfo — позволит узнать техническую информацию о видео-или аудио-файлов. Это абсолютно бесплатное программное обеспечение (бесплатный и свободный доступ к исходному коду: GPL или LGPL лицензии). Приложение поддерживает большое количество современных форматов файлов, при работе использует различные способы отображения информации. Не содержит вредоносного кода.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AFBF449321E013FC865F5E56C7D3CE7AEA05BA
 ```
 
 

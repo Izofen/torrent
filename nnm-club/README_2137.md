@@ -1,3 +1,30 @@
+###  Публикация: 1724574   (55929) от 20.05.2024
+
+VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)
+02. Sergey Bryukhno - Cinematic (2:47)
+03. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
+04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17765DFA5EFED270B60973D57F46512548917916
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724589   (55930) от 20.05.2024
 
 Glary Utilities Pro 6.10.0.14 RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -610,30 +637,6 @@ magnet:?xt=urn:btih:F56425F5748D193DBD0CC5E57DF475813304AE91
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:440B15BB5A972603A018ED7AFE87B931D2C7299D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724510   (55955) от 20.05.2024
-
-Athenian Rhapsody (2024) [En] (1.0) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athenian Rhapsody - это свежая комедийная ролевая игра, в которой вам предстоит исследовать мир Афин! Ваша цель - создать свою собственную Рапсодию, историю о вас (игроке) и вашей эпической истории в этом мире. Ваша история будет разворачиваться на основе ваших решений, которые не сможет повторить ни один другой игрок. Пошаговая ролевая игра, включающая в себя интенсивный (   Читать дальше...   )Тип издания: LicenseРазработчик: Nico PapaliaЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6464AD705D77BAC3718B1413238F2B18D258D9A7
 ```
 
 

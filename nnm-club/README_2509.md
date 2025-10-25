@@ -1,3 +1,30 @@
+###  Публикация: 1802832   (65984) от 19.06.2025
+
+VA - Cutterpillow: Tribute Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Amateurish - Superproxy (6:27)
+02.  Diego's Scenes - Back2Me (3:36)
+03.  Mi Mì - Waiting for the Bus (4:50)
+04.  Sansette - Fine Time (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264BC5C72A2B2535587E5F182FD57A9C17DDB326
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802715   (65985) от 19.06.2025
 
 Текстуры - CCpreset - Envato - 20 Wood Texture HQ - W7DN6RG [JPG]
@@ -633,33 +660,6 @@ magnet:?xt=urn:btih:11620FD46B870DC363453B87C80871FD56B56292
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3550438EF2BCED635CF29EE03EEBBBAA284A5A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802581   (66010) от 18.06.2025
-
-AJ Tracey - Don't Die Before You're Dead (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Outta Sight [2:01]
-02 - Second Nature [2:46]
-03 - 3rd Time Lucky [2:40]
-04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB8B6F65CCABE0963948E309373091950626601
 ```
 
 

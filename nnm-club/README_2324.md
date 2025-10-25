@@ -1,3 +1,27 @@
+###  Публикация: 1712501   (60791) от 04.04.2024
+
+Warhawk (2007) [PS3] [EUR] СFW Evilnat 4.91 [License] [Ru]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра является шутером от третьего лица. Помимо привычного режима 3D-шутера, игрок имеет возможность управлять самолётами, танками и другими средствами передвижения. Действие игры разворачивается в научно-фантастическом вымышленном мире, в котором идёт бесконечная война между двумя государствами.Тип издания: LicenseРазработчик: Incognito Entertainment, Santa Monica StudioЖанр: Шутер от третьего лицаЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A02BCED23F3A7CA9CCE85624C86B74EF485321
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706436   (60792) от 04.04.2024
 
 В порту / On the Waterfront (1954) BDRemux [1080p]
@@ -603,33 +627,6 @@ magnet:?xt=urn:btih:43648F00FAC786F47937155757DA406DE09F3C11
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33F5ED1826DA02AA1D282B1CAD4C208BF418FD57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713060   (60817) от 04.04.2024
-
-CG Fast Track | Blender Fundamentals Vol. 1-3 - Modeling, UVs, Texturing and Shading (Blender 4.0) (2024) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия из трёх курсов по основам Blender 4.0:
-Blender Fundamentals Vol. 1 - Modeling Fundamentals in Blender (4.0)
-Blender Fundamentals Vol. 2 - UV and Image Projections in Blender (4.0)
-Blender Fundamentals Vol. 3 - Texturing and Shading Fundamentals in Blender (4.0)Производство: CG Fast TrackЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D9DC38E51FDD65290785DB36512C642B9BF848E
 ```
 
 

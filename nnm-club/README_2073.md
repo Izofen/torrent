@@ -1,3 +1,29 @@
+###  Публикация: 1727946   (54265) от 05.06.2024
+
+Полицейская академия 5: Место назначения – Майами Бич / Police Academy 5: Assignment: Miami Beach (1988) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнце, веселье и красивые девушки. Где всему этому быть, как не в Майами Бич? На этом пятом празднике смеха наши герои летят в Майами на чествование любимого коменданта Лассарда. Но у преступников не бывает отпусков, когда отдыхают наши любимые полицейские.
+
+Лассард похищен. И даже соблазнительные пляжные вечеринки не смогут отвлечь наших неистовых бойцов от отчаянной (   Читать дальше...   )Производство: США / Warner Bros.Жанр: комедия, криминалРежиссер: Алан МайерсонАктеры: Бубба Смит, Дэвид Граф, Майкл Уинслоу, Лесли Истербрук, Мэрион Рэмси, Джанет Джонс, Лэнс Кинси, Мэтт МакКой, Дж. У. Бейли, Джордж ГейнсПеревод: Дублированный (Варус Видео)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BF1BFD81CDF55729F4B5C5BAF50AF6A2946064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727692   (54266) от 05.06.2024
 
 The Gino Marinello Orchestra - Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
@@ -606,33 +632,6 @@ Modern performance analysis and tuning: terminology, concepts, models, methods, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E311D65C222C2400093BDC09ABFA72931B28B928
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727783   (54291) от 05.06.2024
-
-VA - The Mysterious music of the World (2024) vol.3 [MP3|320 Kbps] <Enigmatic, New Age, Electro>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Enigma - Return To Innocence [04:16]
-002. Gregorian - Once in a Lifetime [03:49]
-003. Lichtmond - Feel the Spirit [06:52]
-004. Opii - Watermark (Original Mix) [04:42](   Читать дальше...   )Жанр: Enigmatic, New Age, ElectroПродолжительность: 12:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79AFE557A46B0AA28A90636157812A4DCFB7D60
 ```
 
 

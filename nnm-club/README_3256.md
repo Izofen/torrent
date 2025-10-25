@@ -1,3 +1,189 @@
+###  Публикация: 1745657   (105017) от 27.08.2024
+
+Of Books & Blues - That Ain't It (2024) [MP3|320 Kbps] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freight Train Ride (04:19)
+ 02. That Ain't It (04:52)
+ 03. VooDoo-Hearted Blues (03:51)
+ 04. Under That Skirt (04:00)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3EB8D8A7499B6719F1D88558B0AF5DE696F6D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745737   (105018) от 27.08.2024
+
+Евгений Любимцев - 3 Albums (2024) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2024 - Ах, кича, кича
+2024 - Бегут вагоны
+2024 - Летают листья..Жанр: ChansonПродолжительность: 3 CD, 02:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B53E991AD7998FA0EC2E86FC89A0EDAB33A844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745667   (105019) от 27.08.2024
+
+Sonic Hustle - Out Of The Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder & Lightning (4:11)
+02. Slave (4:36)
+03. One in a Million (3:58)
+04. Bitch! (3:46)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02ADAE12A63FF0D76575CA3BCE4749CFABA61422
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745626   (105020) от 27.08.2024
+
+Анна Семенова | Дом в радость (2021) [MP3, Тамара Некрасова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105020.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге блогера вы найдете эффективный план по организации домашнего хозяйства, который поможет вам избавиться от лишней траты сил, времени и нервов на поддержание порядка. Советы и рекомендации автора подскажут как найти точки опоры и определить ключевые зоны для быстрой уборки, вы сможете составить личное расписание и семейный календарь, научиться делегировать (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: БОМБОРАПродолжительность: 05:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B2BDF6556AEC8851D0E6ACEC97282EF0AD5A26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745599   (105021) от 27.08.2024
+
+Then Jerico - 4 Albums: Before The Future: 1984-1989 (2024) [MP3|320 Kbps] <New Wave, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Motive (The Nightmare Mix) [00:06:47]
+02. Prairie Rose (7" DJ Version) [00:03:58]
+03. What Does It Take? (Great Mix) [00:04:07]
+04. Let Her Fall (USA Mix) [00:03:23](   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 4 CD, 05:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10819375F353DD393E84B9C1D511B581736356D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745731   (105022) от 27.08.2024
+
+Василий Уриевский - Космос обещает быть тёплым (2024) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - У меня есть ты [00:03:57]
+02 - 2010 [00:04:04]
+03 - Сохраню [00:03:39]
+04 - Когда я уеду [00:02:53](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD993C6E3634F6D28F07D67262514DA980F86C41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745730   (105023) от 27.08.2024
+
+Юлия Томашевич - Единственная (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Санкт-Петербург [00:02:50]
+02 - Солнца лучи (дуэт Зиновий Бельский) [00:02:50]
+03 - Привыкание [00:03:13]
+04 - Россия [00:04:27](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675B3455068F835419820DC20F2DCDDE3BBA1573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745736   (105024) от 27.08.2024
 
 4K YouTube to MP3 5.5.5.0116 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -500,192 +686,6 @@ Carly Harvey - Kamama (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:987A898C000966FA071F77ACACD294E523B77A27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745482   (105043) от 26.08.2024
-
-Mick Pini - Papa Voodoo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duck Soup (4:56)
-02. Papa Voodoo (4:51)
-03. Funkadelikatessen (3:51)
-04. Mornington Crescent '69 (5:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F12580FB735958C245BFEF25ED1A118F0DE869B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745467   (105044) от 26.08.2024
-
-Almah - Studio Albums (5 releases) (2006-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Almah — бразильская метал-группа, сольный проект солиста "Angra" Эдуардо Фаласки.2006 - Almah
-2008 - Fragile Equality
-2011 - Motion
-2014 - UnfoldЖанр: Progressive/Power MetalПродолжительность: 04:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2BA07E0E0D4F9999C966DC00B013B460327009
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745484   (105045) от 26.08.2024
-
-Rune Robert Friis - Built For Comfort, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running on Empty (3:16)
-02. Annabelle (3:47)
-03. Glitter & Dirt (3:31)
-04. Gin Gin Mule (7:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA3E15C963E657BA4B7D6C5DE6A3A14892713F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745465   (105046) от 26.08.2024
-
-Matyas Gayer Trio - Westbourne Park (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterdays (5:45)
-02. On Green Dolphin Street (6:20)
-03. Homage To Cedar (5:26)
-04. Mr Harris (6:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7831FE73276B14786C92F79A77AC0C78307812B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745444   (105047) от 26.08.2024
-
-Alltheprettythings - Prose (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Teeth (3:49)
-02. Chin Up, Kid (3:09)
-03. Teenage Lines (3:45)
-04. I Want You Back (3:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F393C4EBB612770A3716CA40D5A086E50610746D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745538   (105048) от 26.08.2024
-
-High-Logic FontCreator Professional 15.0.0.2999 RePack (& Portable) by elchupacabra [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105048.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052E596C36FB4ABC63168F83D0B4C4AA525489BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745246   (105049) от 26.08.2024
-
-Mike Tramp - Songs Of White Lion, Vol. I-II (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights & Thunder [00:06:40]
-02. Lonely Nights [00:04:37]
-03. Till Death Do Us Part [00:04:43]
-04. El Salvador [00:04:17](   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 2 CD, 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5FCCBEBFAD8069D09FFCE7891261A5F0851254
 ```
 
 

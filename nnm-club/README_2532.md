@@ -1,3 +1,27 @@
+###  Публикация: 1797962   (66582) от 24.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Abstract Hearts Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абстрактные фоны с сердечками.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C659EDFE5F6C2C8329EDB69C03E09126D586E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797708   (66583) от 24.05.2025
 
 Текстуры - MiksKS - Experimental Textures [JPG]
@@ -640,33 +664,6 @@ magnet:?xt=urn:btih:73279A498F681767F10D029B673A6459AF5DD19E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B024DC36F1823455279C275DFFF7F012ECE0C6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798480   (66608) от 22.05.2025
-
-Anoraak - Golden Hour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, synthwave, disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reasoning Heavy (2025 Remaster) [00:04:36]
-02. Tension (2025 Remaster) [00:04:30]
-03. Words (2025 Mix) [00:03:52]
-04. Family Matters (2025 Remaster) [00:05:03](   Читать дальше...   )Жанр: synthpop, synthwave, discoПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF3A8D4F15FC6C2A075DF388A062BA7F8EE0E0F
 ```
 
 

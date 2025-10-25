@@ -1,3 +1,27 @@
+###  Публикация: 1788884   (68454) от 01.04.2025
+
+Thunderbolt Fantasy: Seiyuu Genka | Thunderbolt Fantasy: Bewitching Melody of the West | Грозовая фантазия: Нефритовая песнь Сэй Ю [2019, Movie] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ло Фу Йо с рождения обладал сверхъестественным голосом. Заточённый в снежных горах, он прошёл через жестокие тренировки, которым подвергла его слепая мать. Она желала, чтобы голос сына был непревзойдённым, и чтобы его услышали при императорском дворе. Но тяжёлые тренировки привели к трагическому происшествию, в результате которого она погибла. Став сиротой, Ло Фу (   Читать дальше...   )Производство: Thunderbolt Fantasy ProjectЖанр: приключения, фэнтезиРежиссер: Хуан ЦянхуаПеревод: Елена Гин, Hitori Ame, CamelieMimika, Дарья ЖеребиловаЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D75B66B2D0887FDBEDE9E03C69ACC3915DB4A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788651   (68455) от 31.03.2025
 
 The John Ford Blues Society - Rollin' On (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -642,33 +666,6 @@ VA - Interplay Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD34D57AAB75464D8599ECB9803BBCFB7F85E311
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788663   (68480) от 31.03.2025
-
-Woong San - Once I Loved (2010) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Not There [4:13]
-02. You Don't Know What Love Is (Featuring Terumasa Hino) [6:23]
-03. The Lady Wants To Know [4:55]
-04. No Moon At All [4:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601026F0004EFE8045B9AFD98E7A4A0B0DCA9610
 ```
 
 

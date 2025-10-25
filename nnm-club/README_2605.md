@@ -1,3 +1,30 @@
+###  Публикация: 1788663   (68480) от 31.03.2025
+
+Woong San - Once I Loved (2010) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Not There [4:13]
+02. You Don't Know What Love Is (Featuring Terumasa Hino) [6:23]
+03. The Lady Wants To Know [4:55]
+04. No Moon At All [4:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601026F0004EFE8045B9AFD98E7A4A0B0DCA9610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788699   (68481) от 31.03.2025
 
 MotoGP. Этап 03 из 22. Гран-при США. Гонка (30.03.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -626,33 +653,6 @@ magnet:?xt=urn:btih:C59274E77667F0FAE30F5E7491FCEBC8466C1AB6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE44CEEBCF5E3EA52027DB2796FB7896605C937D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788559   (68506) от 30.03.2025
-
-Arthemis - Blood Fury Domination (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undead
-02. Black Sun
-03. Blood Red Sky
-04. Blistering Eyes(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6908AB9742036FA085D6FE355667975321E12A52
 ```
 
 

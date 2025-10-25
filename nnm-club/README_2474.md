@@ -1,3 +1,29 @@
+###  Публикация: 1808035   (65074) от 22.07.2025
+
+Сборники - Sc6ut Video Editing Pack #3 [AEP, MP4, MOV, EXE, TTF, OTF, TTC, FFX, GIF, MP3, JPG, MBLOOK, OFX]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sc6ut - третий пакет видеомонтажа для ваших творческих задач.
+
+*К каждому плагину и программе прикреплен туториал как установить и активировать.Формат: AEP, MP4, MOV, EXE, TTF, OTF, TTC, FFX, GIF, MP3, JPG, MBLOOK, OFX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F06DB160719A5CB6F8F76C8FD6DD7DD54148809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808060   (65075) от 22.07.2025
 
 Проекты - VideoHive - Funeral Memorial Biography - 57016011 [AEP]
@@ -643,33 +669,6 @@ We Are Scientists - Qualifying Miles (2025) [MP3|320 Kbps] <Alternative Rock, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B56063BE750092C94A1BE522BEF9FDCBF87E9BBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807753   (65100) от 20.07.2025
-
-Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterside
-02. Fallen Dreamer
-03. Life Painted Vermilion
-04. Monuments of Deception(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8233C35B025381BC0B16AACA14EBCE61BC99228B
 ```
 
 

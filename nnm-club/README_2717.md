@@ -1,3 +1,29 @@
+###  Публикация: 1775718   (71392) от 28.01.2025
+
+United Plugins & Muramasa - MorphVerb 4.0 VST, VST 3, AAX (x64) RePack by BUBBiX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все реверберации в одном плагине.
+Какой тип реверберации следует использовать на моем треке? Должен ли я использовать чэмбер или холл? Или что-то среднее?
+MorphVerb - это уникальный инструмент, предоставляющий самый быстрый способ найти идеальные настройки реверберации. Возможность тонкого смешивания дает вам возможность получить реверберационный тон, точно соответствующий (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8913B283857E77CFCC1B7B662596733DA0642AA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775898   (71393) от 28.01.2025
 
 Шрифты - Anorthic - Modern Serif Font [OTF]
@@ -643,33 +669,6 @@ Belle Morte - Pearl Hunting (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Goth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCC4380F4397E1CEA9527F306E5C0E1FD288414A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775433   (71418) от 27.01.2025
-
-VA - Dance Classics Vol. 1 (1998) [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny ''Guitar'' Watson - A Real Mother For Ya
-02. Boz Scaggs - Lowdown
-03. Brothers Johnson - Strawberry Letter 23
-04. Stretch - Why Did You Do It(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F56536C8C0F1EC5DC1C3B618C4D1D69CD24C98E
 ```
 
 

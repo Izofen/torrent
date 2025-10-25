@@ -1,3 +1,30 @@
+###  Публикация: 1779881   (70612) от 15.02.2025
+
+VA - House of the past years (2025) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70612.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Worakls - Good Night My Love (Joachim Pastor Remix) (6:39)
+002. Tosel & Hale, Heavy Pins feat. Veselina Popova - Read The Signs (Radio Edit) (3:32)
+003. Tensnake feat. Fiora - See Right Through (4:28)
+004. Stefan Gruenwald, Lookee feat. Pearl Andersson - Wonderful Life (Radio Edit) (3:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 09:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E38F660098E8C612B2E381B8BCAB824B2DB0760
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779818   (70613) от 15.02.2025
 
 Stoto - Compilation (2025) [MP3|320 Kbps] <Electronic, Instrumental>
@@ -642,32 +669,6 @@ magnet:?xt=urn:btih:46D4E6BFFFADACB33ADB0DAE08C719F96D1E20C6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34EF99F5A944F1B43F2860BE96845082EF5DA9EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779748   (70638) от 14.02.2025
-
-Шрифты - Creative Market - Across Corner Font - 290875836 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт Across Corner, потрясающий шрифт с засечками, сочетающий в себе вневременную элегантность с современной эстетикой. Смелый и пленительный шрифт, который соединяет элегантность средневековых засечек с резким очарованием темного футуристического дизайна.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E871DD8EF5717D377B9100E57E1DD5407FE3B6A5
 ```
 
 

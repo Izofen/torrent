@@ -1,3 +1,183 @@
+###  Публикация: 1694039   (121262) от 23.01.2024
+
+Владимир Валуцкий | Пёс в сапогах (Союзмультфильм) (2002) [MP3, Николай Караченцов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Союзмультфильм.
+В основе этой сказки – сюжет о знаменитых алмазных подвесках из «Трёх мушкетеров» Александра Дюма. Только в нашем случае речь идет о собаках Короля и кошках Кардинала. История захватывающая! А песни – очень запоминающиеся!
+Если пёс беспороден – это минус, но благороден – это плюс. А если у него есть три вёрных друга, то ни коты кардинала, (   Читать дальше...   )Жанр: Детская литература, приключения, сказкаИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм»Продолжительность: 00:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF206D791C76E13FCA8F9E58F78FA3DC3258091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693915   (121263) от 23.01.2024
+
+VA - Maestros Del Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cannonball Adderley -- You'd Be So Nice to Come Home To (3:01)
+02. Dave Brubeck -- Take Five (5:25)
+03. Miles Davis -- Scrapple the Apple (2:28)
+04. Duke Ellington -- Take the "A" Train (3:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8EBE46A3F63174ADFD34692000B245F5FD6B05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694004   (121264) от 23.01.2024
+
+SponsorBlock for YouTube 5.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121264.jpg" />
+</div>
+
+
+###  Подробнее
+
+SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2024Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29ED34975E0D59F4438ADE60BFA1AC48D250B1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694040   (121265) от 23.01.2024
+
+The Rods - Rattle The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Now And Forever (00:03:34)
+02 - Wolves At The Door (00:05:30)
+03 - Cry Out Loud (00:07:29)
+04 - Rattle The Cage (00:04:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49991E16E6783C4484F942824EE3C47ABE81F82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693987   (121266) от 23.01.2024
+
+Beegie Adair & Friends - Jazz Romance: 15 Sentimental Love Songs (2016) Green Hill [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Last [3:58]
+02. Moonglow (feat. Jeff Steinberg Orchestra) [3:48]
+03. Strangers in the Night (feat. Denis Solee) [3:27]
+04. As Time Goes By [4:34](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEE0A852B8E6334B79DF60B7BF3C05856588573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694107   (121267) от 23.01.2024
+
+Генрих Бёлль | Женщины у берега Рейна (2012) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генрих Бёлль (1917-1985) – крупнейший немецкий писатель XX века, лауреат Нобелевской премии (1972).
+Роман «Женщины у берега Рейна» (Роман в диалогах и монологах) был опубликован четыре недели спустя после смерти автора. В этом романе, как и в последних крупных прозаических произведениях Генриха Бёлля, его дар видеть в частной судьбе отражение судеб эпохи, его «репортажный» (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 08:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9AFB1BD22D5B109CC81E1D93F1EC5A2F918C00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694118   (121268) от 23.01.2024
+
+Леди и телефонистка / The Telephone Girl and the Lady (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая криминально-любовная история. Фильм снят по мотивам пьесы. Конечно получилось все довольно сокращенно. В те времена пьеса была весьма популярна и в фильме всем все было понятно. А сегодня можно и не уловить все нюансы сюжета, поэтому под спойлером подробный пересказ.Производство: США, Biograph CompanyЖанр: короткометражный, драма, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Мэй Марш, Клер Макдауэлл, Альфред Пегит, Чарльз Хилл Майлз, Гарри Кэри, Джон Т. Диллон, Мэдж Кирби, Джозеф МакДермотт, Кейт Брюс, Гертруда БембрикПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717350C0E642A0DC319CC8138201D76E31483F7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694158   (121269) от 23.01.2024
 
 Slidepad 1.4.7 [En]
@@ -488,192 +668,6 @@ magnet:?xt=urn:btih:BA7DD58285044801CA8608A74036648E28479362
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8960E3CEAA0DE0A674913C11B948E5723988E9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693916   (121288) от 23.01.2024
-
-VA - Relaxing Carefree Romantic Smooth Jazz Ride (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean -- Sail (5:06)
-02. Konstantin Klashtorni -- Irresistible (4:13)
-03. eJazz Artistry -- Colder Weather (3:59)
-04. Chillaxing Jazz Kollektion -- That's Life (5:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67C05DE429A60925CA9DA37DA99BBAF300B2D27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693455   (121289) от 23.01.2024
-
-Jazz Guitar Club, Jazz Guitar Music Zone - Sunset Guitar Session Smooth Guitar Jazz for Chill and Relax (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Higher (6:18)
-02. Big Dreams (3:37)
-03. Inspiring me (3:29)
-04. Should We Try (4:03)(   Читать дальше...   )Жанр: Jazz, Chill Out, Smooth JazzПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E1009A58993739F60529D7AC73F41443DB89FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693460   (121290) от 23.01.2024
-
-Restaurant Jazz Music Collection, Jazz Ambiental para Hotels - Dining in Jazz Harmony Jazz Background Grooves for the Hotel Restaurant (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cozy Inn (4:40)
-02. Morning Brunch (2:59)
-03. Jazz for Boutique Hotels (2:57)
-04. Cocktail Cafe (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CEBD112FFA7530459A95B60986BFF2063AE6A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693961   (121291) от 23.01.2024
-
-Rhino Bucket - Studio Albums (7 releases) (1990-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rhino Bucket — американская хард-рок-группа из Ван-Найс, Лос-Анджелес, образованная в 1988 году. Звучание группы часто сравнивают со звучанием AC/DC.1990 - Rhino Bucket
-1992 - Get Used To It
-1994 - Pain
-2006 - And Then It Got UglyЖанр: Hard RockПродолжительность: 05:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693978   (121292) от 23.01.2024
-
-Чингиз Абдуллаев | Дронго (Книга 64). Время нашего страха (2024) [MP3, Наталья Дымочко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задушен сторож санатория. Выброшен из окна фармацевт. Застрелен ученый. Перед этим все они получили от таинственного убийцы конверты с номерами 1, 2, 3… Конверт с номером 4 получил крупный бизнесмен. Похоже, он следующая жертва. А есть еще и другие конверты. Связывает этих людей только одно – все они друзья детства. Значит, мотивы убийства надо искать в их прошлом? (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 08:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654A1073D1D52A36E603333A40F30F24EE2D1069
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693997   (121293) от 23.01.2024
-
-Dawn Of The Rising - Win Lose or Draw (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Win Lose Or Draw (6:39)
-02. One Step (3:16)
-03. Soldiers (4:17)
-04. Drowned In Lies (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728B045A13A49B683A2B533D25D663EFBD9B0C4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693989   (121294) от 23.01.2024
-
-Abysmal Grief - Strange Rites of Evil (2015) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nomen Omen (10:13)
-02. Strange Rites Of Evil (07:13)
-03. Cemetery (05:13)
-04. Child Of Darkness (05:13)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38046D1006827C701618AC7CF4C540982AC19933
 ```
 
 

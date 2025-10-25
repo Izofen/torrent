@@ -1,3 +1,30 @@
+###  Публикация: 1783623   (69806) от 06.03.2025
+
+VA - Chillout & Lounge Moods (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crispy Galaxy - Sweet Rum (04:22)
+ 02. Kaxamalka - Brightening Bond (04:29)
+ 03. Nicola Grassetto - Aquamarine (Extended Mix) (05:30)
+ 04. Prandtl - A Clear Trend (04:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0697BAD9124EC25BF6166BD77FB135741479CD72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783498   (69807) от 06.03.2025
 
 Шрифты - MyFonts - Rapor [OTF, TTF]
@@ -641,33 +668,6 @@ magnet:?xt=urn:btih:AA5F429F05CE5D4154E90EFDC0A8B40819AF8803
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7F6117DD34D74770DF6BD9183BD6B61447C9AFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783226   (69832) от 05.03.2025
-
-Dommin - The Martyr (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Martyr [00:05:35]
-02. Breaking Down [00:05:19]
-03. Rule To Break [00:03:30]
-04. Thorns & Roses [00:04:06](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED4878A5C3DB9D1159510C26929713D0899C4D0
 ```
 
 

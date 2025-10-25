@@ -1,3 +1,27 @@
+###  Публикация: 1795841   (66140) от 14.06.2025
+
+Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и Юки [2012, Movie] Blu-ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хана, студентка университета, встречает молодого человека и сразу же влюбляется в него. Её чувства не ослабевают, даже когда она узнает, что он - не человек, а волк в человеческом обличье. Молодые люди начинают жить вместе и у них появляются дети. Дочь, родившуюся в снегопад, называют Юки - "Снежок";сына, который рождается в дождливый день, называют Амэ (   Читать дальше...   )Производство: Studio ChizuЖанр: повседневность, драмаПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 118 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8008754434A75A042CF91EFB8B2443A29AD7F2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802085   (66141) от 14.06.2025
 
 VA - National Pop Dance Music Vol.110 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
@@ -618,33 +642,6 @@ magnet:?xt=urn:btih:2D087903D2B879CAC56AA53BC3F7630707806E6A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43B1F819ED0006C3A59B8B4A77CF07FA0645BC3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801770   (66166) от 12.06.2025
-
-Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordings Ltd [MP3|320 Kbps] <Britpop, Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Supersonic [4:45]
-02 - Roll With It [4:00]
-03 - Live Forever [4:39]
-04 - Wonderwall [4:22](   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 02:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5B06511BD8F09091941DCF0B44938C8B45D1CA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1791363   (67830) от 13.04.2025
+
+Fuzzripper - Poltergeist (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poltergeist (05:10)
+ 02. These City Nights (03:35)
+ 03. Black and Red (06:00)
+ 04. Ghost Rider (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8C68CB2830C154D5149EFC25A82EFC3EA88E93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791264   (67831) от 13.04.2025
 
 Rabengott - 2 Albums (2023,2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
@@ -628,31 +655,6 @@ magnet:?xt=urn:btih:CB76770FF9916429FAAC649FF9102DD389A22660
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D909E343399107CD170956D67553A7B0CFD28D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791401   (67856) от 13.04.2025
-
-BABY Audio - Smooth Operator Pro 1.0 VST, VST 3, AAX [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smooth Operator Pro - Спектральный балансировщик сигнала.
-Мы разработали новую версию Pro без ущерба для быстрого рабочего процесса, который сделал Smooth Operator 1 таким популярным. Задайте желаемую целевую кривую, затем поворачивайте регулятор глобального порога до тех пор, пока плагин не начнёт балансировать ваш звук. При необходимости погрузитесь в глубокие (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643C25A6FFB0EBEF4B7AAD80C2F660B955716B1E
 ```
 
 

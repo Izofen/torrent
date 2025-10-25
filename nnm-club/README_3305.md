@@ -1,3 +1,192 @@
+###  Публикация: 1738522   (106291) от 23.07.2024
+
+Chris Cain - Good Intentions Gone Bad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Little Too Late (3:30)
+02. Fear Is My New Roommate (3:33)
+03. Good Intentions (3:15)
+04. Waiting For The Sun To Rise (4:31)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8894148B57AC445797F68D95B7FAB4DCE48D9CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738520   (106292) от 23.07.2024
+
+5th Avenue Park Project - Attractive Soul (Lo-Fi Version) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Excluded (3:00)
+02. Shadow Two (2:13)
+03. Inclusion (3:00)
+04. Snuff (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FACCE593AA77367234565ACD060222D602B4DE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738530   (106293) от 23.07.2024
+
+Neko to Ongaku (Cats & Music) - Swing Tails ~Cats Jazz Band~ (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Flight/夜間飛行 (5:00)
+02. The Moon and Six Tails/月と6本のしっぽ (4:22)
+03. Majical 6 Paws/まほうのおてて (4:33)
+04. A little lonliness/ひとひらの孤独 (3:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5726024DF8C10D3C8AF0E60E22FF47041A0C9CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738401   (106294) от 23.07.2024
+
+Saxtribution - Relaxing Smooth Saxophone Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between the Sheets (4:01)
+02. Have You Seen Her (4:38)
+03. Just The Two Of Us (3:52)
+04. Free (2:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B4A941F04E21680E3D5D1018049F39BF997ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738525   (106295) от 23.07.2024
+
+Historia - Echoes Of The Will (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkers In The Castle (03:39)
+02. Liotru (05:01)
+03. Lycanthropy (04:24)
+04. Son Of A Deity (05:15)(   Читать дальше...   )Жанр: Symphonic, Progressive MetalПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DBB46A5BCEB69D5A8C86AE5D59C01731E13FE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738399   (106296) от 23.07.2024
+
+Saxtribution - Refreshing Soothing Saxophone Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Operator (4:18)
+02. Come in From the Cold (4:12)
+03. By Your Side (4:34)
+04. In Your Eyes (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DF1526EA4B818E53013DF29D6B19C36B1205BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738238   (106297) от 23.07.2024
+
+The Fault Lines - 60 Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear and Desire (4:26)
+02. The Cheat (4:15)
+03. Caught in a Knot (4:04)
+04. Punches (5:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BD99B827198EDE8001902FEB7DFEAD1AE50061
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738524   (106298) от 23.07.2024
 
 Mark Lettieri - Can I Tell You Something (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -474,186 +663,6 @@ magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE66680D627C91372BAA33BDEBDB62E70EDDF235
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738258   (106317) от 22.07.2024
-
-VA - Crazy Disco Show Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir Easy D. - Don't You Ever
-02. Corona - The Rhythm Of The Night
-03. Vangelo - Can U See
-04. Bliss Team feat. Jeffrey Jey - Go!(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1ECB4B5DB4833E66FB8440778B2D42EDD99927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738336   (106318) от 22.07.2024
-
-Наталья Третьякова | Дом, где пахнет шарлоткой (2024) [MP3, Виктория Федорова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наталья Третьякова – natretyak – автор забавных и трогательных историй, блогер, которого читают более 150 тысяч подписчиков. Вы сидите в мягком кресле, укутавшись в пушистый плед, кошка мурлычет на коленях. Комната наполнена уютом, теплом и ароматом яблочного пирога. В такую атмосферу погружает книга «Дом, где пахнет шарлоткой». Когда все горести отступают, а на (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 05:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47495FABB632C116F2C90A593FC645920648AB3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738394   (106319) от 22.07.2024
-
-Fun Fun - Have Fun! & More... (2006) Remastered [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Your Love
-02. Sing Another Song
-03. Tell Me
-04. Living In Japan(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRGПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C99E05273DAD3E9811C3E30B64329841601E92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738481   (106320) от 22.07.2024
-
-Сатисъ | Всенощное бдение. Литургия (2012) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга содержит полный текст наиболее значимых церковных служб – Божественной литургии и всенощного бдения, в том числе и те священнические молитвы, которые обыкновенно читаются неслышно для мирян.
-
-Православное богослужение является крайне сложным и эстетически совершенным произведением, исполненным глубокого смысла, который нередко ускользает от простых молящихся. (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA7D5BD50624BE1D487788BB21F0611BB0D926B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738348   (106321) от 22.07.2024
-
-Perfectly Clear WorkBench 4.6.1.2678 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE5B9395F8C35B549736F7196268C8DC1079CAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738375   (106322) от 22.07.2024
-
-Angel Sword - World Fighter (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Vigilantes (03:21)
- 02 - Weekend Warrior (04:40)
- 03 - Dangerous Games (03:38)
- 04 - Church of Rock (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987C2D2C414964A60E63AB955D79A83862BF0323
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738471   (106323) от 22.07.2024
-
-Сатисъ | Разъяснение воскресных и праздничных Евангельских чтений (2008) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106323.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге простым и понятным языком объясняется смысл содержание и смысл фрагментов Святого Евангелия, читаемого в храме по воскресным и праздничным дням.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAA335D600E5E58FD178111E50F126E11111F23
 ```
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 1778936   (70768) от 10.02.2025
+
+Газета | Загадки истории №4 (630) (2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70768.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF53F64957A61BB4641A1475F806E866DD2695D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778843   (70769) от 10.02.2025
 
 VA - The Orient Collective: Echoes Beyond Borders (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -651,33 +675,6 @@ Paul Anka - Paul Anka (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E81AEC0FA9B99E6863D6951B16CC6FE128D02657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778964   (70794) от 10.02.2025
-
-VA - Winter Deep House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alban Chela - Vida Loca (2:20)
-02. Barış Çakır - Sunshine (3:00)
-03. Deepest - Bastanna (I'll Wait) (3:00)
-04. MIRAC SARI - My Focus Is You (2:02)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B92E020DBC291B3F768F7B8F354D07A76D35FDE
 ```
 
 

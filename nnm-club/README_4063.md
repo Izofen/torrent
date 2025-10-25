@@ -1,3 +1,189 @@
+###  Публикация: 1686908   (126213) от 24.12.2023
+
+Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pack Up (00:03:52)
+02 - Come In, It's All For Free (00:02:55)
+03 - Brown Hair (00:03:28)
+04 - Dance On Little Beauty (00:02:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD25F85FBD24463DB3CD1E8E3EB830CA39AF2B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686739   (126214) от 24.12.2023
+
+R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - World Leader Pretend (live) [00:04:19]
+02 - Half A World Away (live) [00:03:18]
+03 - Disturbance At The Heron House (live) [00:03:28]
+04 - Radio Song (live) [00:04:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686469   (126215) от 24.12.2023
+
+Футбол. Клубный ЧМ. Финал. Манчестер Сити (Англия) - Флуминенсе (Бразилия) (22.12.2023) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Клубный ЧМ. Финал. Манчестер Сити (Англия) - Флуминенсе (Бразилия) (22.12.2023)
+СУДЬЯ Марциняк Шимон (Плоцк, Польша)
+СТАДИОН «имени короля Абдаллы» (Джидда)Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8349DEC7AC1591EC18D49C73CB7413EE9B9A92E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686495   (126216) от 24.12.2023
+
+[Amatory] - ВПС 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Восковый дождь 2023 [00:02:18]
+02. Страница VI 2023 [00:03:56]
+03. Осколки 2023 [00:03:58]
+04. Вечно прячется судьба 2023 [00:03:16](   Читать дальше...   )Жанр: Metalcore, Nu Metal, Alternative RockПродолжительность: 00:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F2A035F8B271C794171AA7F72377818DD342C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686995   (126217) от 24.12.2023
+
+Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Helsinki Ice Hall 2019 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under The Grass Clover (4:04)
+02. Platitudes And Barren Words (4:21)
+03. In Your Face (4:07)
+04. Shovel Knockout (4:13)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C75BD9DEDCA78CCD79501DA3E2A01DD18F9F387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686907   (126218) от 24.12.2023
+
+Neil Levin - Cosmic Blues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Worthwhile (4:04)
+02. Gone Away Prelude (0:19)
+03. Gone Away (2:45)
+04. Roses On The Grave (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686757   (126219) от 24.12.2023
+
+Джером К. Джером | Скряга из Саардама и другие рассказы (2023) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена (Английская литература).
+Джером Клапка Джером (1859–1927) – плодовитый романист, эссеист, автор коротких рассказов, в нашей стране известен преимущественно благодаря своей знаменитой повести «Трое в лодке, не считая собаки». За первые двадцать лет было продано более миллиона экземпляров книги по всему миру. Также, книга легла в (   Читать дальше...   )Жанр: Издательский дом «Союз», Покидышевъ и сыновьяИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759F420B8DEA5F9D60143DE7DE76823A19E2E73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686912   (126220) от 24.12.2023
 
 Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 4). Под пиратским флагом (2012) [MP3, Михаил Названов, Борис Лавров и др.]
@@ -484,191 +670,6 @@ magnet:?xt=urn:btih:0877D19D24858866E673AD4C8855324F5D8598FF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:239DA7608F8A060A6ADEEE1A171ADBCA55D9E633
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686962   (126239) от 24.12.2023
-
-VA - Turbo Drive, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NightCrawler - Nemesis (3:56)
-02. Turbo Knight - Rasengan (5:08)
-03. Jessy Mach - You Can Change (4:10)
-04. New Arcades - Solace (4:05)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E05DEC74037EFC7410C5A320A374DA74D8349A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686729   (126240) от 24.12.2023
-
-Cosmic Gate - Best Of 2023 (2023-12-20) [MP3|320 Kbps] <Progressive House, Trance, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving Laurel - You Need To Be There For Them
-02. Taglo - Tribute
-03. Eran Hersh & Anorre - Regained
-04. Joseph Ray - Blue Nights(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic House, TechnoПродолжительность: 01:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E8CFC00791A22FA248F9200E7575B9C2A5B09D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686859   (126241) от 24.12.2023
-
-Почему убивают судей / Perche si uccide un magistrato (1974) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Режиссёр Джакомо Соларис выпустил фильм о судье, который слишком много знал, потому что дружил с мафией, и которого поэтому убивают. Возмущённый прокурор требует, чтобы фильм запретили, но его тоже убивают. Режиссёр понимает, что на ход дела влияет кто-то сверху... Далее начинают погибать его друзья...Производство: Италия, Capital, Rizzoli Film S.p.a.Жанр: драма, криминалРежиссер: Дамиано ДамианиАктеры: Франко Неро, Франсуаза Фабиан, Пьерлуиджи Апра, Джанкарло Бадесси, Эннио Бальбо, Лучано Катеначчи, Джорджио Чериони, Тано Чимароза, Мико Кундари, Ева ЧемерисПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянский, английскийСубтитры: русскиеПродолжительность: 01:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CA36DEEDBD0AA54FAA0D0735B0213A49953726
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686733   (126242) от 24.12.2023
-
-VA - The Best Of Hit News Vol.3 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Dream Collective - Oh, Baby All
-02. Fun Factory - Celebration
-03. DJ Bobo - Freedom
-04. Caught In The Act - You Know(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F517D1327F8F1C8837BB2F4ED28B34E53C989D25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686915   (126243) от 24.12.2023
-
-Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 5). Таинственный сундук (2012) [MP3, Александр Хованский, Ростислав Плятт и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива Гостелерадиофонда. Учиться – это весело!
-В 40-х – 80-х годах прошлого столетия на волнах радио выходила в эфир замечательная многосерийная радиопьеса для детей «Клуб знаменитых капитанов».
-...Заканчивался ничем не примечательный рабочий день. Библиотекарша Мария Петровна и ее помощница Катюша гасили свет, поворачивали в дверном замке ключ и (   Читать дальше...   )Жанр: Детский географический радиожурнал, приключения, познавательная литератураИздательство: Студия «АРДИС»Продолжительность: 04:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15B8E57DADDBD9926EED942F22C6612975035F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686585   (126244) от 24.12.2023
-
-VA - Morning Bells Coffee Jazz Music for A Cozy Christmas Mood (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Sax Lounge Collection - Families United (3:23)
-02. Christmas Time - The Reindeer's Bells (3:25)
-03. Smooth Jazz Sax Instrumentals - Peace on Earth (3:23)
-04. Jazz Sax Lounge Collection - Under a Tree (3:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187CC206691BCE2B24348B89E33108DBB07B95D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686642   (126245) от 24.12.2023
-
-Смута - Мара (2022) [FLAC|Lossless|image + .cue] <Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	К дому	02:18
-02.	Горечь полыни	05:35
-03.	Мой край	05:22
-04.	Белое солнце	04:05(   Читать дальше...   )Жанр: Pagan MetalПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0BD5F8A063984C3F553CAD96408D275D5B86A36
 ```
 
 

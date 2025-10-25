@@ -1,3 +1,96 @@
+###  Публикация: 479256   (99089) от 09.04.2012
+
+VA - Dance Charts Арлекина. Часть 1 (2012) [MP3|256 kbps]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99089.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Michel Telo - Ai Se Eu Te Pego (Elkana pAz & Gili Kaneti Remix)
+002 Simon from Deeo Divas feat. Goody - Disco Dancer (Simon Original Radio Mix)
+003 Modana & Carlprit - Party Crash (Video Mix)
+004 Kim Appleby - The World Today Is a Mess
+005 1950 and the Chu Chi Girls feat. Hayley Jo - The Chu Chi Sway (Radio Mix)
+006 Frisco Disco feat. Ski - One Way Ticket (Radio Version)
+007 Tom Boxer & Morena feat. Meital De Razon - Voulez-Vous (Radio Edit)
+008 Mohombi - In Your Head (High Level Radio Edit)
+009 Kittens - I'm In Love (La La La) (Radio Edit)
+010 Mishelle feat. Randi - It Feels So Good (Radio Edit)(   Читать дальше...   )2012Жанр: DanceПродолжительность: 05:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111D65FD74386165FCBD63EC1A9A52F9AE8E8DEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480741   (99091) от 09.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99091.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers №11
+Название: Girls Desktop Wallpapers №11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E9EAF1B5D2763916101D2308B06CC5F713FD32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480027   (99092) от 09.04.2012
+
+VA - Весенняя танzплощадка 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Любовные Истории - Без Тебя
+002 Nadia Aali - Rapture (Willy William Remix)
+004 Aelyn - Believe In Us (Chillout Mix)
+005 Светлана Лобода - На Свете
+006 Electric Giant Beatz Feat Michelle Williams - On The Run (Soul Seekerz Radio Edit)
+007 Eugene Star - Electro Pavlik(Mem Mix)
+008 Vali G & Mariana Moculescu - Crazy For U (Radio Edit)
+009 Чай Вдвоем - Новогодний Поцелуй (Alex Dea Radio Edit 2012)
+010 Scotty - Sundown (Radio Edit)2012Жанр: PopПродолжительность: 06:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66453E3C9C83DBF9C9456A747C4EE2B24DD01F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480026   (99094) от 09.04.2012
 
 VA - US TOP 25 Rock Song Chart (2012) [MP3|320 kbps]<Rock>
@@ -643,78 +736,6 @@ magnet:?xt=urn:btih:D15E5C1DAB184EED6172882C123E91D20380B315
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A5E61C899B74B58C4BBE88F8A8CFD71F7D6EBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822189   (99142) от 05.10.2025
-
-MotoGP. Этап 18 из 22. Гран-при Индонезии. Гонка (05.10.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99142.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 октября 2025 воскресенье. 10:00 МСК этап 18. Автодром Пертамина Мандалика. Гран-при Индонезии. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC71E8A84EC7E2A24CD1F6B6508239007286F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822187   (99143) от 05.10.2025
-
-Холмс (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой амбициозный доктор Телегин получает новую работу в психиатрической клинике. В первый же день он знакомится с Феликсом, которого задержали за городом с трупом неизвестного в багажнике. Феликс страдает раздвоением личности – иногда в нем просыпается его пропавший брат. К тому же он считает себя Холмсом. Оба они - Феликс и доктор - начинают расследовать совершаемые (   Читать дальше...   )Производство: Россия | «Epic media»Жанр: ДетективРежиссер: Дмитрий ПетруньАктеры: Артём Осипов, Вячеслав Чепурченко, Игорь Днепров, Владимир Брест, Константин Вишневский, Карина Реука, Андрей Рыбочка, Арина Долгих, Роман Овшинов-Куулгазын, Мария КуликСубтитры: ОтсутствуютПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C136A5723E545E93BFA2D5188D81A768C63CC3AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822120   (99144) от 05.10.2025
-
-Smart Tools 2 v1.2.1 Mod by TryRoon [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Tools® 2 - это расширенный набор инструментов. «Smart Tools 2» включает в себя все функции существующих «Smart Tools», поэтому мы рекомендуем новым пользователям приобрести это приложение. «Smart Tools 2» = «Smart Tools» + больше инструментов + больше возможностейТип издания: ModРелиз состоялся: 01.10.2025Разработчик: Smart Tools co.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEEB0A0D415709185466115215F860B3EF9A5F4
 ```
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 1792419   (67674) от 19.04.2025
+
+Растровый клипарт - Artnoy - Creative Fabrica - Sliver Metallic Glitter Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с серебристым металлическим блеском.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8E2B91F077EBE8688D96C2FBF007FBBCA54944
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792394   (67675) от 19.04.2025
 
 Растровый клипарт - Creative Store - Creative Fabrica - Bohemian Seamless Pattern Digital Papers [JPG]
@@ -620,33 +644,6 @@ magnet:?xt=urn:btih:0411DCF707816291DBCDB7DD7E19C39C1EA66945
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE1BB622B0BDEF159542DA9FF76B46970F756DA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792553   (67700) от 19.04.2025
-
-Pixel Music AI - Electro Swing, but in Japanese (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz,  Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking the Loop v2 (3:39)
-02. The Train That Never Stops (2:48)
-03. Green Robot (2:18)
-04. Usoko No Kage (3:05)(   Читать дальше...   )Жанр: Jazz,  Electro SwingПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34BD715212B5B3B40C365F119739950B7180631
 ```
 
 

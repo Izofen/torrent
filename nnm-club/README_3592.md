@@ -1,3 +1,192 @@
+###  Публикация: 1705693   (113767) от 09.03.2024
+
+Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aujourd'hui (5:58)
+02. Lâcher-prise (4:20)
+03. 42 à Brest (4:59)
+04. Sobriété (4:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F716BDFBC601E930CE779BD1B161D3B5F9BA59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705757   (113768) от 09.03.2024
+
+Madder Mortem - Red in Tooth and Claw (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood on the Sand
+02. If I Could
+03. Fallow Season
+04. Pitfalls(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CADBA404604BC157C6C2FA1D713DD429862C6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705610   (113769) от 09.03.2024
+
+Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vade Retro
+02. If She Floats
+03. Et Cum Spiritu Tuo
+04. Antecclesia(   Читать дальше...   )Жанр: Doom, Heavy MetalПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C706E004A502BEEA34F974CED6ECCB19C7AA303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705748   (113770) от 09.03.2024
+
+Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Formaldehyde
+02. The Little Things
+03. Armour
+04. Resolution(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4151D12AB3A26AD4287DA4F9BBB484327DB793
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705563   (113771) от 09.03.2024
+
+Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [8:20]
+02. April in Paris [5:05]
+03. Cherokee [2:26]
+04. Goodbye [8:17](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5F78302854161D3901575A2CA3F52EF705ADEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705608   (113772) от 09.03.2024
+
+Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icehouse [00:05:11]
+02. Force Majeure [00:04:44]
+03. Killing Time [00:02:52]
+04. Behind the Tears [00:05:23](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F1F27FBC24DE45207F8143352BFD16A61BED5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705564   (113773) от 09.03.2024
+
+Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby in Rhythm [3:08]
+02. Embraceable You [4:39]
+03. Love for Sale [5:09]
+04. Along with Me [3:19](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBF974D60C3ACC930624FF5C8F72EF92FE37BAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705565   (113774) от 09.03.2024
 
 Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The Honeydripper (1961) 2013, Groove Hut Records [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
@@ -495,192 +684,6 @@ iNet показывает устройства, подключенные к ва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:817DBE6B78975D491A2310719CE61284BDA19B64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705547   (113793) от 09.03.2024
-
-Сто к одному (09.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113793.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Многодетные мамы" против команды "Писатели"Язык озвучки: РусскийПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EE63A0E69B011A375606A900D9AC6EB733A310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705501   (113794) от 09.03.2024
-
-Vlad in Tears - Relapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Away [00:03:23]
-02. Broken Bones [00:02:59]
-03. Day By Day [00:04:05]
-04. Dig Deep [00:03:10](   Читать дальше...   )Жанр: Alt. Rock, Post-Grunge, Hard RockПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3981D244487F247600A0C7663E367E855D9289
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705692   (113795) от 09.03.2024
-
-Synthsoul - Cosmic Funk Chronicles (Original Mix) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cave (Original Mix) (3:51)
-02. Cosmic Funky (Original Mix) (3:50)
-03. Green Gold (Original Mix) (3:27)
-04. Inside (Original Mix) (3:27)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFBFED42256F22725946E3B0BB47354118E8AFCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705704   (113796) от 09.03.2024
-
-Своя игра (09.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113796.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CACE35DF3DFA97A25037AE55A59E42070DD46AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705730   (113797) от 09.03.2024
-
-Voodoo - The Purge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, Hard Rock, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:11]
-02. My Sentence [00:04:13]
-03. Your Friend [00:03:36]
-04. Death's Mark [00:04:37](   Читать дальше...   )Жанр: Progressive Metal, Hard Rock, Gothic MetalПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C887739D89894F99584A030FE7CC407CDF416E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705712   (113798) от 09.03.2024
-
-Algebra - Polymorph & Procreation (2012) Reissue, 2013, Stormspell Records [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.B.
-02. Pig Corporation
-03. Deviant
-04. Away Form Us All(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A392190C61C1FC7FBFCAD6BF49CFA25AF82632
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705687   (113799) от 09.03.2024
-
-Francis Lockwood, Johan Renard - New Surya (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir James (3:53)
-02. Monkamania (3:23)
-03. An Easy Journey (2:55)
-04. New Surya (4:15)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54759560641A3CF79E3484FD7C15BD20A546201
 ```
 
 

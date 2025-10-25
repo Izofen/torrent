@@ -1,3 +1,29 @@
+###  Публикация: 1786447   (69026) от 20.03.2025
+
+Шрифты - Monotype Imaging Inc. - Archive [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Использованный в различных проектах The Entente в течение последних трех лет студийной практики, ARCHIVE развился в свою окончательную форму.
+
+Pro версии шрифта поддерживают кириллицу.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7BB56531184F3D9FD52BE6CC912FEACA7A7E14E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786431   (69027) от 20.03.2025
 
 Сергей Маврин - MavrBand. Премьера (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Metal, Rock>
@@ -629,31 +655,6 @@ magnet:?xt=urn:btih:657526DE6BC8DEDA2121554B81B06346050B2765
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F2E2B0B96DF2A86572C9001AC94FF9A4E9F0809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786309   (69052) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Taler Stencil [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC66AB694980ED24BE4DB4BAD2A118445A74DFF8
 ```
 
 

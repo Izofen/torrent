@@ -1,3 +1,36 @@
+###  Публикация: 471128   (83494) от 21.03.2012
+
+VA - Romantic Collection - Ballads about love (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julio Iglesias - Nostalgie
+02. Fausto Papetti - Windmilles Of Tour Mired
+03. Foreigner - Waiting For A Girl Like You
+04. Overkill - Girl, You`ll Be A Woman Soon
+05. Tony Braxton - Un Break My Heart
+06. Abba - The Winner Takes It All
+07. Cris norman - Some Hearts are Diamonds
+08. Rolling stones - Angie
+09. Sting - Fragile
+10. James Last - Lonesome Shepherd(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C8A2EB588B6372BD7F8D62CEAD69CD1B9C4286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471339   (83503) от 21.03.2012
 
 Trojan Remover 6.8.3.2601 от 19.03.2012 [Английский]
@@ -637,30 +670,6 @@ Sothink SWF Easy - легкая в использовании программа
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471413   (83552) от 21.03.2012
-
-[RePack] Hard Reset {v.1.24} [Ru] 2011 l Naitro
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди и машины — кто победит?Будущее. На Земле, разоренной войной с машинами, остался всего один город, где еще живут люди. Герой Hard Reset майор Флетчер — один из обитателей этой твердыни. И именно ему предстоит сыграть главную роль в конфликте, который определит судьбу всего человечества.Динамичный шутер Hard Reset соединяет в себе самые яркие черты лучших представителей жанра с непредсказуемым сюжетом и неповторимой атмосферой киберпанка, знакомой по фильмам «Матрица», «Бегущий по лезвию бритвы» и «Призрак в доспехах».(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA93529CB4EBAA8BBAE1357A86C79D51F3FCE633
 ```
 
 

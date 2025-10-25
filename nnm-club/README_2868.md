@@ -1,3 +1,36 @@
+###  Публикация: 472061   (83827) от 23.03.2012
+
+VA - Блатной Хит. Только лучшее (2012) [MP3|192 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Саша Адмирал - Ну Как Без Водки
+02. Дмитрий Василевский - Сука-Разлука
+03. Анатолий Корж - Красивая И Смелая
+04. Стас Белый - Романс
+05. Владимир Захаров - Я Любви Бокал Наполню
+06. Виталий Аксенов - Золотые Врата
+07. Темур Темиров - Художник
+08. Слава Медяник - Кукла
+09. Тимур Темиров - Возвращайся
+10. Успенская Любовь - Давай Начнем Сначала2012Жанр: ШансонПродолжительность: 08:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08559440F9693403C162716564C5707062A7A0C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472178   (83829) от 23.03.2012
 
 Журнал | PC Magazine [Россия] №3 (2012) [PDF]
@@ -663,39 +696,6 @@ magnet:?xt=urn:btih:E6C002862B90A3D165D5BDB88ABCB20D12DF17DC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CD28F7583214A7D2554091783F5D794A2BB98C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472128   (83873) от 23.03.2012
-
-VA - Cамые Качающие Треки для Авто - Tоп 55 / 9 (2012) [MP3|320 кб/с]<Club, Dance, Trance, Electro, Dubstep, Drum and bass, Psy-trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adstedt and Alaa feat Lina Harriette - Illusion (Andy Harding remix)
- 02. Aerofeel5 - Fobos (JSmyls remix)
- 03. Aimoon feat Eva Kade - Sweet Silence (Offshore Wind Remix)
- 04. Albert Kick - Evil Girl (Club Mix)
- 05. Alchemix - New Form of Energy
- 06. Analog People In A Digital World feat Sam Obernik - Liar (Reset! remix)
- 07. Andrew Bayer and Matt Lange feat Kerry Leva - In And Out Of Phase (Calyx and Teebee remix)
- 08. Aquascape - Deep and Massive
- 09. Archie.V - Guess What (Club Mix)
- 10. Bingo Players - L'amour(   Читать дальше...   )2012Жанр: Club, Dance, Trance, Electro, Dubstep, Drum and bass, Psy-tranceПродолжительность: 06:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3767EE3D22DDD4EC0690B15C1DADE5A72690F8D
 ```
 
 

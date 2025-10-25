@@ -1,3 +1,30 @@
+###  Публикация: 1706774   (62949) от 14.03.2024
+
+Linkin Park - Lost Demos (2023) [MP3|320 Kbps] <Alternative Rock, Rap Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost (03:19)
+ 02. Fighting Myself (03:21)
+ 03. More the Victim (02:41)
+ 04. Massive (03:08)(   Читать дальше...   )Жанр: Alternative Rock, Rap RockПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70229D38E65526EC71AEE8A5150F90FDAB38DF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706784   (62950) от 14.03.2024
 
 Антон Карелин | Одиссей Фокс (Книга 4). Голос Древних (2024) [MP3, Амир Шакиров]
@@ -606,30 +633,6 @@ magnet:?xt=urn:btih:34CB00B641F4B63A06773D8812B372E6A7F34555
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B49FE8859A596E7E928CE44ABA7B1514164EA82B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706785   (62975) от 14.03.2024
-
-Office Installer & Office Installer+ 1.04 by Ratiborus [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office Installer - программа предназначена для online и offline установки Office 2016/2024 C2R. Так же имеется возможность создать свой дистрибутив Office для последующей установки Office offline.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395AFB4CC103A7D7FF6B2AD319B30638D0EA01EC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1801770   (66166) от 12.06.2025
+
+Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordings Ltd [MP3|320 Kbps] <Britpop, Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Supersonic [4:45]
+02 - Roll With It [4:00]
+03 - Live Forever [4:39]
+04 - Wonderwall [4:22](   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 02:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5B06511BD8F09091941DCF0B44938C8B45D1CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801622   (66167) от 12.06.2025
 
 VA - Keep It Trance Vol. 29 (2025) [MP3|320 Kbps] <Trance>
@@ -651,33 +678,6 @@ Display Tester v5.35.5 Mod by Balatan [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:100C223F93CE8E7F997EAF9B1332C4F84A6651C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801760   (66192) от 12.06.2025
-
-The Cure - Mixes Of A Lost World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Can Never Say Goodbye (Paul Oakenfold "Cinematic" Remix) [4:16]
-02 - Endsong (Orbital Remix) [6:24]
-03 - Drone:Nodrone (Daniel Avery Remix) [5:21]
-04 - All I Ever Am (meera remix) [8:03](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, RockПродолжительность: 02:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CDFD4804D00884D079514356989A617A175EBC
 ```
 
 

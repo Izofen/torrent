@@ -1,3 +1,28 @@
+###  Публикация: 1791401   (67856) от 13.04.2025
+
+BABY Audio - Smooth Operator Pro 1.0 VST, VST 3, AAX [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smooth Operator Pro - Спектральный балансировщик сигнала.
+Мы разработали новую версию Pro без ущерба для быстрого рабочего процесса, который сделал Smooth Operator 1 таким популярным. Задайте желаемую целевую кривую, затем поворачивайте регулятор глобального порога до тех пор, пока плагин не начнёт балансировать ваш звук. При необходимости погрузитесь в глубокие (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643C25A6FFB0EBEF4B7AAD80C2F660B955716B1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791139   (67857) от 13.04.2025
 
 Paul van Dyk - This World Is Ours (2025) [FLAC|Lossless|WEB-DL|tracks] <Trancecore, Electronic>
@@ -634,33 +659,6 @@ magnet:?xt=urn:btih:5B84D3AEBC46D810943BB5D19E553871A8F5157B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F63F49D6987D81F4E65081C18BAA8A4EAE1BF236
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791260   (67882) от 12.04.2025
-
-Alex Okami - Strange As Angels (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Darkwave, Post-Punk, Gothic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Dark [00:03:13]
-02. Telarañas [00:03:48]
-03. Under My Skin [00:03:22]
-04. Monster [00:03:36](   Читать дальше...   )Жанр: Darkwave, Post-Punk, Gothic RockПродолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7306BA225FCA50E532DDA060BC7AA76629AA8044
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1806047   (65412) от 10.07.2025
+
+Joe Pass Quartet - Live At The Encore Theatre (1964) 2017, Phono [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Spring [8:46]
+02. Some Time Ago [6:44]
+03. The Night Has a Thousand Eyes [7:15]
+04. Relaxin' at Camarillo [10:40](   Читать дальше...   )Жанр: Bop, Guitar JazzПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2797B9D97DA744B3D3D8259598E89FC07F2A4C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806075   (65413) от 10.07.2025
 
 In a Darkened Room - VOIX (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave / Post-Punk>
@@ -649,33 +676,6 @@ magnet:?xt=urn:btih:D4C2A97969EA59A7D39A8374854176FCE7CB7DCB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC651F0A4F4DB6625A8766099E0DB86BA618375
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805563   (65438) от 06.07.2025
-
-Angra - Cycles Of Pain (2023) [FLAC|Lossless|image + .cue] <Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyclus Doloris
-02. Ride Into The Storm
-03. Dead Man On Display
-04. Tide Of Changes - Part I(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F146DBA6E1E12FEC3DE5A00B17DE226D3864D6
 ```
 
 

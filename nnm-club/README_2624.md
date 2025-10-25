@@ -1,3 +1,30 @@
+###  Публикация: 1786685   (68974) от 21.03.2025
+
+Lordi - Limited Deadition (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - SCG XIX The Hexecutioners [0:55]
+02 - Legends Are Made Of Clichés [3:59]
+03 - Syntax Terror [4:11]
+04 - Skelephant In The Room [3:45](   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, MetalПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DDEF1CDF2271E8643BBEBABE4BA6AD576EAB82D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786566   (68975) от 21.03.2025
 
 Калевала - Глазами Офелии (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Metal>
@@ -646,33 +673,6 @@ VA - Night'n Day Music Tracks (Expanded Edition) (Mike Mareen and His Music Prod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C793B32592C8BA5A91527F0869F5273B5D33B54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786568   (69000) от 21.03.2025
-
-Леонид Фёдоров & Игорь Крутоголов - В солнечном блеске (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В солнечном блеске
-2. Если солнце село в лужу
-3. Ворон к ворону
-4. Альбатрос(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DDFF8E92E103D343E413802F3775C14B45C159
 ```
 
 

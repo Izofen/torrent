@@ -1,3 +1,30 @@
+###  Публикация: 1798715   (66452) от 27.05.2025
+
+Woody Herman - The Fourth Herd & The New World of Woody Herman (1959, 1962) 1995, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panatela [3:01]
+02. Lament for Linda [2:51]
+03. Misery, Stay 'Way from My Door [2:39]
+04. In a Misty Mood [3:25](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED68DBBE9DB8D027C82A3745B12B88EDCE43901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799368   (66453) от 27.05.2025
 
 Al Hirt - Cherry Pink And Apple Blossom Wine (2001) High Definition Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
@@ -644,33 +671,6 @@ magnet:?xt=urn:btih:30A5AB92FFD7268F6141FC6D823A5A2E48AC9BCB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:302102524558B2539FB37603F46ED9ED7EFBEE5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799298   (66478) от 27.05.2025
-
-Sarah Connor - Freigeistin (2025) [MP3|320 Kbps] <Pop, Rhythm and Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heut’ ist alles gut [3:10]
-02 - Wilde Nächte [2:29]
-03 - Souvenir [2:33]
-04 - FICKA [2:25](   Читать дальше...   )Жанр: Pop, Rhythm and Blues, SoulПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7541C0F8AA0216966561AC55081DC52EF126248B
 ```
 
 

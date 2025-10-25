@@ -1,3 +1,30 @@
+###  Публикация: 1794587   (67258) от 29.04.2025
+
+Redemption - The Hard Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kick Away (4:33)
+02. The Flame (3:50)
+03. Thunder & Pain (5:20)
+04. The Hard Way (3:16)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1618EB172DA1251BC2C5F8441A2F6B1543BB0BBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794554   (67259) от 29.04.2025
 
 Ged Wilson - Regular Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -637,33 +664,6 @@ A.R.A.T.A.N - Chants Nerviens (2025) [MP3|320 Kbps] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A3A1C9F5CC37B5150903876803007773534319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794023   (67284) от 28.04.2025
-
-Goose - Shenanigans Nite Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 So Ready(04:35)
-02 (setellite)(04:37)
-03 Madhuvan(10:16)
-04 SOS(03:41)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664EFE910D9814976A9FC7CE49FC040FDB17DD01
 ```
 
 

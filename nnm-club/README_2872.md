@@ -1,3 +1,36 @@
+###  Публикация: 472302   (84012) от 23.03.2012
+
+Microsoft Windows 7 Ultimate Ru x86/x64 SP1 WPI Boot by OVGorskiy® 20.03.2012 1DVD
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows 7 Ultimate Ru x86/x64 SP1 WPI Boot OVG (2 ОС на одном DVD)
+Данная сборка содержит в себе ОС Windows 7 Ultimate с возможностью выбора разрядности 32 или 64 бит при установке.
+Так же содержит набор программ с тихой установкой в сборнике WPI и файл помощи по установке ОС.
+Автор сборки: OVGorskiy® / http://ovgorskiy.ru
+Сборка основана на официальных образах MICROSOFT MSDN:
+ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso и ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso.
+Установка полностью ручная с выбором параметров установки.
+Список программ, которые будут установлены автоматически при установке системы:
+Adobe Reader X 10.0.1, WinRAR 4.01 Rus x32/x64, AIDA64, Mozilla Firefox, Uninstall Tool.
+Интегрирована тема оформления и гаджеты "New Look 2" от Smarty. (см. скришоты)(   Читать дальше...   )Название программы: Microsoft Windows 7 Ultimate Ru x86/x64 SP1 WPI Boot by OVGorskiy® 20.03.2012 1DVDЯзык интерфейса: Русский (Россия)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471856   (84013) от 23.03.2012
 
 Q: Загадка женщины / Q (2011) DVDRip
@@ -682,39 +715,6 @@ magnet:?xt=urn:btih:B1142BF1125465B4568CA5DF6AE48582B9D30B55
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21E70B03BAD980BC17AAD47C75B430290030B8EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472474   (84063) от 24.03.2012
-
-Don Burrows & The Mell-O-Tones - Non-Stop Flight: Great Music of the Swing Era (2005) [FLAC|Lossless]<Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84063.jpg" />
-</div>
-
-
-###  Подробнее
-
-ACT 1
-1. Let’s Get Together (Edgar Simpson / Chick Webb)
-2. Non-Stop Flight (Artie Shaw)
-3. All or Nothing at all (Jack Lawrence / Arthur Altman)
-4. Don’t be that way (Mitchell Parrish / Benny Goodman / Edgar Simpson)
-5. At Last (Mack Gordon / Harry Warren)
-6. Honeysuckle Rose (Andy Razaf / Thomas "Fats" Waller)
-7. Moon Glow (Eddie De Lange / Will Hudson)
-8. No Love, No Nothin’ (Mack Gordon / Harry Warren)
-9. Amapola (Albert Gamse / James Lacalle)(   Читать дальше...   )2005Жанр: Jazz, SwingПродолжительность: 01:15:41
-
-## Скачать торент
-```bash
-нет
 ```
 
 

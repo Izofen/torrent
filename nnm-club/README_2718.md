@@ -1,3 +1,30 @@
+###  Публикация: 1775433   (71418) от 27.01.2025
+
+VA - Dance Classics Vol. 1 (1998) [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny ''Guitar'' Watson - A Real Mother For Ya
+02. Boz Scaggs - Lowdown
+03. Brothers Johnson - Strawberry Letter 23
+04. Stretch - Why Did You Do It(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F56536C8C0F1EC5DC1C3B618C4D1D69CD24C98E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775486   (71419) от 27.01.2025
 
 VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
@@ -647,32 +674,6 @@ Joel Corry - Tomorrowland Friendship Mix (2025-01-23) [MP3|320 Kbps] <Tech House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1EF43EE225EE8FC90B30777B10E5F343DC55011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775393   (71444) от 26.01.2025
-
-Чудо техники с Сергеем Малозёмовым (26.01.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как стать кудрявым? Почему выпадают волосы у поклонниц американского кудрявого метода? И правда ли, что новая процедура в салонах — биозавивка — безопаснее старой жуткой химии?
- Как устроены банкоматы, и можно ли обмануть сложную систему?
- Способна ли ортопедическая подушка наладить сон?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4CCDB613C4713BD15CE6C90599FBA0252E0280
 ```
 
 

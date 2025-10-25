@@ -1,3 +1,30 @@
+###  Публикация: 1799272   (66504) от 26.05.2025
+
+The Ossuary - Requiem for the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrifice (04:29)
+ 02. Altar in Black (05:17)
+ 03. Far from the Tree (04:57)
+ 04. Wishing Well (05:04)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E8E5532EBE5AD59EFDA38E2FD3B4A44DB93C74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798781   (66505) от 26.05.2025
 
 Necrochakal - Golgothian Orgies of Bestial Lust (2025) [MP3|320 Kbps] <Black, Thrash Metal>
@@ -618,33 +645,6 @@ magnet:?xt=urn:btih:00034EDB3219235878D4C207D7F8B816D4EC269A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:712A1F3A78062FE0994CBAC041F803EEF47ACF86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798971   (66530) от 25.05.2025
-
-Brace - Self Titled (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undo [00:03:59]
-02. Surge [00:04:05]
-03. Meek [00:04:13]
-04. Safe [00:05:21](   Читать дальше...   )Жанр: Alternative Metal, Nu MetalcoreПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2C0F4C671839A95933AC18ACEDE635D4BF971B
 ```
 
 

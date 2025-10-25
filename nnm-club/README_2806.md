@@ -1,3 +1,36 @@
+###  Публикация: 464050   (80571) от 07.03.2012
+
+Adrenaline Mob - Omerta (2012) [MP3|320 кб/с]<Alternative Metal / Heavy Metal / Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undaunted (04:44)
+02. Psychosane (04:37)
+03. Indifferent (04:30)
+04. All On The Line (04:20)
+05. Hit The Wall (06:32)
+06. Feelin' Me (03:55)
+07. Come Undone (04:50)
+08. Believe Me (03:59)
+09. Down To The Floor (03:33)
+10. Angel Sky (04:25)(   Читать дальше...   )2012Жанр: Alternative Metal / Heavy Metal / Hard RockПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B75D1133EF1131347433F5A55CAB58688D01F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463508   (80572) от 07.03.2012
 
 VA - Christopher Lawrence & John '00' Fleming - Global Trance Grooves Vol. 1: Two Tribes (2008) [FLAC|Lossless]<Psy-Progressive>
@@ -623,30 +656,6 @@ magnet:?xt=urn:btih:34448687666F0285D0295EE997C671CFCFBCD462
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:229A35EF3F0EE317FAE27687DB5EA8593BC92D06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463933   (80668) от 07.03.2012
-
-Гиены / Hyenas (2010) HDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кланы странных существ - полу люди полу гиены, выслеживают и зверски убивают человека за человеком. На них охотится лишь один храбрец, желающий лишь отомстить за смерть любимых.Жанр: УжасыРежиссер: Эрик УэстонАктеры: Криста Кэмпбелл, Костас Мэндилор, Рудольф Мартин, Джошуа Альба, Мешах Тэйлор, Эндрю Джеймс Аллен, Бар Пали, Кристина Мерфи, Стивен Тейлор, Майкл НарделлиПеревод: ДублированныйПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0074AF8555B27A10654BA75272D5B20A82F7D09F
 ```
 
 

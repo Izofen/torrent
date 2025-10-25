@@ -1,3 +1,30 @@
+###  Публикация: 1785911   (69130) от 18.03.2025
+
+Various - Ronnie James Dio - This Is Your Life (2014) Japanese Edition, Compilation [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthrax–	Neon Knights
+Mixed By – Jay Ruston
+Written-By – Ward, Butler, Dio, Iommi
+4:29(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48F60F5CCB0565974DE53C410D99351FB96295E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785874   (69131) от 18.03.2025
 
 Журнал | Добрые советы. Люблю готовить! №3 (март 2025) [PDF]
@@ -640,32 +667,6 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 2 (2025) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72EC34F418B7F4E9200AB905B3AC10A1889E19E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785734   (69156) от 17.03.2025
-
-Шрифты - Creative Market - CS Wilona Drawn - 290798539 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это современный шрифт с засечками, который может похвастаться минималистскими буквенными формами с чистыми, острыми краями. Этот гладкий дизайн передает ощущение изысканности и эстетической привлекательности, что делает его идеальным выбором для высококлассных и профессиональных проектов.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C071C015D98D938B155D00E80BAA0C2D407213B0
 ```
 
 

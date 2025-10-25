@@ -1,3 +1,96 @@
+###  Публикация: 468358   (97072) от 18.03.2012
+
+Yehudi - Groove Technology (2012) [MP3|320 кб/с]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97072.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Neurotronic (8:06)
+ 2 - Zorn energy (7:18)
+ 3 - Alienform (9:02)
+ 4 - The Game Pieces (8:42)
+ 5 - Crystal Cave (8:19)
+ 6 - What you do (7:57)
+ 7 - Stone Flute (8:06)
+ 8 - Made of Dreams (Sweet Dreams RMX) (8:45)
+ 9 - Flow Rising (8:31)Жанр: Psychedelic / Full OnПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD13EB17A0FCBFCC09E77D25F267183CBBAC2921
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469591   (97073) от 18.03.2012
+
+VA - TMP: Clear Sky 064 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Fox - In The Corner (Carlos Fox B Side Remix)
+02. Ex-Driver & Alex Piletski - Last Rain (Original Mix)
+03. Dave Horne - Light & Dark (Original Mix)
+04. Daniel Wanrooy - Lotus (Original Mix)
+05. Des McMahon - Pure (Original Mix)
+06. Dart Rayne - Sanctum (Original Mix)
+07. Falcon - Saturday Fjord (Original Mix)
+08. Cosmic Gate & Arnej - Sometimes They Come Back For More (Alex ORion Bigger Room Mix)
+09. Eco - We Watched The Sunrise Till Our Eyes Burned Out (Original Mix)
+10. Euphoric Feel - When It All Began (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4AD5F44ED43E3CAE7402DF04A27ECA68B04A7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470022   (97074) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 101
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97074.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 101
+Название: Desktop Wallpapers Pack 101
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C30AFFB9943BB0CB086ED0CAA568E3A2B4AA381
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470142   (97075) от 18.03.2012
 
 [Wallpapers] Best Wallpapers Pack 1
@@ -703,91 +796,6 @@ VA - XXXL Хитовый сезон Русский (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25D208FD18D7577B271623076A50351FBE451205
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469517   (97115) от 18.03.2012
-
-AOR - The Colors of L.A (2012) [MP3|320 кб/с]<Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenny At Midnight (04:32)
-02. Benedict Canyon (04:30)
-03. Kimberly (04:33)
-04. Under Your Spell (04:32)
-05. Brittany (04:56)
-06. Halo of Light (03:44)
-07. Just One Kiss On Your Heart (05:29)
-08. Dreams From Silver Lake (04:17)
-09. You're My Obsession (03:27)
-10. Teach Me How to Love You Again (05:52)(   Читать дальше...   )2012Жанр: Melodic RockПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E250E32021F96BE088E257450B7D5C94CD6B4AF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469625   (97117) от 18.03.2012
-
-[Wallpapers] Fantasy Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97117.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Fantasy Desktop Wallpapers Pack 4 
-Название:  Fantasy Desktop Wallpapers Pack 4 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1300х813 - 3953х2920
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57A18B11841BF0B9365B94B5D9583F7E48E9713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469784   (97120) от 18.03.2012
-
-Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Мужчины. Гонка преследования (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужская гонка преследования на этапе кубка мира по биатлону в Ханты - МансийскеЖанр: СпортПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED953F0238EB1AFEF6F980588AA5B170702DCD1
 ```
 
 

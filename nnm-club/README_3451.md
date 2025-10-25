@@ -1,3 +1,190 @@
+###  Публикация: 1720843   (110087) от 06.05.2024
+
+Big Wolf Band - Rebel's Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empire and a Prayer (3:59)
+02. Valley of the Fallen Kings (5:59)
+03. Lay It on the Line (3:48)
+04. Rise Together (4:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76F05E39DBA8991FE3F201BB848199A18748247D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721383   (110088) от 06.05.2024
+
+МузЛофт-подкаст / МузLoft. Ираклий Пирцхалава (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ираклий Пирцхалава. Разговор о Боге, грузинах и Кобзоне.
+На этот раз в студии Музлофт оказался фабрикант, чьи хиты до сих пор поют в караоке, а сам он их петь не может. Об этом и многом другом вы узнаете, посмотрев выпуск с Ираклием Пирцхалавой.Производство: Россия | Y-GenerationУчастники: Ираклий ПирцхалаваПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6122D6C9323F2FFE0D9E82EF386EB6AE90115D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720860   (110089) от 06.05.2024
+
+Val Starr & the Blues Rocket - To the Blues and Back Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Been To The Blues And Back Again (3:31)
+02. Bitter Pill (5:18)
+03. Take A Stand (4:36)
+04. If You Don't Blues It, You'll Lose It (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C9166B2F0552FA40368DDB72ED0E9B6C702390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721023   (110090) от 06.05.2024
+
+Dug Masters - Fantastic Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UFO (4:06)
+02. Moon Lover (4:33)
+03. Companion Trip (3:34)
+04. Nautilus (4:03)(   Читать дальше...   )Жанр: Spacewave, SynthwaveПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24158B711073107AD5D8D2A641C0962A06B24782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720591   (110091) от 06.05.2024
+
+The Milk Men - Holy Cow! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Man Band (3:27)
+02. Hungover (2:56)
+03. Give a Little Love (3:05)
+04. Wild Girls (2:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D82824A3198B51C2B140B4728EC38BCD41E3C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720890   (110092) от 06.05.2024
+
+Willow - empathogen (2024) [FLAC|Lossless|WEB-DL|tracks] <alternative pop, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. home [00:03:03]
+02. ancient girl [00:01:30]
+03. symptom of life [00:03:09]
+04. the fear is not real [00:03:38](   Читать дальше...   )Жанр: alternative pop, Jazz RockПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962D5F2305CBBFADE4CE0F7ED33D34F4E8FD1DF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720886   (110093) от 06.05.2024
+
+Keith Wallen - Infinity Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinity [00:03:18]
+02. Strings [00:02:34]
+03. Headspace Holiday [00:03:13]
+04. The Wolf [00:03:43](   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1543DAC5D82D664BEA715EBB4BFAC7E8277C1B4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721256   (110094) от 06.05.2024
 
 VA - Chill Out Vibes (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
@@ -484,194 +671,6 @@ magnet:?xt=urn:btih:4F68C6154F72DFA631C4FF64510860C5009C5023
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8749EB6EA6EC07B40F20C7462AFED872B2540BC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720859   (110113) от 06.05.2024
-
-VA - Monday Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - The Chain (2004 Remaster) (4:28)
-02. Ben E. King - Stand by Me (3:00)
-03. Curtis Mayfield - Move On Up (2:46)
-04. Booker T. & the M.G.'s - Green Onions (2:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB5FAF26A16672B6538858F6F627C9B1CB9D37D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721263   (110114) от 06.05.2024
-
-Marvel83' - 5th Element (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For You, Luisa [00:04:58]
-02. Welcome to My World [00:05:34]
-03. Those Kind of Memories [00:04:44]
-04. Ghost of Ayutthaya [00:04:16](   Читать дальше...   )Жанр: Retrowave, SynthwaveПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CD6F97259C7D5985DFD0F1DAF6A9C8EE4A4B5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721352   (110115) от 06.05.2024
-
-Paul Jabara - The Third Album (1979) LP [MP3|320 Kbps] <Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй трек от Donna Summer01. Medley: Disco Wedding - Honeymoon (In Puerto Rico) - Disco Divorce (14:05)
-02. Medley: Foggy Day - Never Lose Your Sense Of Humor (9:47)
-03. Just You And Me (5:11)Жанр: Disco, Funk SoulПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881796472A8B2231845BE1B427BD9E9A47F8F894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720854   (110116) от 06.05.2024
-
-The Head Hunters Blues Band - Back from the Delta (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who's Coming Down the Road (3:41)
-02. Just Can't Keep from Crying (3:30)
-03. Bye Bye Baby (4:18)
-04. I'll Get Along Some How (2:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA43D508296C1C8E7AC86695F1D084638FC8373
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721317   (110117) от 06.05.2024
-
-Spacebirds - Singles Team (Singles Collection 2008-2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desafio de Neon (Extended Version) (7:05)
-02. Spaceship Lab (Cosmo Day Mix 2022) (4:40)
-03. Princess Of Venus (R-Mix 2021) (7:28)
-04. Cosmonaut Dreams (Space Day Version) (7:50)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 02:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D564A46E86A197D00900EE1FE0837D7C788984
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721275   (110118) от 06.05.2024
-
-VA - Futurenow (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Chillwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exemia & Thermal Noise - Insert Memory Disk (5:19)
-02. Lexinton Tales - Dead End (3:48)
-03. GlitchBay - Simulation (3:22)
-04. Blind Cobra - Viper Vice (2:57)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ChillwaveПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F97856096F913AA6299A6F52D564C8C9D65A53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721026   (110119) от 06.05.2024
-
-Dug Masters - Digital Variety (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Eagle (5:42)
-02. Eva (4:15)
-03. Seas of Saturnia (5:16)
-04. Cosmovision (5:28)(   Читать дальше...   )Жанр: Spacewave, SynthwaveПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E166F86A1724C02D19EB9F16B5464F8B04B9EA
 ```
 
 

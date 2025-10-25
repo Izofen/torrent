@@ -1,3 +1,189 @@
+###  Публикация: 1741775   (105563) от 11.08.2024
+
+VA - Nahawand: Best of Vocal Trance (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Zimmer & Lorraine Gray - Underwater (Original Mix) [7:47]
+02. Ciro Parcheri & Hidden Tigress - Heaven (Derek Palmer Remix) [7:20]
+03. Alex Shevchenko & iThur & Hidden Tigress - Fill The Sky (Original Mix) [6:07]
+04. Peitora & Ciro Parcheri feat. Rebuild - Live For (Original Mix) [5:06](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A326F21AC908A70923FF8500EE0720480BA834
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742321   (105564) от 11.08.2024
+
+Ирина Фуфаева | Как называются женщины (2020) [MP3, Ирина Фуфаева]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига лингвиста Ирины Фуфаевой «Как называются женщины. Феминитивы: история, устройство, конкуренция» появилась как нельзя вовремя: в СМИ, и в первую очередь, в интернете, не стихают споры насчет «авторок» и «блогерок», «специалисток» и «редакторок», а сторонники и противники новых словообразований, регулярно скрещивают мечи и ломают копья, пытаясь отстоять (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 08:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7351172847660B1132392C3F81AA78A3B312B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742240   (105565) от 11.08.2024
+
+Areal Kollen - 4 Albums (2023-2024) [MP3|320kbps|tracks] <EBM, Industrial, Aggrotech>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - Vampirism Kingdom Part 1
+2024 - Late Night Dreams
+2024 - The Grey Disc(   Читать дальше...   )Жанр: EBM, Industrial, Aggrotech, ectПродолжительность: 4 CD, 04:08:12,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8043DBDEBE198516DEEA90F414E1FEF7944E806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741764   (105566) от 11.08.2024
+
+VA - Top June 2024 Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JJ Garcia - Sounds From Istar B (Intro Mix) [3:37]
+02. Elgfrothi - Believe (Vocal Mix) [5:36]
+03. D.J.G. & M.I.K! vs. DJ MacX - Indian Spring (Original Mix) [6:25]
+04. Alphacube - Morning Glow (Shouga Remix) [7:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8187474C026B0BDE114869EC9295539640F0CA81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741797   (105567) от 11.08.2024
+
+VA - Summer Collection 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible Signs - Astrasia (Original Mix) [8:42]
+02. ppdee & Asida Aya - Bubbles (Extended Mix) [7:57]
+03. Vaim - Dreaming (Original Mix) [4:42]
+04. Sasha Sound - Deliverance (Original Mix) [6:33](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F20778EF50DAE98542FACE0E482E88878DE27EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742448   (105568) от 11.08.2024
+
+Braille - Triple Transit (2024) [FLAC|Lossless|WEB-DL|tracks] <experimental, electronic, house, idm>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cost Of Living [00:03:43]
+02. Suntime [00:03:08]
+03. Summer Sizzle [00:03:10]
+04. Ups [00:05:05](   Читать дальше...   )Жанр: experimental, electronic, house, idmПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC161401495B5149BF8C9CF0AE6131915DB49DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741777   (105569) от 11.08.2024
+
+VA - Nahawand: Best of Progressive Trance (2024) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henry Caster - Showroom (Original Mix) [5:20]
+02. DJ Geri - Turn The Volume Down (Original Mix) [5:38]
+03. Votchik - Furious Rate (Original Mix) [5:35]
+04. Peitora & Ciro Parcheri feat. Rebuild - Live For (Original Mix) [5:06](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC46F46630AA529244551FBCDD15915CF4C09F61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742490   (105570) от 11.08.2024
 
 Luna Falling - Ctrl + End (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Metal, Post-Hardcore, Electronic>
@@ -495,190 +681,6 @@ Honey Revenge - Retrovision (2023) Extended Edition, 2024, Thriller Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AC3FC195307A1DA3088CFC83DFD2D6D9FB7E26C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742105   (105589) от 10.08.2024
-
-Dark Funeral - Dark Funeral (30th Anniversary Edition) (1994) EP, Reissue, Remastered, 2024, Century Media [FLAC 24/96|Lossless|WEB-DL|tracks] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Open the Gates [4:35]
-02 - Shadows Over Transylvania [4:23]
-03 - My Dark Desires [3:53]
-04 - In The Sign of the Horns [3:46](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A80F8CE1F141EA5D4CB965D3E9B7F199314D3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742228   (105590) от 10.08.2024
-
-Siamese - Elements (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Post-Hardcore, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Shape Of Water [3:35]
-02 - Vertigo [3:40]
-03 - Predator [3:41]
-04 - Chemistry [3:25](   Читать дальше...   )Жанр: Rock, Post-Hardcore, Alternative RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00893CD45431E99DA45137536EDD081B0BA240C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742062   (105591) от 10.08.2024
-
-Марина Вайсберг - Я женщина приличная (2024) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Булка [00:01:40]
-02 - Вася [00:01:56]
-03 - Тюльпаны [00:01:30]
-04 - Жрушка [00:01:29](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053A515020818F949570491629D61C2DA9ECB94E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741558   (105592) от 10.08.2024
-
-МузЛофт-подкаст / МузLoft. Торнике Квитатиани (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торнике Квитатиани. Как борец стал вокалистом. Про Выжить в Дубае, Голос и КВН.
-Многогранный артист сегодня у нас в подкасте. Торнике расскажет про сложности в мире селебрити, желание написать хит, как случайно попал в команду к Борцам и пооткровенничает о шоу «Выжить в Дубае». Усаживайтесь поудобнее!Производство: Россия | Y-GenerationУчастники: Торнике КвитатианиПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DB8279A6E6BC760A8BA5DFCEC5B5CBB9F8AC46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742252   (105593) от 10.08.2024
-
-Lumen - Lumen & Orchestra (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro + Далеко (Live)
-2. Не надо снов (Live)
-3. Кофе (Live)
-4. Истина (Live)(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 01:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667986E46A21ECB16DDE23DC01AD98625DE1F341
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742292   (105594) от 10.08.2024
-
-OpenNumismat 1.9.11 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105594.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenNumismat является удобным и надежным приложением, предназначенным для коллекционеров монет и нумизматов, для создания нумизматической коллекции.
-С OpenNumismat вы сможете организовывать и управлять коллекцией монет: создавать подробный каталог ваших монет, списки нужного и проданного, просматривать статистику вашей коллекции.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA51CD61653CC34D37C08FBAF2526EB7DCE5677
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742204   (105595) от 10.08.2024
-
-Главная дорога (10.08.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Законно ли требовать права на управление самокатом?
- Тяни — толкай! Что надежнее — покупные или самодельные механизмы? Андрей Федорцов и Денис Юченков испытали на прочность себя и ручные лебедки: помогут ли они вытащить машину из грязи без трактора?
- Смотреть в оба: управлять взглядом, машиной и велосипедом с айтрекером на глазах учился актер Александр Барановский. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0328DA5069E08A71C33A3349FB043D979CBE9459
 ```
 
 

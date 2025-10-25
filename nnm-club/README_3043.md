@@ -1,3 +1,83 @@
+###  Публикация: 466405   (96309) от 11.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 65
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96309.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 65
+Название: Desktop Wallpapers Pack 65
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1600х1200 до 2560х1920
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5750B75A9D161AC6805109FD8C4DC758F877A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466417   (96310) от 11.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 69
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96310.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 69
+Название: Desktop Wallpapers Pack 69
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404B3DD2670E38A77EDFD40144542E83B2A05817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466043   (96314) от 11.03.2012
+
+Бесстрашные путешественники / Intrepid Journeys (сезоны 1-3, серии 1-20 из 20) (2008-2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитости Новой Зеландии отдают ключи от пятизвездочных номеров-люкс, - взамен получают рюкзак и отправляются в далекие и невероятные путешествия. Отказавшись от бесплатного Spa, номинант на приз Американской киноакадемии Киша Касл-Хьюз отведает блюда экзотической кухни Танзании и Занзибара, а судья кулинарного шоу Masterchef Симон Голт отправится в Турцию за (   Читать дальше...   )Телекомпания: Travel Channel InternationalЖанр: ТелепередачаРежиссер: Jant Andrews и Melanie RakenaПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 20 x ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2A8BD443F0C6E9A661731DF2D9E60CF3E4BE61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466446   (96317) от 11.03.2012
 
 Русский берег. След Фукусимы (2012.03.11) SATRip
@@ -675,91 +755,6 @@ magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DDAD143511E483184D3A07EAAEDD5B4B129B148
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466643   (96415) от 12.03.2012
-
-Газета | Ждём гостей №3 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие кулинарные рецепты к торжествам и праздникам. Газета поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B05217B0709E862823FB0F25DCCC81EB75902DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466608   (96419) от 12.03.2012
-
-VA - House Vip (10.03.12) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96419.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A-Peace – Electronique (Original Mix) (5:34)
- 2. Bassmonkeys, Dominatorz - Don't Throw It Away Feat. Amanda Wilson (Chris Kaeser Remix) (5:33)
- 3. Clark & Kent - Catch a Star (Andy Chiles Remix) (7:31)
- 4. Deadmau5 - Ghosts N' Stuff (Beef Theatre Remix) (5:40)
- 5. Electro Makerz - U Got Me Rocking (Original Mix) (5:03)
- 6. GOTYE - Somebody I Used To Know (It's The DJ Kue Remix!) (5:12)
- 7. Kelly Clarkson - Stronger (What Doesn't Kill You) (7th Heaven Club Mix) (7:28)
- 8. Laurent Simeca - Miami (Original Mix) (5:46)
- 9. Replug - Let's Rock (Soulfix & Chi No Remix) (5:48)
- 10. The Digital Monkey - Radeon (Original Mix) (6:52)2012Жанр: Electro HouseПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466416   (96420) от 12.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 68
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96420.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 68
-Название: Desktop Wallpapers Pack 68
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B63125022FF44EAA77F63B05E3AB03E5E00327
 ```
 
 

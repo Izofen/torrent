@@ -1,3 +1,30 @@
+###  Публикация: 1804228   (65698) от 28.06.2025
+
+Frank Zappa, The Mothers Of Invention - Cheaper Than Cheep: The Soundtrack (Live 1974) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Could I Be Such A Fool (Live June 21, 1974) [00:04:01]
+02. I'm Not Satisfied (Live June 21, 1974) [00:02:16]
+03. Wowie Zowie (Live June 21, 1974) [00:02:26]
+04. I Don't Even Care (Live June 21, 1974) [00:01:19](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC6F574BB0C84A08EAAE0DCAD23BAF5A2833DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804272   (65699) от 28.06.2025
 
 Круиз по греческим островам | «Поедем, поедим!» (28.06.2024) WEBRip [H.264/720p]
@@ -635,33 +662,6 @@ Unterschicht - Golem Akt 1 - Die Erweckung (2025) [MP3|320 Kbps] <Dark Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBE7BCA47864A69C5B2B2B8785C4A903737A3FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803914   (65724) от 26.06.2025
-
-Triumph - Magic Power: All Star Tribute to Triumph (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  24 Hours a Day (1:22)
-02.  Rock & Roll Machine (4:51)
-03.  Magic Power (5:29)
-04.  Spellbound (4:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7278DC242E550150590E5DF54FCF91A4980CD148
 ```
 
 

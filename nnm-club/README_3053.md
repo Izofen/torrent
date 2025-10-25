@@ -1,3 +1,83 @@
+###  Публикация: 469382   (97041) от 17.03.2012
+
+Подборка журналов | Библиотека журнала Моя любимая дача №1,2,4 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя любимая дача - советы читателей. Описаны правила выбора сортов,посева и выращивания в открытом грунте: №1 - свеклы и моркови, №2 - капусты, №4 - зеленых культур. Приведены основные правила выращивания - период вегетационный, допустимые сроки посева, особенности агротехники. Сбор урожая и хранение. Приведены целебные свойства культур.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2611E1EA72F57A48A7D5E21769A052270C900E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470172   (97044) от 18.03.2012
+
+[Wallpapers] Best Wallpapers Pack 6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97044.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Best Wallpapers Pack 6
+Название: Best Wallpapers Pack 6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F88136103B86290E166CBCB2532244F937434AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469971   (97045) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 93
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97045.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 93
+Название: Desktop Wallpapers Pack 93
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1400х900 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6DCCFBE92C6875E7FBC0F78424612402BA88D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469830   (97046) от 18.03.2012
 
 Sacramentum - Thy Black Destiny (1999) [MP3|320 кб/с]<Melodic Black/Death Metal>
@@ -673,99 +753,6 @@ VA - TMP: Clear Sky 063 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1CE346137E39283261204F69C8C814A975C016
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468358   (97072) от 18.03.2012
-
-Yehudi - Groove Technology (2012) [MP3|320 кб/с]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97072.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Neurotronic (8:06)
- 2 - Zorn energy (7:18)
- 3 - Alienform (9:02)
- 4 - The Game Pieces (8:42)
- 5 - Crystal Cave (8:19)
- 6 - What you do (7:57)
- 7 - Stone Flute (8:06)
- 8 - Made of Dreams (Sweet Dreams RMX) (8:45)
- 9 - Flow Rising (8:31)Жанр: Psychedelic / Full OnПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD13EB17A0FCBFCC09E77D25F267183CBBAC2921
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469591   (97073) от 18.03.2012
-
-VA - TMP: Clear Sky 064 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Fox - In The Corner (Carlos Fox B Side Remix)
-02. Ex-Driver & Alex Piletski - Last Rain (Original Mix)
-03. Dave Horne - Light & Dark (Original Mix)
-04. Daniel Wanrooy - Lotus (Original Mix)
-05. Des McMahon - Pure (Original Mix)
-06. Dart Rayne - Sanctum (Original Mix)
-07. Falcon - Saturday Fjord (Original Mix)
-08. Cosmic Gate & Arnej - Sometimes They Come Back For More (Alex ORion Bigger Room Mix)
-09. Eco - We Watched The Sunrise Till Our Eyes Burned Out (Original Mix)
-10. Euphoric Feel - When It All Began (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4AD5F44ED43E3CAE7402DF04A27ECA68B04A7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470022   (97074) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 101
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97074.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 101
-Название: Desktop Wallpapers Pack 101
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C30AFFB9943BB0CB086ED0CAA568E3A2B4AA381
 ```
 
 

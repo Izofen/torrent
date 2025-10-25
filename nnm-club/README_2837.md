@@ -1,3 +1,27 @@
+###  Публикация: 468392   (82341) от 15.03.2012
+
+Windows 7 Ultimate SP1 x64 VolgaSoft & Black Club v 2.0 [2012] [Rus]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка, сделана на основе оригинального образаНазвание программы: Windows 7 Ultimate SP1 x64 VolgaSoft & Black Club v 2.0Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467922   (82344) от 15.03.2012
 
 Джон Картер / John Carter (2012) CamRip PROPER
@@ -631,39 +655,6 @@ magnet:?xt=urn:btih:AB1F6BE1FF0DAAC3012FD4334713C599010EFED4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC86096442DF04FD458C81788F9ACF73AA4B67CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468667   (82382) от 16.03.2012
-
-Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Got The Groove (4:08)
-02. New Beginnings (5:11)
-03. Deep Into My Soul (4:05)
-04. And The Beat Goes On (4:36)
-05. Georgia On My Mind (5:24)
-06. Take Your Time (4:36)
-07. I Want Somebody (4:28)
-08. You Are My Love (5:16)
-09. Last But Not Least (4:39)
-10. I Need You (3:54)(   Читать дальше...   )2006Жанр: Smooth JazzПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-нет
 ```
 
 

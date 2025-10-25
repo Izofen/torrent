@@ -1,3 +1,27 @@
+###  Публикация: 478712   (86496) от 05.04.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (06.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BF3696BC0C0BF7F56F2CB5167CA97422904EE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478419   (86500) от 05.04.2012
 
 [Wallpapers] Desktop Wallpapers Pack 39
@@ -641,39 +665,6 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D52AB98CB09D6847984E1898825F7E72450D822B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478100   (86539) от 05.04.2012
-
-VA - Top 100 Зайцев.нет (04.04.2012) (2012) [MP3|128-320 kbps]<Pop|Dance|Club|Rap|Chanson|Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel telo - Ai Se Eu Te Pego [02:43]
-02. Hits 2012 - Самый реальный клубняк [04:00]
-03. Иракли & Даша Суворова - Нелюбовь [03:24]
-04. Шима (Shyma) - Океан [03:22]
-05. Aura Dione Feat. Rock Mafia - Friends [03:43]
-06. Slow Train - In The Black Of Night [03:15]
-07. Полина Гагарина - Спектакль Окончен [04:00]
-08. Винтаж и DJ Smash - Москва [03:45]
-09. 5sta Family - Вместе Мы (Prod by T.Y.) [03:40]
-10. David Guetta - Turn Me On (feat. Nicki Minaj) [03:19](   Читать дальше...   )2012Жанр: Pop|Dance|Club|Rap|Chanson|RockПродолжительность: 06:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9663B8AE4093ABB10D60C6024C543176CB8264
 ```
 
 

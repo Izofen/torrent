@@ -1,3 +1,83 @@
+###  Публикация: 479700   (98822) от 07.04.2012
+
+[Wallpapers] Anime Wallpaper (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479752   (98823) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98823.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №13
+Название: Desktop Wallpapers №13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479432   (98825) от 07.04.2012
+
+[Wallpapers] HD Wallpapers №7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98825.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №7
+Название: HD Wallpapers №7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C50C6C589C26B526D2F36B1F66904B0ED4BE0EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479459   (98826) от 07.04.2012
 
 [Wallpapers] Computer Desktop Wallpapers Collection (07.04.12)
@@ -597,91 +677,6 @@ magnet:?xt=urn:btih:5DAA2D521E3E0E449DAC5101FC936DFCAEBCB1BE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6DB8F26E8FE92D189ED8284322376CFF846CFCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479365   (98863) от 07.04.2012
-
-Return To Base - Behind The Sun (2011) [MP3|320 кб/с]<Drum'n'Bass / Industrial Djent>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biopunk
- 02. Collective Mind
- 03. Alive Creature
- 04. Devastator
- 05. Behind The Sun2011Жанр: Drum'n'Bass / Industrial DjentПродолжительность: 00:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC82207169C45C0FE1E587E2F3C931041C4D4206
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479448   (98869) от 07.04.2012
-
-М. Иоффе | Иван Максимович Семёнов [1956] [PDF, DjVu]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98869.jpg" />
-</div>
-
-
-###  Подробнее
-
-... На протяжении тридцати лет работает Семенов в советской печати, создавая остроумные рисунки и карикатуры, в которых он высмеивает пороки и недостатки, бытующие еще в нашей советской действительности, обличает и бичует врагов нашей Родины, врагов мира и социализма. Но не одни только отрицательные явления занимают внимание художника; Семенов — замечательный мастер и таких юмористических рисунков, где центральную роль играет положительный образ, — рисунков веселых, жизнерадостных, полных оптимизма. В его произведениях всегда привлекают богатство творческой выдумки, лукавый юмор, непринужденная легкость уверенного и точного реалистического рисунка. В ряду советских мастеров сатиры Семенову — художнику, отмеченному печатью яркого и сильного дарования, — принадлежит видное место. ... (М. Иоффе "Иван Максимович Семёнов" 1956 г.)Формат: PDF, DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E202D3CD2ADB1F6CD6E349A6B4DB94F6CEFAD7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479345   (98871) от 07.04.2012
-
-VA - Chill Out Essentials: Spring Edition (2012) [MP3|320 kbps]<Chillout | Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almadrava - All Over Me
-02. Naoki Kenji - Kitai Sasete (Night Remix)
-03. Alexandra Hampton - Distant Shore
-04. Euphonic Traveller - Cafe Champs Elysees
-05. Soundset City - Get It On
-06. Felix - Giraffe
-07. Silicone Soul - Dreaming Again
-08. Soundset City - Smooth Delight
-09. The Sushi Club - Elyptico
-10. Panaphonic - Sunrise Light(   Читать дальше...   )2012Жанр: Chillout | DowntempoПродолжительность: 03:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4FC87ADB83DB561F2D7EA3EBBC113C4C9E5B617
 ```
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 467250   (81933) от 13.03.2012
+
+Windows 7 Ultimate N SP1 x64 Strelec (12.03.2012) [русский и английский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 Ultimate N - это европейская версия Windows 7. В ней отсутствует Windows Media Player и связанные технологии,такие как Windows Media Center и Windows DVD Maker.Если вы пользуетесь сторонними программами для просмотра видео и музыки вы можете установить эту систему. При желании WMP можно скачать и установить позже. Стоимость Windows N такая же. Оригинальных русских версий N не бывает.Разработчик: MicrosoftЯзык интерфейса: русский и английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467188   (81936) от 13.03.2012
 
 Мартовские иды / The Ides of March (2011) HDRip
@@ -651,39 +675,6 @@ magnet:?xt=urn:btih:9DA4C34301C2849974BA69364E62C2584FDAF584
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F3C72A92C2328AD88C035BC8D83332A28B8EFAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466972   (81990) от 14.03.2012
-
-Aldo Romano - Inner Smile (2011) [FLAC|Lossless]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Positano
-02. More
-03. Kind Of Autumn
-04. Anny's Lullaby
-05. Il Piacere
-06. Old Devil Moon
-07. Inner Smile
-08. My Funny Valentine
-09. Where Is Aldo?
-10. E Si Sogna(   Читать дальше...   )2011Жанр: Contemporary JazzПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 

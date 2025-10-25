@@ -1,3 +1,30 @@
+###  Публикация: 1796930   (66868) от 13.05.2025
+
+Ken (Kenny) Wheeler & The John Dankworth Orchestra - Windmill Tilter: The Story Of Don Quixote (1968) 2010, BGO Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preamble [0:43]
+02. Don the Dreamer [6:14]
+03. Sweet Dulcinea Blue [3:40]
+04. Bachelor Sam [5:18](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFC2174AC39EFFC8118A21F39FC4B2D749AA6A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796991   (66869) от 13.05.2025
 
 Биско этажом ошибся / Biscot se trompe d'etage (1916) WEBRip
@@ -634,33 +661,6 @@ magnet:?xt=urn:btih:37CAD799DC17D5CBFB145A151C42D24A07E62F33
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:447BF01A92E3D9346C3EE6708FEC95D246D41E4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796742   (66894) от 13.05.2025
-
-Thin Lizzy - The Acoustic Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Hard-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Nature Said (Acoustic Version) (3:54)
-02. A Song For While I'm Away (Acoustic Version) (5:05)
-03. Eire (Acoustic Version) (4:19)
-04. Slow Blues (E.B / Acoustic Version) (5:17)(   Читать дальше...   )Жанр: Rock, Hard-RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DF86674DA43B72CD006B95BACFAB550E1AA15C
 ```
 
 

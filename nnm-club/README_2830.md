@@ -1,3 +1,36 @@
+###  Публикация: 466972   (81990) от 14.03.2012
+
+Aldo Romano - Inner Smile (2011) [FLAC|Lossless]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Positano
+02. More
+03. Kind Of Autumn
+04. Anny's Lullaby
+05. Il Piacere
+06. Old Devil Moon
+07. Inner Smile
+08. My Funny Valentine
+09. Where Is Aldo?
+10. E Si Sogna(   Читать дальше...   )2011Жанр: Contemporary JazzПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467115   (81992) от 14.03.2012
 
 Abrosoft FantaMorph Deluxe 5.3.1 [Multi/Rus]
@@ -638,30 +671,6 @@ Iоаннъ Гоффертъ | Иллюстрированная Отечеств
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B365F5DFEDBCA1FD50EC67DB2AAAC06273186E74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467545   (82036) от 14.03.2012
-
-Kaspersky World 1.3.2.96 [Multi / Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky World – это комплексное решение для работы с антивирусными продуктами Лаборатории Касперского. Позволяет загружать ключи, сбрасывать триал и т. д.Название программы: Kaspersky WorldЯзык интерфейса: Multi / Rus
-
-## Скачать торент
-```bash
-нет
 ```
 
 

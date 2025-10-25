@@ -1,3 +1,191 @@
+###  Публикация: 1707604   (113247) от 17.03.2024
+
+Danny Barrett - It's About Time (1993) DBD Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everytime We Say Goodbye [4:02]
+02. Two for the Road [4:36]
+03. Night Song [4:20]
+04. For All We Know [4:00](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E0D4EB6CEDDE922DA64ABDB9C6676D454846B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707376   (113248) от 17.03.2024
+
+Coventhrall - Legacy of Morfuidra (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (1:56)
+02. Morfuidra (4:14)
+03. Dreadnought (3:49)
+04. In These Halls (5:16)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCDCEBCEF89C448D6CE94E82071CEE6D8E1E57A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707362   (113249) от 17.03.2024
+
+Charles Lloyd - The Sky Will Still Be There Tomorrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defiant, Tender Warrior (4:17)
+02. The Lonely One (5:46)
+03. Monk’s Dance (6:50)
+04. The Water Is Rising (5:08)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20653882BEEE382670F10F1FB5E0FF07965E4B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707720   (113250) от 17.03.2024
+
+Crystal Darkness - Ascend Saturnine Nebulae (1999) Remastered, 2022, Red Snow [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Marble Statue on Thy Holy Soil
+02. In Midst Eternal Snow
+03. Awaiting Silence over Midwinter Gardens
+04. Thousands of Flies on Her Pale Body(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB0623154273C78DB133B52608209F2EA2D3521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707686   (113251) от 17.03.2024
+
+Юрий Коваль | Тигрёнок на подсолнухе и другие сказки (2014) [MP3, Татьяна Телегина, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Юрий Иосифович Коваль (1938-1995) – один из самых любимых детских писателей второй половины XX века у нас в стране, сценарист мультфильмов и детских фильмов, художник, автор и исполнитель собственных песен.
+Аудиокнига «Тигрёнок на подсолнухе» записана на студии АРДИС по сказкам Юрия Коваля – одного из самых любимых российских детских (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Студия «АРДИС»Продолжительность: 01:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA510C256E54F6CC62C593AC816DCEBCA5610A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707600   (113252) от 17.03.2024
+
+Donald Byrd - Attitude (1987 - 1991) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Arthur [8:27]
+02. I'll Always Remember [9:39]
+03. Back Down in Lu Easy Anna [6:49]
+04. Byrd Song [6:02](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856577CE539F3F93348BC051D696BF173213740D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707699   (113253) от 17.03.2024
+
+Crystal Darkness - Ascend Saturnine Nebulae (1999) [FLAC|Lossless|image + .cue] <Death, Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Marble Statue on Thy Holy Soil (07:48)
+02. In Midst Eternal Snow (08:12)
+03. Awaiting Silence Over Midwinter Gardens (01:50)
+04. Thousands of Flies on Her Pale Body (05:42)(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E8542A11699404198D30EED15264F257802EA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707648   (113254) от 17.03.2024
 
 Crystal Darkness - Sombre (1995) Demo, Remastered, 2022, Red Snow [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal, Gothic Metal>
@@ -481,190 +669,6 @@ Gene Austin - Collection (1920s-1950s) (2011-2014) 2CD [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21A1D38FE3A7439873A3E68C65B4F5E91AF451E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707366   (113273) от 17.03.2024
-
-Savage Oath - Divine Battle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knight of the Night (7:21)
-02. Wings of Vengeance (6:52)
-03. Blood for the King (6:45)
-04. Smoke at Dawn (2:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A2F22A05D76F2CBB2107D783966365C97405E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707132   (113274) от 17.03.2024
-
-Lord Goblin - Lord Goblin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northern Skyline [00:06:30]
-02. The Wanderer [00:05:17]
-03. The Oracle [00:08:02]
-04. Freedom Rider [00:04:00](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16312CB7ABA2451CEA82642D02B3758AE8ADD1E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707697   (113275) от 17.03.2024
-
-Юрий Коваль | Приключения Васи Куролесова (Книга 02). Куролесов и Матрос подключаются (2013) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Приключения Васи Куролесова.
-Юрий Иосифович Коваль (1938-1995) – один из самых любимых детских писателей второй половины XX века у нас в стране, сценарист мультфильмов и детских фильмов, художник, автор и исполнитель собственных песен.
-«Промах гражданина Лошакова» (1989) – повесть известного советского писателя Юрия Коваля. Юмористический детектив, рассказывающий (   Читать дальше...   )Жанр: Русская литература для детей, классика, приключения, повестьИздательство: Нигде не купишьПродолжительность: 02:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCE410819E7825A8FC72FFD6A8527C0B60E022A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707683   (113276) от 17.03.2024
-
-Atrophy - Asylum (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовые американские трэш-металлисты ATROPHY выпустили долгожданный третий альбом "Asylum" 15 марта на лейбле Massacre. Это первая полноформатная работа группы за 34 года.
-В текущий состав ATROCITY входит лишь один оригинальный участник – вокалист Брайан Циммерман (Brian Zimmerman).
-Как гласит пресс-релиз лейбла, "Asylum" – это очередной шаг (   Читать дальше...   )1. Punishment For All
-2. High Anxiety
-3. Seeds Of Sorrow
-4. Distortion(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153AF92FBBDC3208ED25253F8F5A0C17A291C761
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707730   (113277) от 17.03.2024
-
-Crystal Darkness - A Far Cry Paradise (2022) EP, Remastered, 2022, Red Snow [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Dresses
-02. Morning Sun
-03. For All My Learning
-04. The Jams(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3634DB2BB1672433E8FA1FFFFE4FF981317F0849
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707695   (113278) от 17.03.2024
-
-Юрий Винокуров | Император может быть только один (Книга 3). Я стану Императором (2024) [MP3, Олег Троицкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений Антона в мрачном будущем Человечества. Главным Даром главного героя всё еще остается «притягивание неприятностей». Однако, есть шанс устроить этим «неприятностям» кровавую баню, ведь теперь он не один.ЛОР вселенной продолжает раскрываться, оказывается, у Империи есть не только внутренний враг, но и внешний. Инквизиция это тщательно скрывает, (   Читать дальше...   )Жанр: Боевая фантастика, Бояръ-аниме, Космическая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1E69EA1023C9FDF5693D19E5A73857C824B068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707551   (113279) от 17.03.2024
-
-Мадам Паутина / Madame Web (2024) WEB-DLRip [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медсестра из Манхэттена Кассандра Уэбб открывает в себе способность видеть будущее и понимает, что может использовать эту силу, чтобы его изменить. Столкнувшись с тайнами своего прошлого, Кассандра знакомится с тремя девушками, которым суждено однажды стать великими, если они вместе смогут пережить смертельно опасное настоящее.Производство: США, Канада, Мексика / Columbia Pictures, Di Bonaventura Pictures, Marvel EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: С.Дж. КларксонАктеры: Дакота Джонсон, Сидни Суини, Изабела Мерсед, Селеста О’Коннор, Тахар Рахим, Майк Эппс, Эмма Робертс, Адам Скотт, Керри Бише, Заша Мэмет и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:58:55Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
 ```
 
 

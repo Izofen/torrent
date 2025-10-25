@@ -1,3 +1,30 @@
+###  Публикация: 1809776   (64632) от 01.08.2025
+
+Heavens Gate - Menergy (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teleshoot 0:49
+02. Worldmachine 3:39
+03. Teleshoot 0:12
+04. Mastermind 3:59(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E561AEB00061A00034C63224FC4C8179D312EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809561   (64633) от 01.08.2025
 
 Sidney Bechet - Four Classic Albums: Third Set (1955 - 1958) 2CD, 2022, Avid Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, New Orleans Jazz>
@@ -624,30 +651,6 @@ magnet:?xt=urn:btih:8EDA21F53072A105277D4C1C1C7BF4A618C16977
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6D0E94F8D0BBFD70B6CA98D403DA1A00896F197
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809779   (64658) от 01.08.2025
-
-The Unseen Fears 7: Inner Darkness (2025) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр The Unseen Fears. К Натаниэлю обращается за помощью семья Смит. Их дочь Лиза в последнее время ведёт себя крайне странно - она утверждает, что окружающие одержимы монстрами-тенями а лица людей кажутся ей искажёнными. В конце концов Лиза попала в психиатрическую клинику, но близкие не теряют надежды ей помочь. Навестив девушку, Натаниэль (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D753A9C4CAF048780DB5511A99AF7077D12A01C4
 ```
 
 

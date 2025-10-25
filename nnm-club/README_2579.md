@@ -1,3 +1,27 @@
+###  Публикация: 1791567   (67804) от 14.04.2025
+
+MotoGP. Этап 04 из 22. Гран-при Катара. Гонка (13.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67804.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 апреля 2025, воскресенье. 20:00 МСК. Этап 4, Доха. Гран-при Катара. Гонка (22 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6784693C1F849E40CE8F66CFB224872492B34EE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791664   (67805) от 14.04.2025
 
 Бунтари / Les Revoltes (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
@@ -642,33 +666,6 @@ Charlie Mingus - Four Classic Albums: Second Set (1956, 1957) 2CD, 2018, Avid Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C75942D7A9D25DB24FF7626690F1E34657331D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791363   (67830) от 13.04.2025
-
-Fuzzripper - Poltergeist (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poltergeist (05:10)
- 02. These City Nights (03:35)
- 03. Black and Red (06:00)
- 04. Ghost Rider (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8C68CB2830C154D5149EFC25A82EFC3EA88E93
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 476467   (98171) от 31.03.2012
+
+VA - MAXI. Super Dance на Maximum FM (2012) [MP3|192 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ThomTree - When The Sun Comes Out (Justin Corza meets Greg Blast Edit) (3:32)
+2. Temple One Feat. Neev Kennedy - Love The Fear (Eximinds Remix) (7:53)
+3. Stefy De Cicco ft. Dhany - Deep Down Inside Of You (Elegance Ext. Mix) (6:26)
+4. Rob Mayth - Another N8(Exclusive Edit) (3:33)
+5. Rihanna - S&M (DJ Kez & Nexboy Remix) (5:31)
+6. Rene De La Mone & Slin Project - 2012 (Get Your Hands Up)(Topmodelz Edit) (3:22)
+7. Power Play - Wole Ole ( Oj Tam Oj Tam 2 ) (5:06)
+8. Pitbull feat. Flo Rida - Move Shake (4:38)
+9. Young London - Let Me Go (DJ Solovey Remix) (5:02)
+10. Tradelove - Pum Back (Original Mix) (5:46)2012Жанр: Pop,DanceПродолжительность: 08:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C00ACD33D3358AA6A410EEAF07F6363646BB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475393   (98172) от 31.03.2012
+
+Юджин Пеппероу | Открыватель талантов [1991] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юджин Пеппероу (1991Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFFD12B9D60CC570A519C225DAD0A492F034493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475401   (98177) от 31.03.2012
+
+Юджин Пеппероу | Попытка к бегству [1991] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юджин Пеппероу (1991Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297F68FADD9A7937D9A901D562781E1279D8DCFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476146   (98178) от 31.03.2012
 
 VA - Energy Super Dance Vol.6 (2012) [MP3|320 кб/с]<Electro-House, Trance, Dance, Club, Dubstep>
@@ -650,96 +731,6 @@ VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70FA0C3E9AD2DAC0B9E7871A8F26A5BA8BDA3CD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476258   (98224) от 31.03.2012
-
-VA - Party Hits (2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titanium (feat sia) - Sia
- 02. Again and again (radio edit) feat akon, pitbull, - Basto
- 03. The one that got away - Perry Katy
- 04. Hardcore vibes (radio edit) - Global Deejays
- 05. Sexy and I know it - Lmfao
- 06. Tango tango - Magic System
- 07. Les mots - Keen V
- 08. Juste un instant - Pokora M
- 09. I know (2012 radio edit) - Irma
- 10. My name is stain - Shaka Ponk(   Читать дальше...   )2012Жанр: DanceПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEA5E2110D1AD576EBEFCBB6152F2814022EEC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476138   (98226) от 31.03.2012
-
-Анатолий Онегов  | Еловые дрова и мороженые маслята [1985] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга состоит из коротких рассказов, объединенных в пять самостоятельных частей: «Еловые дрова», «Снегириное царство», «Дрозды-разбойники», «Мороженые маслята», «Старая береза», - и двух повестей: «Черепок» и «Мирный договор». Основная мысль, которой пронизаны все рассказы и повести, - природу нужно изучать, относиться к «братьям нашим меньшим» с добром, тогда и они отплатят человеку тем же.1985Жанр: Детская литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BCAB6D2CD34522AA82B155581F59EDE5E402D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476197   (98227) от 31.03.2012
-
-VA - Сборник лучших REMIXов - Mix рандеву 2CD (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Sequenza - C U 2nite (Nooc Remix Radio Edit) (3:34)
-2. David - Не Верю (Dj Iksiy Remix) (3:33)
-3. Лолита Gold Feat. Юля Grand - Этим Летом (3:06)
-4. Dj Nejtrino And Nikita Malinin - Hands Up (Radio Edit) (3:34)
-5. Ольга Лозина - Раненая Птица (Dj Magnit Remix) (3:34)
-6. Все Включено - Кабрио-Лето (Ed Albah Radio Mix) (3:33)
-7. Пачуля - Привет (Fidel Wicked Radio Edit) (3:33)
-8. Сhris Parker Feat. Катя Старикова - Не Уходи (Radio Edit) (4:00)
-9. Mike Lembo - Can't Come Down (Smash Mode Radio Mix) (3:59)
-10. Mainstream One - Секс И Виски, Кокс Карибский (House Massive Dj Sedate Radio Rmx) (3:58)2012Жанр: Pop,DanceПродолжительность: 06:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981DC1BD50036B8A53FF3DF840CC728C75696D78
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1713060   (60817) от 04.04.2024
+
+CG Fast Track | Blender Fundamentals Vol. 1-3 - Modeling, UVs, Texturing and Shading (Blender 4.0) (2024) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия из трёх курсов по основам Blender 4.0:
+Blender Fundamentals Vol. 1 - Modeling Fundamentals in Blender (4.0)
+Blender Fundamentals Vol. 2 - UV and Image Projections in Blender (4.0)
+Blender Fundamentals Vol. 3 - Texturing and Shading Fundamentals in Blender (4.0)Производство: CG Fast TrackЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9DC38E51FDD65290785DB36512C642B9BF848E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 629838   (60818) от 04.04.2024
 
 Тюрьма «ОZ» / Oz (2000-2001) DVDRip [H.264] (сезон 4, серии 1-16 из 16) sf@irat
@@ -600,30 +627,6 @@ magnet:?xt=urn:btih:783A5371E45020F71CC480702A1F8EC4F0A1CFED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37FF8894DCC3EDBAE45A85F2E9133A0FFF601473
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713090   (60843) от 04.04.2024
-
-Uninstall Tool 3.7.4 Build 5725 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC2353F8D5A3364D5E02009895F12E750A4B045
 ```
 
 

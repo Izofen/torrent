@@ -1,3 +1,36 @@
+###  Публикация: 474207   (84853) от 28.03.2012
+
+Tomorrow's Outlook - 34613 (2012) [FLAC|Lossless]<Progressive/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Darkness Falls (Intro) 02:16
+02. Gate to Freedom 05:26
+03. Glass Mountain 04:28
+04. A Song For You 04:59
+05. Doubt 03:49
+06. The Ethereal Dream 06:00
+07. 34613 02:49 instrumental
+08. White Lightning 03:52
+09. Liquid Scream 04:34
+10. Kill Again 04:04(   Читать дальше...   )Жанр: Progressive/Power MetalПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473991   (84855) от 28.03.2012
 
 VA - Relax (Compiled by Nicolo) (2011) [FLAC|Lossless]<Ambient, Chillout>
@@ -660,30 +693,6 @@ magnet:?xt=urn:btih:790DE8481B5CBA216E6FA830201ECFD806AF373C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21CC6CC2442559A197290C0AA3EE51293EAEE134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474506   (84905) от 28.03.2012
-
-Карим Махмудов | Пловы на любой вкус [1987] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тем, кто любит хорошо покушать! Главное блюдо мусульман - это плов! Вы любите плов? Тогда в этой книге то, что Вам нужно, учитесь и готовьте не хуже их, а может даже лучше, с рецептами от Карима вы сами можете стать профессионалом. Помимо рецептов плова Вам предлагают и рецепты салатов к ним. Приятного Вам аппетита.Формат: PDF
-
-## Скачать торент
-```bash
-нет
 ```
 
 

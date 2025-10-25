@@ -1,3 +1,36 @@
+###  Публикация: 472128   (83873) от 23.03.2012
+
+VA - Cамые Качающие Треки для Авто - Tоп 55 / 9 (2012) [MP3|320 кб/с]<Club, Dance, Trance, Electro, Dubstep, Drum and bass, Psy-trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adstedt and Alaa feat Lina Harriette - Illusion (Andy Harding remix)
+ 02. Aerofeel5 - Fobos (JSmyls remix)
+ 03. Aimoon feat Eva Kade - Sweet Silence (Offshore Wind Remix)
+ 04. Albert Kick - Evil Girl (Club Mix)
+ 05. Alchemix - New Form of Energy
+ 06. Analog People In A Digital World feat Sam Obernik - Liar (Reset! remix)
+ 07. Andrew Bayer and Matt Lange feat Kerry Leva - In And Out Of Phase (Calyx and Teebee remix)
+ 08. Aquascape - Deep and Massive
+ 09. Archie.V - Guess What (Club Mix)
+ 10. Bingo Players - L'amour(   Читать дальше...   )2012Жанр: Club, Dance, Trance, Electro, Dubstep, Drum and bass, Psy-tranceПродолжительность: 06:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3767EE3D22DDD4EC0690B15C1DADE5A72690F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472000   (83874) от 23.03.2012
 
 Неразделимый / InAlienable (2008) [720p] BDRip
@@ -635,39 +668,6 @@ Meshuggah - Koloss (2012) [FLAC|Lossless]<Progressive Post-Thrash / Math Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471819   (83920) от 23.03.2012
-
-VA - Диско 80-х - Кумиры восьмидесятых. Выпуск 50/50 (2012) [MP3|256 kbps]<Pop | Disco>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samantha Fox - Touch Me
-002. Женя Белоусов - Девочка Моя Синеглазая
-003. Boney M - Rasputin
-004. Голубые Гитары - Первый Поцелуй
-005. Blue System - Under My Skin
-006. Пламя - На Дальней Станции Сойду
-007. Del Faro - Bandiera La Playa Del Sol
-008. Secret Service - Ten O'clock Postman
-009. Р.Рымбаева - Любовь Настала
-010. Фристайл - Ах, Какая Женщина(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 06:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1888F8794DDCF1A3E5C2F3BF2EF7E623F6A209
 ```
 
 

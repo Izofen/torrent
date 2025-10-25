@@ -1,3 +1,30 @@
+###  Публикация: 1776533   (71236) от 01.02.2025
+
+Mogwai - The Bad Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <post-rock, Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Gets You Back [00:06:40]
+02. Hi Chaos [00:05:24]
+03. What Kind Of Mix Is This? [00:04:11]
+04. Fanzine Made Of Flesh [00:04:34](   Читать дальше...   )Жанр: post-rock, Alternative & IndieПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D149C3574E5B3F2BA55512A3452C4DEB6BAB4B8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776478   (71237) от 01.02.2025
 
 Defecto - Tribu II (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groove Metal>
@@ -642,33 +669,6 @@ Michael Medrano - The Penthouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9F1139FD17358E13BEAA2FE79BBB8A10CF98E5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776421   (71262) от 01.02.2025
-
-Deep Forest - Live Machine (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient, Electronic, New Age, Chillout>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Deep Sakura [1:00]
-02 - Desert Medley (Live Version) [5:43]
-03 - Deep Forest [4:32]
-04 - Deep Fakear [5:13](   Читать дальше...   )Жанр: Ambient, Electronic, New Age, ChilloutПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76B445665D20B05CA61BE122EE076A6CED3C1B5
 ```
 
 

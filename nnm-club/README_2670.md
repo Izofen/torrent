@@ -1,3 +1,30 @@
+###  Публикация: 1781629   (70170) от 24.02.2025
+
+Joanie Sommers & Laurindo Almeida - Softly, The Brazilian Sound (1964) 2013, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation [3:01]
+02. Dear Heart [3:19]
+03. Watching the World Go By [3:07]
+04. Quiet Nights [2:51](   Читать дальше...   )Жанр: Vocal Jazz, Brazilian Jazz, Bossa NovaПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EC9F680441C492DA0AAEF57666ED0BC1217ECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781627   (70171) от 24.02.2025
 
 Michael Weiss Quartet - Power Station (1997) DIW Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -628,31 +655,6 @@ Kenny Garrett - Pursuance: The Music Of John Coltrane (1996) Warner [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49F7FC66B5F06059931CA6468773F9D3931E3087
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781431   (70196) от 23.02.2025
-
-НХЛ 2024-2025. Вашингтон Кэпиталз - Питтсбург Пингвинз (22.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70196.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 февраля 2025, суббота. 23:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 207 зрителей (98% при вместимости 18 673)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Дэн О'Рурк (Калгари, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9E3B65F9CA5D4E3BCD46D7466BE2520A463ABD
 ```
 
 

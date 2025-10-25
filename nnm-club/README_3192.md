@@ -1,3 +1,213 @@
+###  Публикация: 1758699   (103332) от 06.11.2024
+
+Своя игра (03.11.2024) WEBRip [H.264/1080p] (16-я игра)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103332.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B5BDE98228CAE744398BDC4A7F443B227BBA6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759166   (103333) от 06.11.2024
+
+Suidakra - Darkanakrad (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weight of Worlds (1:06)
+02. As Heroes Abide (3:17)
+03. Unravelling Destinies (4:31)
+04. Seven Sentinels (5:58)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C222B638763FF2979A6BB8601A893DE224C76E42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759041   (103334) от 06.11.2024
+
+Laurindo Almeida - Concierto de Aranjuez (1978) 1984, East Wind [FLAC|Lossless|tracks + .cue] <World Fusion, Brazilian Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concierto de Aranjuez [9:42]
+02. The Summer Knows [3:42]
+03. Star Dust [3:58]
+04. How Insensitive (Insensatez) [3:32](   Читать дальше...   )Жанр: World Fusion, Brazilian Jazz, Guitar JazzПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5C1B7F289F1D96B56BF77C2CC57FE3DEB16B82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759064   (103335) от 06.11.2024
+
+Viperwitch - Witch Hunt: Road to Vengeance (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road to Vengeance: Descendents of the Gods [00:02:48]
+02. Legend of the Midnight Rider: The Saxon Killer [00:01:43]
+03. Hellbound (feat. Devin Reiche) [00:04:04]
+04. The Ritual: Infinite Nocturn Rises [00:01:56](   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A3D713C5B9B20C182472226C35AB5C26F31157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759038   (103336) от 06.11.2024
+
+Toshiko Akiyoshi Trio - Time Stream (1985) Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prosperity [5:10]
+02. Con Alma [6:24]
+03. Giant Steps [6:25]
+04. Smile [6:29](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464ABA28F1AFF1DA6159C0947963C08E25A21430
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759043   (103337) от 06.11.2024
+
+Bunkiman - Bunkiman 2023 Best (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clockwork Syndrome (2:19)
+02. The Walking Drunker (2:22)
+03. Rivals (2:31)
+04. Encounter (2:04)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B276A53E07BD8C93A1AA4263F53AE9667D7F23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758654   (103338) от 03.11.2024
+
+MotoGP. Этап 19 из 20. Гран-при Малайзии. Гонка (03.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103338.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 ноября 2024, воскресенье. 10:20 МСК, Этап 19 Куала-Лумпур. Гран-при Малайзии. Гонка (20 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36F141BF4DABDA7A49277BB9C8E2655F0364E7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758549   (103339) от 03.11.2024
+
+Frank Sinatra - Where Are You? (2002) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Are You [3:30]
+02. The Night We Called It A Day [3:29]
+03. I Cover The Waterfront [2:59]
+04. Maybe You’ll Be There [3:07](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD688184A250D65D5C93B4D971E4893D13B0255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758657   (103340) от 03.11.2024
 
 Сергей Протасов - И добавить мне нечего (2024) [MP3|320 Kbps] <Chanson>
@@ -465,222 +675,6 @@ magnet:?xt=urn:btih:9D5246A21E7BC937C96CDEB7CAE1FD66DD12FD43
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA5134EACC5F9F8CD3A07E2CCD8E38213AA8D8A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758625   (103358) от 03.11.2024
-
-King Crimson - Red (1974) Expanded & Remastered Original Album Mix, 2014, Discipline Global Mobile [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red [00:06:15]
-02. Fallen Angel [00:06:03]
-03. One More Red Nightmare [00:07:10]
-04. Providence [00:08:10](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3579806C6D6CF1E70152ABCFD5084A4207B62FFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758498   (103359) от 03.11.2024
-
-Виктор Красавин - Сокровище (2005) [WavPack|Lossless|image + .cue] <Chanson, Stage>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты моё сокровище
- 02. Хочется быть москвичом
- 03. Кабала
- 04. Луша(   Читать дальше...   )Жанр: Chanson, StageПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E48449CCCC0DB1BB382913064F4E5AA8E4DC37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758609   (103360) от 03.11.2024
-
-Юлия Kalina - Люби... (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Шаг [00:03:33]
-02 - А чайки кричат [00:02:58]
-03 - Я тобой больна [00:03:33]
-04 - Я тебя не прощу [00:03:07](   Читать дальше...   )Жанр: PopПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C0EE7CEEDFEB4BB1C1860A69A784E6C2C34E94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758589   (103361) от 03.11.2024
-
-Андрей Лорд - Её рядом нет (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Чужая ты стала [00:04:05]
-02 - Лети журавлик [00:03:20]
-03 - Русское радио [00:03:24]
-04 - Зачем [00:03:38](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12443CCF70FEB8BD1C0EC607157D466A815CB32D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758705   (103362) от 03.11.2024
-
-Robert Jon & The Wreck - Red Moon Rising (Deluxe Edition) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stone Cold Killer (03:55)
- 02 - Trouble (03:29)
- 03 - Ballad Of A Broken Hearted Man (05:24)
- 04 - Red Moon Rising (04:54)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F7528EABCEF3AA854FD6EDD0B75546CF0765E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758661   (103363) от 03.11.2024
-
-Антон Духовской - Песенки 2 (2024) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Не ступить в эту воду дважды [00:02:45]
-02 - Не грусти [00:03:04]
-03 - Ангелы над нами [00:04:12]
-04 - Песенка про Сашу и Галю [00:03:29](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA0A0D8F57354499E07524D3B9A80E2BDBD120B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758674   (103364) от 03.11.2024
-
-РадаР - Это всё неинтересно (2024) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сон [00:03:57]
-02 - Пьяный и злой [00:02:58]
-03 - Когда закончатся дожди [00:03:55]
-04 - Страшно и чудовищно [00:03:11](   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC6DF6F2623868BCCAF1BF5E91ED006B2EC9E56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758605   (103365) от 03.11.2024
-
-Ensiferum - Winter Storm (2024) Special Edition [FLAC|Lossless|image + .cue] <Melodic, Epic Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora 01:14
-02. Winter Storm Vigilantes 05:12
-03. Long Cold Winter of Sorrow and Strife 06:59
-04. Fatherland 04:52(   Читать дальше...   )Жанр: Melodic, Epic Folk MetalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0638FCA0273B47F6C5CA3BC0A3360707D99F3A
 ```
 
 

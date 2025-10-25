@@ -1,3 +1,30 @@
+###  Публикация: 1787051   (68870) от 23.03.2025
+
+VA - I Love ZYX Italo Disco Collection 3 (2005) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Bedford - More Than A Kiss
+02. Roger Meno - I Find The Way
+03. Albert One - For Your Love
+04. K.B. Caps - Catch Me Now I'm Falling(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1FE05C5C7CD437A69515BB9241E26519C7D9A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787023   (68871) от 23.03.2025
 
 Booka Shade - For Real (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -633,31 +660,6 @@ Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31D9B697B65D111F24127BB2283EAA5801F778A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786833   (68896) от 22.03.2025
-
-Forsaken - Virtues of Sanctity (1993) (EP) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68896.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. Where Angels Have Fallen (06:45)
-B. Confessing My Desolation (06:52)Жанр: Epic Doom MetalПродолжительность: 00:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9FF58432445197438227242571790583F28E23
 ```
 
 

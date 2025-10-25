@@ -1,3 +1,93 @@
+###  Публикация: 471456   (97345) от 21.03.2012
+
+Каникулы в Мексике - 2. Выпуск №13 (2012.03.21) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97345.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E471D6F0CC8FF3D7CF27BCB93DAB63949D8D3A70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470739   (97346) от 21.03.2012
+
+Скипетр - Переверни этот мир (2012) [MP3|256 кб/с]<Heavy Metal,Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дай мне огня 04:11
+ 02. Чувства 03:41
+ 03. Слеза скорби 03:59
+ 04. Переверни этот мир 03:20
+ 05. Осколки 03:25
+ 06. В погоне за мечтой 03:26
+ 07. Не верь лжецам вокруг 03:38
+ 08. Быть не может иначе 04:27
+ 09. Власть в наших руках 03:36
+(   Читать дальше...   )2012Жанр: Heavy Metal,Power MetalПродолжительность: 00:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2D6EB42EBAAB72D4248DD01F67750A01F5D742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471078   (97349) от 21.03.2012
+
+VA - Русский Хит - Релиз (2012) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лиза Лукашина Feat. Likbez - Олимпиада 2014
+02. Катя Родина - Адьёс
+03. Dj Карась Feat. Пьер Нарцисс - Хрустальная Любовь (Remix)
+04. Паола - Одиночество В Сети (Smolich Radio Mix)
+05. Winter - Падаю В Небо (Dj Rostej Remix)
+06. Саша Калашникова - Не Опоздала Быть С Тобой
+07. Дима Бушмелев - Весна
+08. Мила Нитич - Птичка На Проводе
+09. Стая - Мало
+10. Аметист Настенька Жигалова - Игра В Любовь(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA530B4486A9866B2CDA8228190F28AEB9CD9174
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471237   (97350) от 21.03.2012
 
 VA - Super Trance (2012) [MP3|320 kbps]<Trance | Dance>
@@ -643,105 +733,6 @@ magnet:?xt=urn:btih:AEFE6B1F2878B8AD59BB9203F8F8474C8A3FFA79
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A08003DE67AC55D5106DA1D6CF38F200157D832
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471566   (97415) от 21.03.2012
-
-VA - 50 Chillout Lounge Tracks (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain On Me Baby - Hornbostel & Donner
-02. The Turn Nearly Begins - Clark Parker
-03. Urban Exploration - Baghira
-04. Praia Brava - Miraflores
-05. Drops Of Remembrance - Cane Garden Quartet
-06. Afreakatum (Suntheca Lounge Mix) - The Mask
-07. Tastin' - Cesar Martinez Ensemble
-08. On The Lake - Enrico Donner
-09. Barefoot In The Park - Rey Salinero
-10. Dedicado - Don Gorda Project(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 04:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E82130866613BFBAE5B98F18DB60C25E0C5A013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471102   (97418) от 21.03.2012
-
-VA - 100% Relax - Wildlife (2012) [MP3|192 kbps]<New Age | Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder & Rain
-02. Turkey Talk
-03. Backwater Chorus
-04. Bayou
-05. Big Surf
-06. Birdsong
-07. Jamboree
-08. Marsh
-09. Pebble Beach
-10. Small Rapid(   Читать дальше...   )2012Жанр: New Age | RelaxПродолжительность: 08:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8950B22CBC103029B26040E61CBB1A7A0945B17B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471228   (97419) от 22.03.2012
-
-VA - Into The Cosmic Jungle (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Soul - Hypnotic Energy (Egorythmia remix) (7:06)
-02. Sixty9 feat. Double Click - Underground Beats (6:33)
-03. Naturalize - Dont Lie (7:00)
-04. Aioaska - Higher Consciousness (original mix) (9:32)
-05. Faders - Bass Destroyer (original mix) (7:40)
-06. Tryptamoon - Phoenix From The Ashes (10:21)
-07. Kularis - Fruitopia (7:13)
-08. Chemogen - Winter Is Coming (7:19)
-09. Infected Mushroom - Pink Nightmares (album mix) (6:06)
-10. Bizzare Contact - Bizzare Adventures (8:13)2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 04:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD93DBA03CB9BD42D5274A5F370A263DD5CEC6FC
 ```
 
 

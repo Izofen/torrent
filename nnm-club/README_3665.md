@@ -1,3 +1,192 @@
+###  Публикация: 1702629   (115665) от 25.02.2024
+
+Anubis - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115665.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Venom And The Viper's Kiss
+2. Heartless
+3. Priestess Of Dark Paradise
+4. Fallen(   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1570382ED74AB9E0628F4AB4786469AC48CBDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702409   (115666) от 25.02.2024
+
+Blutgott - Drachenkult (Balgeroth Version) (2024) [FLAC|Lossless|WEB-DL|tracks] <Death ‘n’ Roll, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drachen in der Todeszone (Balgeroth Version) 00:03:45
+02. Drachenstahl und Feuer (Balgeroth Version) 00:03:50
+03. Bal (Balgeroth Version) 00:03:33
+04. Der Schrecken der Schlacht (Balgeroth Version) 00:03:05(   Читать дальше...   )Жанр: Death ‘n’ Roll, Black MetalПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EA0E2F38FC0EA6E3F4D6528920D544CCD76005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702407   (115667) от 25.02.2024
+
+Without Me - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115667.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Agaisnt The Storm 04:42
+2. Follow The Sun 03:39
+3. Restart 03:55
+4. The Cycle 04:56(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729050BCEC36295C1D5F1DDE6811B5A198DA108D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702532   (115668) от 25.02.2024
+
+He Was A God - Muckraker (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forward March
+02. Pestilence
+03. Track Marks
+04. Two New Stars(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70B5EB7D82FE998549914BA6F540ED088BBA2BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702444   (115669) от 25.02.2024
+
+Avacost - A Peace of the Sky (1993) Reissue 2010, Nudibranch Records [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Peace of the Sky (01:04)
+02. Head Space (05:36)
+03. Never Again (04:13)
+04. Time's Hand (05:55)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4C603B626C34C156D9FF1A1D372FF06387B487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702528   (115670) от 25.02.2024
+
+Mezzrow - Then Came The Demos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Soul (Demo 1988)
+02. Prevention Necessary (Demo 1988)
+03. Resurrection of the Beast (Demo 1988)
+04. The Cross of Tormention (Demo 1989)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B8B790059B182624CA09B45583CFD9BF32D40C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702524   (115671) от 25.02.2024
+
+Saffire - For The Greater Good (2015) Redux, 2024, Rock Of Angels Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <AOR, Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – The Great Escape (Redux)
+02 – Casters Of The First Stone (Redux)
+03 – For The Greater Good (Redux)
+04 – Heartless (Redux)(   Читать дальше...   )Жанр: AOR, Hard Rock, Heavy MetalПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55796C5D15AA8CC4493B930318BC1F6DAA298571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702520   (115672) от 25.02.2024
 
 Cycleam - Dream Cycle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -485,189 +674,6 @@ magnet:?xt=urn:btih:1DB1C79624086E97661A1DC795A53C585C225202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3249323CCB09918B9A187B408EF532C3FA6279
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702540   (115691) от 25.02.2024
-
-Газета | Народный совет №6 (30 января 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D7487F2019DC6267ABAC1CAEC55BAB709902CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702382   (115692) от 25.02.2024
-
-Beau Geste - Another Night in the City (1986) Reissue, Magada Heritage, 1993 [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take These Chains (04:42)
-02. Catch the Fire (04:04)
-03. Don't Go (03:42)
-04. Running from Your Heart (03:44)(   Читать дальше...   )Жанр: AORПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57A548EAD21EA15A78B4F30A5AB2365A6EC45E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702498   (115693) от 25.02.2024
-
-Timson - Forever's Not Enough (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Searching For Myself
-2. Gambler
-3. Across All Chaos
-4. More Than Enough(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94040AA01B59562F907AD9075D38A227DF8D04F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702414   (115694) от 25.02.2024
-
-Beau Geste - Another Night in the City (1986) Remaster, Unidisc, 1998 [FLAC|Lossless|WEB-DL|tracks] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take These Chains (04:41)
-02. Catch the Fire (04:03)
-03. Don't Go (03:42)
-04. Running from Your Heart (03:44)(   Читать дальше...   )Жанр: AORПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FDB1C16CEA9FC55DC7A12118E896657AD1F6E76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702642   (115695) от 25.02.2024
-
-Job for a Cowboy - Moon Healer (2024) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115695.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beyond the Chemical Doorway (04:10)
-2. Etched in Oblivion (04:14)
-3. Grinding Wheels of Ophanim (05:52)
-4. The Sun Gave Me Ashes So I Sought Out the Moon (04:04)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D91F0B92598C5A7FD9268CDF5865CE57DA0F134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702413   (115696) от 25.02.2024
-
-Distant - Heritage (2023) 3CD Absolute Deluxe Edition, 2024, Century Media [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Rain [00:01:54]
-02. Paradigm Shift [00:03:23]
-03. Born of Blood [00:03:16]
-04. The Grief Manifest [00:03:33](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 3 CD, 02:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A818BE398A8B81DE5E21AD8EC3AD2C391DBEBC90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702593   (115697) от 25.02.2024
-
-Анастасия Гор | 2:36 по Аляске (2024) [MP3, Татьяна Манетина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейми Рейс – единственная во всей Аляске, проснувшаяся утром 27 августа после рокового «2:36» на часах. Обнаружив вокруг себя лишь мертвецов, Джейми решает во что бы то ни стало добраться до Орегона, где осталась ее семья. Однако новый мир, хоть и безмолвный, таит в себе много опасностей. На помощь Джейми приходит Крис Роуз – бывший офицер полиции, ныне возглавляющий (   Читать дальше...   )Жанр: Научная фантастика, Социальная фантастикаИздательство: ЭксмоПродолжительность: 16:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11196DBBA4A65E4ED0F5150F32EE635D99147581
 ```
 
 

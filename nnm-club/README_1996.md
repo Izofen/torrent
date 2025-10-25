@@ -1,3 +1,27 @@
+###  Публикация: 1732384   (52262) от 24.06.2024
+
+Steven D. Jamar, Lateef Mtima (еditors) | The Cambridge Handbook of Intellectual Property and Social Justice (2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Protection for intellectual property has never been absolute; it has always been limited in the public interest. The benefits of intellectual property protection are meant to flow to everyone, not just a limited population of creators and the corporations that represent them. Given this social-utility function, intellectual property regimes must address issues of (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University Press: UKФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA644562FA9C30BFCE23FF8F5BC53F98E5EABF92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732334   (52263) от 24.06.2024
 
 Сириус Дрейк | Дорогой барон! (Книга 3). Я еще барон (2024) [MP3, Александр Башков]
@@ -606,33 +630,6 @@ magnet:?xt=urn:btih:61CECED4780EDC65786B21F4DC72D675454A3877
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:981C258225997F609A5EA5A83FD3B2FB2C401315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821310   (52288) от 01.10.2025
-
-Dying Wish - Flesh Stays Together (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Belong Anywhere
-02. A Curse Upon Iron
-03. I'll Know You're Not Around
-04. Revenge In Carnage(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1142F8C498DF9C149014E6EA09F0E3A99CF2C53
 ```
 
 

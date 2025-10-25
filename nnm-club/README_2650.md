@@ -1,3 +1,27 @@
+###  Публикация: 1784192   (69650) от 09.03.2025
+
+Смешанные единоборства. UFC 313: Pereira vs. Ankalaev (09.03.2025) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Main card турнира "UFC 313", прошедшего в T-Mobile Arena in Paradise, Nevada, part of the Las Vegas Valley, United States.Телекомпания: Матч!Жанр: Спорт, смешанные единоборстваЯзык озвучки: русскийПродолжительность: 02:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48731EBADBA93F3C65AC56BD7E3E3A073225940
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784186   (69651) от 09.03.2025
 
 Telegram Desktop 5.12.2 + Portable [Multi/Ru]
@@ -629,33 +653,6 @@ magnet:?xt=urn:btih:344E6537A94D7579B8C1965F81AA3AE1812B2B41
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D12DE59A5A1845BB3D1F47DA09BE8E50190561C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783977   (69676) от 08.03.2025
-
-VA - City Skyline: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Unimaginable (5:25)
-02. Lennart Richter - Sunset Drift (Original Mix) (3:30)
-03. Eddie Silverton - When Everyone (5:49)
-04. Schwarz & Funk - Paresse (Original Mix) (5:45)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4636CB6C06CFFD70B4AD0FD21BA3E3541ACE1623
 ```
 
 

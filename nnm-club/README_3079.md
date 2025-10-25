@@ -1,3 +1,79 @@
+###  Публикация: 477320   (98394) от 02.04.2012
+
+[Wallpapers] Nature HD Wallpapers Pack 11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98394.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature HD Wallpapers Pack 11 
+Название:  Nature HD Wallpapers Pack 11 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 5000х3331
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BB84E13A3367463DF9B4C670ED3E359309605E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477156   (98395) от 02.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (01.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D894F675304B5211766A1F35A80FE6552B2F03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477186   (98396) от 02.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (03.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4321A26A1038E785BC62FE68B5F7A23CD07AA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477155   (98398) от 02.04.2012
 
 [Wallpapers] Computer Desktop Wallpapers Collection (01.04.12)
@@ -629,95 +705,6 @@ magnet:?xt=urn:btih:868A23547F0AE56C1900869179DB9493800D9E23
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98999959CC7639DE7C751168F29CF28B2266FD1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477276   (98435) от 02.04.2012
-
-[Wallpapers] Full HD Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98435.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Full HD Wallpapers Pack 4 
-Название:  Full HD Wallpapers Pack 4 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61C84302BDA1D9B90CC2E6B0B64811D7FD45C7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474814   (98437) от 02.04.2012
-
-Modern Day Escape - Under The Gun (2012) [MP3|320 кб/с]<Alt. Rock / Post-Hardcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98437.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. City of Thieves
-2. Don't Hold it Against Me
-3. Life's a Bitch
-4. Tiger's Blood
-5. Angels Up Above
-6. The Syndicate
-7. Voiceless
-8. Feels On the Darkside
-9. Playing the Victim
-10. Under the Gun(   Читать дальше...   )2012Жанр: Alt. Rock / Post-HardcoreПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0122C9277FADDD11A94FDE751ACD1341FCE6ED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477317   (98438) от 02.04.2012
-
-[Wallpapers] Moto Desktop Wallpapers
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98438.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Moto Desktop Wallpapers 
-Название:  Moto Desktop Wallpapers 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4CB33858759551C3828662149C31CDA871DE54
 ```
 
 

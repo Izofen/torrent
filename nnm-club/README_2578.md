@@ -1,3 +1,30 @@
+###  Публикация: 1791754   (67778) от 15.04.2025
+
+The Oscar Peterson Quartet - City Lights: Live in Munich (1994) 2024, Mack Avenue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Will Never Be Another You [8:49]
+02. The Gentle Waltz [11:11]
+03. Kelly's Blues [8:49]
+04. Love Ballade [10:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FCC1310BAD955D6A15B52BFFBCE3EEA7E4901E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791739   (67779) от 15.04.2025
 
 Sacrifice - Volume Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -626,30 +653,6 @@ Trueno Negro - Neogenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98F4E05B3072D2CF1E20F67BEA671FCF19E92321
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791567   (67804) от 14.04.2025
-
-MotoGP. Этап 04 из 22. Гран-при Катара. Гонка (13.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67804.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 апреля 2025, воскресенье. 20:00 МСК. Этап 4, Доха. Гран-при Катара. Гонка (22 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6784693C1F849E40CE8F66CFB224872492B34EE9
 ```
 
 

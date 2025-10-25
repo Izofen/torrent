@@ -1,3 +1,190 @@
+###  Публикация: 1719158   (110607) от 28.04.2024
+
+Stefano Paolini - Modern Jazz Drumming, Vol. 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three and Four (4:30)
+02. Three and Four (No Drums) (4:30)
+03. Relaxin at Home (5:44)
+04. Relaxin at Home (No Drums) (5:44)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F7726497D40C38164F234356856F3D57BC79AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719135   (110608) от 28.04.2024
+
+Barbara Morrison featuring Houston Person - A Sunday Kind Of Love (2010 - 2012) 2013, Savant [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Just a Lucky So and So [4:42]
+02. Soft Winds [3:46]
+03. The Green Door [3:54]
+04. Good Morning Heartache [4:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6418F661AABA516C5B9C8FA15720B8DCC32DCFCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719134   (110609) от 28.04.2024
+
+Bruno Montrone - Unaware Beauty (Studio) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edward Lee (Studio) (8:50)
+02. Riflessiva (Studio) (6:39)
+03. Unaware Beauty (Studio) (6:42)
+04. The Hodgepodge (Studio) (4:54)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E819F2AB9C49093E5A8CAA6C677DF60FB38B578
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719157   (110610) от 28.04.2024
+
+Nigel Price Organ Trio - That's It. Right There (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Shirley (6:57)
+02. Morning Star (7:55)
+03. Night Flight (6:37)
+04. You Don't Know Me (8:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3316954DE75FFDB381CF7DEE3953EE8A1A3401
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719156   (110611) от 28.04.2024
+
+Juan Pablo Balcazar - Otro Quatuor Pour La Fin Du Temps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preludio al Quartet (9:26)
+02. I El Despertar (5:55)
+03. II El Anuncio (6:23)
+04. III El Abismo (3:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812307333CE9004D1C08208515E4DCEA6F03EE9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719139   (110612) от 28.04.2024
+
+Rob Stoneback Big Band - Caught In The Web (1996) Sea Breeze [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caught in the Web [3:19]
+02. Canadian Sunset [3:34]
+03. Lullaby of Birdland [4:08]
+04. Road Apple [4:24](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5AA929BE1D119903539CFEC4223BDBEDD5275BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719179   (110613) от 28.04.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 4-й матч) Бостон Брюинз - Торонто Мэйпл Лифс (27.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110613.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 апреля 2024, воскресенье. 03:00 МСК. 1/4 финала - Восток. 4-й матч. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 256 зрителей (95% при вместимости 20 270)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Кайл Флемингтон (Паркхилл, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10E94E6FCD851CDE14DA6FBE791CABA439BA42A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719128   (110614) от 28.04.2024
 
 НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 4-й матч) Каролина Харрикейнз - Нью-Йорк Айлендерс (27.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
@@ -495,187 +682,6 @@ Attic - Return of the Witchfinder (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A403C06D816B3F005152C2E739CA6D45A146602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719186   (110633) от 28.04.2024
-
-Danko Jones - Electric Sounds (2023) Deluxe Version, 2024, AFM Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guess Who's Back (2:41)
-02. Good Time (3:57)
-03. Electric Sounds (3:14)
-04. Get High? (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE24CACF5E2A4F4472D0361F233ED9424156819
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719136   (110634) от 28.04.2024
-
-Chilled Jazz Masters - Mocha Rythm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Café Conversations (4:06)
-02. Mocha Moments (4:47)
-03. Sensual Soiree (3:36)
-04. Love Brewed in Jazz (4:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139DDC7BE45B8BEBCE35F6ECCD2E035AFDAD2AA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719216   (110635) от 28.04.2024
-
-U.D.O. - Dominator (2009) Reissue, 2017, AFM Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110635.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Bogeyman
-A2 Dominator
-A3 Black And White
-A4 Infected(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0338B7092D5F6CEF233FEB980B79E9E7AF6F9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719165   (110636) от 28.04.2024
-
-Vanden Plas - The Empyrean Equation Of The Long Lost Things (2024) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110636.jpg" />
-</div>
-
-
-###  Подробнее
-
-I The Empyrean Equation Of The Long Lost Things
-II My Icarian Flight
-III Sanctimonarium
-IV The Sacrilegious Mind Machine(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6242D8D6355BC2594566585F9E5895744E507F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719193   (110637) от 28.04.2024
-
-Собачья жизнь: Друзья навек / Zai jian, Li Kele / So Long for Love (2023) WEB-DLRip [Line] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в семье наступают непростые времена, на помощь приходит очаровательный щенок по кличке Кола. Новый друг способен вдохнуть жизнь и научить людей искренней любви и преданности.Производство: Китай / Matt Film, Asia Pacific National Film Cultural Media, Beijing DengfengЖанр: семейный, драмаРежиссер: Ван СяолеАктеры: Янь Ни, Тань Сунъюнь, Джеки У, Цзян Лун, Чжао Сяотан, Фэн Лэй, Ли Хучэн, Гао Лу, Госюн Ху, Лю ЯцзиньПеревод: Дублированный (Paragraph Media) LineЯзык озвучки: РусскийСубтитры: Английские, Китайские (hardsub)Продолжительность: 01:45:38Реклама: Присутствуют вставки аудио и видео рекламы.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719299   (110638) от 28.04.2024
-
-Игденбу /  Зундукай (1930) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110638.jpg" />
-</div>
-
-
-###  Подробнее
-
-О событиях в селении охотников-гольдов в период советизации Дальнего Востока. Народность гольдов в наше время называют нанайцами. Фильм вроде как художественный, т.е. с героями, сюжетом и т.п., и в тоже время весьма этнографичен. Достаточно подробно показан быт гольдов, одежда, домашние заботы, охота, праздники и т.д. Мне было интересно.
-Фильм из в коллекции Госфильмофонда (   Читать дальше...   )Производство: СССР, ВостоккиноЖанр: драма, история, немое киноРежиссер: Амо Бек-НазаровАктеры: Юн-Шен Ли, Найхим, Торгон, В. ТенСубтитры: русские (интертитры)Продолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1393F781AE68469159A3EAA9DE3B20FE0511565
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716772   (110639) от 28.04.2024
-
-4K Video Downloader + 1.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF04A1EA86C6127507502E83AC0312598E38628
 ```
 
 

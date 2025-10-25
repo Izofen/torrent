@@ -1,3 +1,92 @@
+###  Публикация: 477276   (98435) от 02.04.2012
+
+[Wallpapers] Full HD Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98435.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Wallpapers Pack 4 
+Название:  Full HD Wallpapers Pack 4 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61C84302BDA1D9B90CC2E6B0B64811D7FD45C7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474814   (98437) от 02.04.2012
+
+Modern Day Escape - Under The Gun (2012) [MP3|320 кб/с]<Alt. Rock / Post-Hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98437.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. City of Thieves
+2. Don't Hold it Against Me
+3. Life's a Bitch
+4. Tiger's Blood
+5. Angels Up Above
+6. The Syndicate
+7. Voiceless
+8. Feels On the Darkside
+9. Playing the Victim
+10. Under the Gun(   Читать дальше...   )2012Жанр: Alt. Rock / Post-HardcoreПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0122C9277FADDD11A94FDE751ACD1341FCE6ED9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477317   (98438) от 02.04.2012
+
+[Wallpapers] Moto Desktop Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98438.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Moto Desktop Wallpapers 
+Название:  Moto Desktop Wallpapers 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4CB33858759551C3828662149C31CDA871DE54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476479   (98442) от 02.04.2012
 
 Mike Reinhardt Trio - Road Song (2012) [MP3|320 кб/с]<Jazz, Fusion>
@@ -653,96 +742,6 @@ New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7BB0A88F2706F522FEC9126FFA7E866F725A15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477392   (98483) от 03.04.2012
-
-VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Molla & Marquis - Self Control (Radio Edit)
-02. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri Feat. Mat Twice - Tell Me Waf
-03. Example - Changed The Way You Kiss Me (Mike Candys Remix)
-04. Armin Van Buuren Pres. Gaia - Stellar (Original Mix Edit)
-05. Scooter Feat. Vicky Leandros - C'est Bleu
-06. Lady Gaga - Marry The Night (David Jost Twin Remix)
-07. Basto! - Again And Again (Bassanova And Moradzo Remix)
-08. Dj Smash & Chinkong - Lifemission (Radio Edit)
-09. Dj Rynno And Sylvia - Feel In Love (Radio Edit)
-10. Alexandra Stan - Crazy (Nir Ozer Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB65284B810A5697469B4B5282DD1C29CEBBFC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476579   (98484) от 03.04.2012
-
-Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Grindcore / Goregrind / Death'Roll>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Nota Maron
- 02. Fecal Deluxe Party
- 03. El Modelo Shitman
- 04. Lord Of The Gas
- 05. Las Tías Buenas No Cagan
- 06. Cagando En Arguelles
- 07. Coprovoyeur
- 08. Vejado Por Gordas Deprvadas
- 09. Salcedo's Adventure
- 10. Coprosicion Incedente(   Читать дальше...   )2011Жанр: Grindcore / Goregrind / Death'RollПродолжительность: 00:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477167   (98485) от 03.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (02.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
 ```
 
 

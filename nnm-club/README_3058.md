@@ -1,3 +1,91 @@
+###  Публикация: 470164   (97263) от 20.03.2012
+
+VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zyce & Flegma - Afterglow (8:41)
+2. Cabal - The sacred Spirit (7:38)
+3. Aquafeel - GloryLand (6:43)
+4. Aqualize - Land of 2 Suns (7:51)
+5. Audioload - Way Out (7:42)
+6. Andromeda - Sensation (Aquafeel RMX) (6:32)
+7. Time in Motion - Colour (8:07)
+8. Progenitor - Typical Human Behaviour (8:18)
+9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470988   (97264) от 20.03.2012
+
+[Wallpapers] Nature Pictures №32
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97264.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №32
+Название: Nature Pictures №32
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470987   (97265) от 20.03.2012
+
+[Wallpapers] HD Pictures №1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97265.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №1
+Название: HD Pictures №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471008   (97266) от 20.03.2012
 
 [Wallpapers] HD Wallpapers Pack 3
@@ -635,78 +723,6 @@ Nike Beats - Instrumental vol.4 (2012) [MP3|320 кб/с]<Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470622   (97302) от 20.03.2012
-
-[Wallpapers] Cars HD Wallpapers (19.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835CA12CD4B0CD63DBB32E126916A6C1848B1011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470711   (97303) от 20.03.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4D8CB0C8DB0CF2818AE189FA5632399C4AE4CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470434   (97304) от 20.03.2012
-
-Настоящие Афeристы Выпуск 5 (2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши эксперты рассказывают, как избежать самых невероятных видов мошенничества. Ответственного за доставку обманом заставляют расстаться с развозным товаром.Жанр: ТелепередачаПродолжительность: 00:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD78C51EC669ADCBB965ED9646A7617AA3BB1231
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1784945   (69520) от 13.03.2025
+
+Wily Bo Walker - The Rattlin Bone Theatre Show Volume 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shoot Me Down (3:50)
+02.  Drag Me Down (3:00)
+03.  Down Amongst the Dead Men (4:47)
+04.  Ain't Gonna Dig My Own Grave (No More) (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DD74C251E4570A8B7A49C558625EAB1C334E10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784872   (69521) от 13.03.2025
 
 Журнал | Профиль №9-10 (249) (март 2025) [PDF]
@@ -642,32 +669,6 @@ magnet:?xt=urn:btih:CBCC901118ACE4A15FDC260F1F689CD9D22DA62A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72BFE510A7FBF731B2E19B08859EEC18E11A8E26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784733   (69546) от 12.03.2025
-
-Шрифты - Creative Market  - Beanco Font - 128915766 [OTF, TTF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт Beanco — это ретро-жирный рукописный шрифт, созданный Digitype Studio с винтажными нотками. Этот шрифт милый, причудливый и игривый.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DC1C28D234B89CC449FC515DDB972778DE3717
 ```
 
 

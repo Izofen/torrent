@@ -1,3 +1,36 @@
+###  Публикация: 470395   (83313) от 20.03.2012
+
+Ottawan - Greates Hits (2007) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're OK (3:29)
+02. D.I.S.C.O. (3:21)
+03. Hands Up (Give Me Your Heart) (3:33)
+04. Crazy Music (3:36)
+05. Shalala-Song (3:45)
+06. Comme Aux U.S.A. (4:57)
+07. A.I.E. Is My Song (3:34)
+08. Shubidube Love (2:54)
+09. Doudou Rumba (3:39)
+10. Hello Rio (4:31)(   Читать дальше...   )2007Жанр: DiscoПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468397   (83314) от 20.03.2012
 
 Slim - Весна-Лето [EP] (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
@@ -621,39 +654,6 @@ Gunrox (L) [Ru, Ua, En] 2008
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C5B4269FE3DAB78946C40F2E1D82930BD767A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470587   (83357) от 20.03.2012
-
-Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, Instrumental, Chor.>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - God of Thunder
- 02 - Incredible Machines
- 03 - Rebirth of a Legend
- 04 - Rebirth Remix
- 05 - Rise of a Hero
- 06 - Warhammer
- 07 - Guardian Angel
- 08 - Limitless
- 09 - Grand Design
- 10 - Dark Force Rising(   Читать дальше...   )Жанр: Orchestral - Electronic - DramaПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
 ```
 
 

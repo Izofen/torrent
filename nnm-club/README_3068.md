@@ -1,3 +1,85 @@
+###  Публикация: 473998   (97783) от 27.03.2012
+
+Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97783.jpg" />
+</div>
+
+
+###  Подробнее
+
+(04:42) 01. Etheric Body
+(05:10) 02. Emotional Body
+(04:56) 03. Mental Body
+(05:57) 04. Spiritual Body
+(03:16) 05. Green Sea
+(05:57) 06. Orange Sunset
+(05:11) 07. Indigo Sky
+(04:05) 08. Yellow Light
+(03:38) 09. Red Moon
+(10:13) 10. Violet Clouds(   Читать дальше...   )2006Жанр: New ageПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525540B6EC57A5FCFDA9F6EBD60C0E7030EFB8C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474029   (97790) от 27.03.2012
+
+Журнал | Автомир [Украина] №13 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97790.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686EAE222951014E78E6215A61E02ECE23533B11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473948   (97792) от 27.03.2012
+
+Мария Ланг | Шелк и бархат [2005] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман
+Оригинальное название:2005Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB70E9AA165F377C00FCC2BE97C30D687D599AAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473934   (97793) от 27.03.2012
 
 [Wallpapers] Anime Desktop Wallpapers Pack 2
@@ -608,96 +690,6 @@ magnet:?xt=urn:btih:517DF82C6503A9EDC89C248A9F08E643F7D05980
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FD658B89F3628818C12C72953E28059CA2B3F40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474154   (97849) от 28.03.2012
-
-VA - Музыкальная волна - Версия 6 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Бужинская - Обещаю
-002. David Guetta - Titanium (Feat. Sia)
-003. Даша Суворова - Давай Помолчим
-004. Тимур Родригез - Лучше Не Будет
-005. Franky - Touch Me
-006. Max Vertigo Feat. Koshka - Унеси Меня
-007. Дима Билан - Rock My Life
-008. Ирина Круг - Любить Не Страшно
-009. Nayer Feat. Pitbull & Mohombi - Suavemente
-010. Push-Up - Пора По Барам(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB38A994724C294275A412F73F271EE4C35476B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474649   (97852) от 28.03.2012
-
-Журнал | Elle Decoration №4 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97852.jpg" />
-</div>
-
-
-###  Подробнее
-
-ELLE ДЕКОР - самый красивый и полезный журнал о современном интерьере. В журнале представлены: последние тенденции мебельного дизайна и декорирования, эксклюзивные интервью с известными архитекторами, дизайнерами и фотографии лучших домов России и всего мира.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9C83284CA0B7A8D2742329EF1D9AC1CDF642D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474270   (97853) от 28.03.2012
-
-DJ Kocmoc - Electro Sensation vol.23 (23.03.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97853.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Aptekar feat. Monika Star - A Dream Within A Dream (David Argunetta Remix)
-2. Avril Lavigne - Complicated (DJ Solovey Remix)
- 3. Tiff Lacey & Fergus Keogh - Darkest Hours (Erick Strong Remix)
-4. DJ M.E.G. & B.K. feat. Ser Twister - Make Your Move (DJ Pashkevich Remix)
-5. Tango & Cash - In Your Eyes (Club Mix)
-6. Paradiso - Bailando (Ser Twister Remix)
-7. Scooter - Weekend (Positive DJ's Remix)
-8. Eugene Star feat. DJ Goman - Love Sex Dance (Chris Daren Remix)
-9. Fugees - Ready Or Not (DJ Solovey Remix)
-10. Dj Amor - Best memories (Dj Rembo Remix)(   Читать дальше...   )23.03.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59E165793A5524F16D2D3F1527AD36CAA3C3F22
 ```
 
 

@@ -1,3 +1,85 @@
+###  Публикация: 486573   (100180) от 22.04.2012
+
+Журнал | Встречи на кухне № 3. Устроим рыбный день! [март 2012] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный журнал для тех кто любит готовить.
+Тема номера: Рыбный день.март 2012Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864157A5CEAA9B8792414FF7E483C1CB6AB17529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486285   (100181) от 22.04.2012
+
+Журнал | Автомир [Украина] №17 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100181.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C58B7FC2CF4692B508B5502CCFC2819CD6C45D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484211   (100193) от 22.04.2012
+
+VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Brandt - Mana (Original Mix)
+02. Rafael Frost - Channel 4 (Original Mix)
+03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
+04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
+05. Phunk Investigation - Smash (Original Mix)
+06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
+07. Kachu MX - Alien Bubble (Original Mix)
+08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
+09. Matula feat Goldsound - Wonderful World (Gaga Remix)
+10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486208   (100199) от 22.04.2012
 
 Журнал | Yes! №159 [март 2012] [PDF]
@@ -590,86 +672,6 @@ magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E704D269E4DF0D9271DFAC551658FA6DED814DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487117   (100283) от 23.04.2012
-
-[Wallpapers] HD Wallpapers №19
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100283.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №19
-Название: HD Wallpapers №19
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487111   (100284) от 23.04.2012
-
-[Wallpapers] Nature Pictures №50
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100284.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №50
-Название: Nature Pictures №50
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487116   (100285) от 23.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №28
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1280х1024 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
 ```
 
 

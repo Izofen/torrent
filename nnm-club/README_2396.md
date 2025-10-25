@@ -1,3 +1,27 @@
+###  Публикация: 1707737   (62663) от 17.03.2024
+
+Office Installer & Office Installer+ 1.06 by Ratiborus [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Installer - программа предназначена для online и offline установки Office 2016/2024 C2R. Так же имеется возможность создать свой дистрибутив Office для последующей установки Office offline.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9B930682109D06D91E2583758A4F4D6682DC3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707713   (62664) от 17.03.2024
 
 Четвертый ангел / The Fourth Angel (2001) WEB-DL [H.264/1080p]
@@ -612,33 +636,6 @@ magnet:?xt=urn:btih:E9AEFE558DC9D3DB8F6225A311CC50A6C1A43B4E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2287EAC2CA27C2EA0426EE62B578A623AC129C24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707681   (62689) от 17.03.2024
-
-VA - Deep Astral (2024) [MP3|320 Kbps] <Chill, Electronic, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillout Music Cafe - Secret Paradise (00:01:54)
-02. Luna Dreamscapes - Captain's Cuddle (00:02:20)
-03. Afternoon Bike Ride - Bois Dormant (00:02:28)
-04. Salami Rose Joe Louis - Dimcola Reprise (00:02:31)(   Читать дальше...   )Жанр: Chill, Electronic, Relax, ExperimentalПродолжительность: 08:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DAC8F1CCACE3EC63A9519525553069470975C6
 ```
 
 

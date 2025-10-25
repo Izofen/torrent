@@ -1,3 +1,27 @@
+###  Публикация: 1727777   (54421) от 04.06.2024
+
+Хираманди: Блеск бриллиантов / Heeramandi: The Diamond Bazaar (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) TVShows
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая половина 1940-х. Индия борется за независимость, на улицах бушуют беспорядки. В это время индийские куртизанки учатся искусству соблазнения и воюют за власть в квартале красных фонарей.Производство: Индия, Bhansali ProductionsЖанр: драма, мелодрама, историяРежиссер: Санджай Лила БхансалиАктеры: Маниша Коирала, Сонакши Синха, Адити Рао Хидари, Рича Чадха, Шармин Сегал, Санджида Шейкх, Анудж Шарма, Jason Shah, Тааха Шах, Indresh MalikПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, ХиндиСубтитры: Английские (Forced, Full)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D628694B104DA8FC4297CEC4F39E89C4FF9EF709
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727795   (54422) от 04.06.2024
 
 DVDFab UniFab 2.0.2.2 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -602,30 +626,6 @@ magnet:?xt=urn:btih:22C0D618ABAB0B3EA0FC282FBF93797709B2247D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C1A7A0DDAF25AC765E4FAE2E86BA27762E36D99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727650   (54447) от 03.06.2024
-
-Paul Barry | Head First Python. Second edition (2016) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54447.jpg" />
-</div>
-
-
-###  Подробнее
-
-With Head First Python, you’ll quickly grasp Python’s fundamentals, working with the built-in data structures and functions. Then you’ll move on to building your very own webapp, exploring database management, exception handling, and data wrangling. This second edition is a complete learning experience that will help you become a bonafide Python programmer in no (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: O’Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D709CBC5FE019F9E9A49CF134C08740868A1CE27
 ```
 
 

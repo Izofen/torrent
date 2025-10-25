@@ -1,3 +1,184 @@
+###  Публикация: 1708456   (113091) от 20.03.2024
+
+Wondershare UniConverter for Mac 15.5.3 Intel/ARM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
+Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2024 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 (Intel) macOS 11.0 (Apple Silicon)Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F566DA03D2CBEA7D046323C43C6CAA6ED850E7A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708307   (113092) от 20.03.2024
+
+VA - Bar Lounge Costes 8: Chillout Uplifting Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digby Jones - Le Glacier (Dusty Mix) (2:35)
+02. Lennart Richter - Ride Along (3:24)
+03. Gary B - Breakout (2:52)
+04. Marga Sol - Excuses (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9831B8474D7F6DEED508C6832CF37012D91B9D95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708232   (113093) от 20.03.2024
+
+Джизус - Близнецы: Eros / Thanatos (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Москва [00:03:43]
+02. Привет [00:03:07]
+03. Временами всё пройдёт [00:04:56]
+04. Дыши со мной [00:03:55](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3850F57D0BD08B727A2267F06E341BB25C9A7709
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708466   (113094) от 20.03.2024
+
+VideoProc Converter 4K 6.4 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имея более 420 выходных форматов, VideoProc Converter 4K удовлетворит взыскательные потребности пользователей. Независимо от того, хотите ли вы конвертировать H.264 в H.265 (HEVC), MKV в MP4 / для iPhone, AVI для YouTube, 3D в 2D и другие. Им легко пользоваться даже новичкам.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2024 Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09B679BAB9531E88A6136C625E6C852F71BEF79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708299   (113095) от 20.03.2024
+
+Зелёный луч / Le rayon vert (1986) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой героине, парижанке Дельфин, перед самым отъездом в Грецию друзья сообщают, что едут без неё, и она остается одна. Пытаясь чем-то заполнить внезапно навалившийся отпуск, Дельфин едет то к одним друзьям, то к другим, затем к морю, в горы и снова к морю - всё бесполезно, всюду её ждёт одно лишь душевное одиночество. Блеснёт ли и для Дельфин когда-нибудь зелёный (   Читать дальше...   )Производство: Франция / Ministère de la Culture et de la Communication, P.T.T., Les Films du LosangeЖанр: драма, мелодрамаРежиссер: Эрик РомерАктеры: Мари Ривьер, Венсан Готье, Беатрис Роман, Розетт, Эрик Амм, Карита, Жоэль Комарло, Доминик Ривьер, Клод Жюльен, Аларик Жюльен, Амира Чемакхи, Мария Луиза ГарсияПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE08488A4D89C33B2535430DDD0E2BF5A3CE0D0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708358   (113096) от 20.03.2024
+
+VA - Яблони в цвету (1976) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Яблони в цвету (Е. Мартынов — И. Резник)
+Евгений Мартынов
+02. Арлекино (Э. Димитров — русский текст В. Баркаса)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE2C98E209D16FD4AEFB5BB5ED016D83B7C2CA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708093   (113097) от 20.03.2024
+
+Hugo Schettino Blues Trio - Find Yourself (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Find Yourself (3:21)
+02. Burn This Town (2:33)
+03. The Way You Look Me (2:35)
+04. Bad Days Will Pass (3:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3632AB42DABD8D607113D0291E9528961001D58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708504   (113098) от 20.03.2024
 
 Vivaldi 6.6.3271.53 include standalone [Multi/Ru]
@@ -474,190 +655,6 @@ Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65FACEDA8995EA28FED5F2BC83B4ADFE02593792
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708011   (113117) от 19.03.2024
-
-Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Planet (2:52)
-02. Happy Earth (2:53)
-03. Yellow Bird (2:35)
-04. Balmy Night (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B3166E0EB7AD153662AE80ED59AD500D7DE58F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708016   (113118) от 19.03.2024
-
-Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Space (0:58)
-02. Heirloom (4:32)
-03. Vortex (2:49)
-04. Buoyancy Of Water (3:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708097   (113119) от 19.03.2024
-
-Марина Серова  Частный детектив Татьяна Иванова. Ошибка Купидона (2024) [MP3, Шахерезада]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город в панике: таинственный шантажист-убийца посылает письма с угрозами в семьи девочек-подростков. Если ему вовремя не выплатят определенную сумму, говорится в письме, девочка будет изнасилована и убита. И это не пустые угрозы: женщина заплатила шантажисту нужную сумму, однако, ее дочь все-таки убили. Безутешная мать обратилась за помощью к частному детективу Татьяне (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557479B134BB787AFD73E1DB77005AB2A8A46FCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708156   (113120) от 19.03.2024
-
-Karpathian Relict - Forever Not Yet (2018) [FLAC|Lossless|tracks] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dormant Mind
-02. In The Course Of Centuries
-03. The Filthy Desires Of Flesh
-04. Express Your Will(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2FAC59B505115B946B803451AD1FF60F95DBB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708063   (113121) от 19.03.2024
-
-The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Announcements by Willis Conover and Art Farmer [1:16]
-02. It Ain't Necessarily So [7:25]
-03. The Portrait [4:28]
-04. Bean Bag [9:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09003E02F7F3C65F7C60DEC4D1512F513D3CCE8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707767   (113122) от 19.03.2024
-
-Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113122.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Transilvanian Hunger
-A2 Over Fjell Og Gjennom Torner
-A3 Skald Av Satans Sol
-A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708020   (113123) от 19.03.2024
-
-Codepoint for Mac 1.15 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
-Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2022–2024 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963BE241D02921AEF0F05D79F06F5530B5D4D0AA
 ```
 
 

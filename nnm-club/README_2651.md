@@ -1,3 +1,30 @@
+###  Публикация: 1783977   (69676) от 08.03.2025
+
+VA - City Skyline: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Unimaginable (5:25)
+02. Lennart Richter - Sunset Drift (Original Mix) (3:30)
+03. Eddie Silverton - When Everyone (5:49)
+04. Schwarz & Funk - Paresse (Original Mix) (5:45)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4636CB6C06CFFD70B4AD0FD21BA3E3541ACE1623
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784019   (69677) от 08.03.2025
 
 Андрей Усачёв | Азбука умной собачки Сони (2023) [PDF, FB2, EPUB, MOBI]
@@ -626,30 +653,6 @@ CD One - Original Album:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF6C26E0F1E8F203667C36499F4D6EAF51D8BBE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783987   (69702) от 08.03.2025
-
-Звуковые библиотеки - Gobuz - Refocus with Nature FX [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальные звуки дикой природы при разных погодных условиях: звуки утреннего леса, тихие вечерние крики птиц, ветреная весенняя атмосфера и т.п.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90555406A40769D26C87C5534678C47626D3C4D6
 ```
 
 

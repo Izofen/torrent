@@ -1,3 +1,186 @@
+###  Публикация: 1740482   (105823) от 02.08.2024
+
+Lord Of The Lost - LIVE at W:O:A (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Gothic, Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lighting The Way (Intro) (LIVE at W:O:A) [3:00]
+02 - The Curtain Falls (LIVE at W:O:A) [3:05]
+03 - Morgana (LIVE at W:O:A) [3:46]
+04 - Kill It With Fire (LIVE at W:O:A) [3:45](   Читать дальше...   )Жанр: Rock, Gothic, Glam RockПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3D8DCE30287045162A1CC7C4FD4AB8987C4E25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740580   (105824) от 02.08.2024
+
+Los Lonely Boys - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wish You Would (3:34)
+02. I Let You Think That You Do (3:31)
+03. Dance With Me (3:53)
+04. Send More Love (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E9BBDADF2821D5C5A13F27FD742A266D8CBEE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740638   (105825) от 02.08.2024
+
+Максим Горький | Избранное (2006) [MP3, Александр Бордуков, Максим Пинскер]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Максим Горький (настоящее имя – Алексей Максимович Пешков) (1868–1936) – русский писатель, литературный критик и публицист.
+Благодаря своему незаурядному таланту рассказчика и художника Максим Горький удивительно ярко, красочно и живописно, с подлинно эпическим размахом, отражает в повестях и рассказах, представленных в этом сборнике историю, быт и культуру России (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 05:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1138DF47D810F24574DA0241FEE0234C24AE50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740480   (105826) от 02.08.2024
+
+Blind Guardian - Somewhere Far Beyond (Live at Rock Hard Festival 2022) (2024) [FLAC|Lossless|WEB-DL|tracks] <Metal, Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Time What is Time (Live at Rock Hard Festival 2022) [6:22]
+02 - Journey Through the Dark (Live at Rock Hard Festival 2022) [5:14]
+03 - Black Chamber (Live at Hellfest 2022) [1:25]
+04 - Theatre of Pain (Live at Rock Hard Festival 2022) [4:38](   Читать дальше...   )Жанр: Metal, Power Metal, Heavy MetalПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C4B4657C54FFBDF1640313798D23016B327686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740612   (105827) от 02.08.2024
+
+Максим Горький | Сказочное очарование Италии (2012) [MP3, Леонид Кареев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Максим Горький (настоящее имя – Алексей Максимович Пешков) (1868–1936) – русский писатель, литературный критик и публицист, в творчестве которого нашли отражение история, быт и культура России первой трети XX века.
+Об Италии можно рассказывать бесконечно. Об огромном, бескрайнем мире. О звездах, темными ночами, светящих из глубин неба. (   Читать дальше...   )Жанр: Русская литература, классика, рассказ-сказкаИздательство: МедиаКнигаПродолжительность: 07:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EBC6A42D2C8040D68F8DD88876E7A534E61ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740513   (105828) от 02.08.2024
+
+aurorawave - aurorawave (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World, Reggae, Reggae Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. aurorawave - Meant To Be [3:28]
+02. Atreyu;aurorawave - Inferno [3:33]
+03. aurorawave - Stratosphere [2:51]
+04. Layton Meacham;aurorawave - Rise & Shine [3:37](   Читать дальше...   )Жанр: World, Reggae, Reggae RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F08588075D7E66DF25A580D570AF50FD9FB9AF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740358   (105829) от 02.08.2024
+
+Девушка у штурвала / The Maid at the Helm (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения в океане. Китобойное судно подбирает потерпевших кораблекрушение, среди них молодая девушка. Мне кажется, что старая примета о том, что женщина на борту к неприятностям, имеет под собой какое-то основание...Производство: США / Selig Polyscope CompanyЖанр: короткометражный, драма, немое киноРежиссер: Френсис БоггсАктеры: Хобарт Босворт, Сидни Эйрс, Фред Хантли, Бетти Харт, Том Санчи, Херберт Роулинсон, Джордж ХернандезПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6351BC815BD9DDE090393FE426DB23447FDEC52C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740584   (105830) от 02.08.2024
 
 Los Lonely Boys - Resurrection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -476,189 +659,6 @@ magnet:?xt=urn:btih:42383541A1F3F566E277D07DFF3C37AD6AEC9A14
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740333   (105849) от 02.08.2024
-
-Отпуск на колесах / Prazdniny s Brouckem / Holiday On Four Wheels (2024) WEB-DLRip [H.264/1080p] [DVO] [AD]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая но дружная чешская семья - муж, жена и двое их детей - решили отправиться в отпуск к морю вместе со своими друзьями. Незадолго до отъезда мать семейства Моника получает в наследство от отца старенький трейлер. В то время как их друзья, добравшись до курорта на самолёте, вовсю наслаждаются отдыхом, Моника с мужем и детьми едут в душном трейлере, который (   Читать дальше...   )Производство: ЧехияЖанр: комедияРежиссер: Jirí MatousekАктеры: Барбора Полякова, Лукаш Прикаски, Барбора Драгоунова, Frantisek Sládek, Павел Зедничек, Мари Людвикова, Павел Новы, Томаш Жерабек, Михал Истеник, Мартин Соботка и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:32Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6DDB4070E49B99032532CABE9BB199270C88D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740435   (105850) от 02.08.2024
-
-VA - Armin van Buuren - A State Of Trance 1184 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Es Vedrà (Tune Of The Week)
-02. Farius & RUNN - I Surrender
-03. Gareth Emery & STANDERWICK ft. HALIENE - Saving Light (Gregor Larsen Remix)
-04. Avalan Rokston & ARTBAT - The Ocean(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E71AE2C392DF6E771BE3E3F041B9455B9146353
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740600   (105851) от 02.08.2024
-
-The Smashing Pumpkins - Aghori Mhori Mei (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Edin [6:47]
-02 - Pentagrams [6:26]
-03 - Sighommi [2:55]
-04 - Pentecost [3:19](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34ABCD7682299A66938AD80BD671208CE969D7A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740582   (105852) от 02.08.2024
-
-VA - Electronica Confessions, Vol. 6 (2014) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince Kaybee - Odd Moments (Main Mix) (6:03)
-02. DJ Trinity Blade - Skyla Rose (Steel Drum Mix) (5:37)
-03. Disco Ball'z - Don't Stop (5:13)
-04. Antony Well - Please Don't (4:59)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE04FE8427E106AEFB7A8986728C33B9BFB2F38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740585   (105853) от 02.08.2024
-
-VA - Electronica Confessions, Vol. 8 (2014) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morelly DJ & Elaine Mata Jones - Wherever You Are (Under Mix) (5:36)
-02. W.A.N. - Manganari (8:35)
-03. Tier Ra Nichi - It Came from There (Suspended Animation Vox Mix) (8:07)
-04. Magnetic Paradise - Picola's Groove (7:51)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0D4C28B07FA6057D1C4DAF738321F2D6961FDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740586   (105854) от 02.08.2024
-
-VA - Electronica Confessions, Vol. 9 (2014) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Derek Moon - On the Move (6:01)
-02. The Saliva Commandos - Kalepso (5:38)
-03. mike b - Love Is Life (8:31)
-04. Sebb Aston - Call Me (6:13)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1689716FD3C981B429B1A801F19DA9ADC03AEC9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740330   (105855) от 02.08.2024
-
-Пересечение / Переход / Crossing / Passage (2024) TS [H.264] [MVO]
-
->>Горячие новинки
->>Экранки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учительница на пенсии Лия отправляется из родного Батуми в Стамбул на поиски своей племянницы Теклы.Производство: Швеция, Дания, Франция, Турция, Грузия / French Quarter Film, Adomeit FilmЖанр: драмаРежиссер: Леван АкинАктеры: Мзия Арабули, Lucas Kankava, Deniz Dumanli, Nino Karchava, Levan Bochorishvili, Nino Tedoradze, Гига Шавадзе, Bunyamin Deger, Sema Sultan Elekci, Metin AkdemirПеревод: Многоголосый любительский (RGB 18+)Язык озвучки: РусскийСубтитры: Английские (hardsub, на всю речь)Продолжительность: 01:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD304946F3A70BC2D7E7A2020344F5C7B1F45DD
 ```
 
 

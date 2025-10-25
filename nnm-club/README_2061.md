@@ -1,3 +1,28 @@
+###  Публикация: 1728813   (53953) от 08.06.2024
+
+Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53953.jpg" />
+</div>
+
+
+###  Подробнее
+
+An essential teacher's companion to an innovative, uniquely visual English-language course, this guide helps English teachers--including those for whom English is not their native language--create clear, focused lesson plans, explain difficult concepts in a simple and concise way, and make language learning exciting, intuitive, and incredibly easy.
+English for Everyone (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A430A4BBA28A9CA39A4DA32DC17D0029ACFC6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728710   (53954) от 08.06.2024
 
 Plugin Alliance - MEGA Bundle Effects 2024 VST, VST 3, AAX [En]
@@ -607,30 +632,6 @@ magnet:?xt=urn:btih:47A1872C1DBD746742D7F4DE00C0E523CC8D5058
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00F1A895A0E5995F43455C7ED9FF5BF943E8AE31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728560   (53979) от 08.06.2024
-
-Полночь с дьяволом / Late Night with the Devil (2023) WEB-DLRip [H.264] [звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53979.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Хэллоуин 1977 года ведущий популярного вечернего телешоу готовит нечто особенное. Это будет паранормальный сеанс в прямом эфире, и главной звездой вечера должна стать юная Лили — героиня книги «Разговоры с дьяволом». Гонящийся за рейтингами шоумен не подозревает, чем обернется для него и для всех зрителей попытка проникнуть с помощью девушки в потусторонний мир.Производство: Австралия, ОАЭ, США / AGC Studios, IFC Films, VicScreenЖанр: ужасыРежиссер: Камерон Кернс, Колин КернсАктеры: Давид Дастмалчян, Лора Гордон, Иэн Блисс, Файссал Баззи, Ингрид Торелли, Рис Отери, Джош Квон Тарт, Джорджина Хэйг, Стив Музакис, Паула АрунделлПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:32:47
-
-## Скачать торент
-```bash
-нет
 ```
 
 

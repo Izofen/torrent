@@ -1,3 +1,36 @@
+###  Публикация: 450285   (93107) от 11.02.2012
+
+Saltillo - Monocyte (2012) [MP3|320 kbps]<Trip-Hop, Downtempo, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abeo
+ 02. Proxy
+ 03. If Wishes Were Catholics
+ 04. The Right Of Action
+ 05. They All Do It The Same
+ 06. Gatekeepers
+ 07. I Hate You
+ 08. Forced Vision
+ 09. Hollow
+ 10. The Locus Priory(   Читать дальше...   )2012Жанр: Trip-Hop, Downtempo, ExperimentalПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26F6BD0D20CF86871D7EA012E8E959FDACA0C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450754   (93138) от 11.02.2012
 
 Прожекторперисхилтон. Сезон 4. Выпуск 17(117) (10.02.2012) DVB
@@ -735,39 +768,6 @@ Ulf Wakenius - Vagabond (2011) [FLAC|Lossless]<Contemporary Jazz, Post-Bop, Ethn
 08. Praying (3:55)
 09. Chorinho (5:08)
 10. Witchi-tai-to (5:25)(   Читать дальше...   )2011Жанр: Contemporary Jazz, Post-Bop, Ethnic JazzПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452807   (93441) от 15.02.2012
-
-Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004) [FLAC|Lossless]<Jazz, Swing Jazz, Female Vocal Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood Party (2:40)
-02. Good Little, Bad Little You! (2:46)
-03. Living in Sin (3:31)
-04. How Could Red Riding Hood? (2:10)
-05. My Blue Bird's Singing The Blues (3:30)
-06. Don't Take That Black Bottom Away (3:35)
-07. CeDisque Vous Dira (2:33)
-08. Baby O' Mine (3:18)
-09. I Love My Baby, My Baby Loves Me (3:03)
-10. Jersey Walk (2:56)(   Читать дальше...   )2004Жанр: Jazz, Swing Jazz, Female Vocal JazzПродолжительность: 01:06:34
 
 ## Скачать торент
 ```bash

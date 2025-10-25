@@ -1,3 +1,30 @@
+###  Публикация: 1808053   (65048) от 22.07.2025
+
+Styx - Circling From Above (2025) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кто не в курсе: группа Styx образовалась в Chicago в 1972 году, поднявшись от выступлений в местных барах до статуса звёзд рока. Несмотря на перемены в составе за десятилетия - в частности, уход одного из основателей Dennis DeYoung в 1999 году - нынешний состав, в который входят Tommy Shaw, James JY Young, Lawrence Gowan, Chuck Panozzo, Ricky Phillips, Todd (   Читать дальше...   )01. Circling From Above (1:56)
+02. Build and Destroy (3:52)
+03. Michigan (3:03)
+04. King of Love (3:29)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1174F96EE8EABD1EEA8A5EDED907C7655D37DAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808101   (65049) от 22.07.2025
 
 Шаблоны - Design Syndrome - Album Art Pack VOL.1 [PSD]
@@ -618,32 +645,6 @@ Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808035   (65074) от 22.07.2025
-
-Сборники - Sc6ut Video Editing Pack #3 [AEP, MP4, MOV, EXE, TTF, OTF, TTC, FFX, GIF, MP3, JPG, MBLOOK, OFX]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sc6ut - третий пакет видеомонтажа для ваших творческих задач.
-
-*К каждому плагину и программе прикреплен туториал как установить и активировать.Формат: AEP, MP4, MOV, EXE, TTF, OTF, TTC, FFX, GIF, MP3, JPG, MBLOOK, OFX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F06DB160719A5CB6F8F76C8FD6DD7DD54148809
 ```
 
 

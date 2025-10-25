@@ -1,3 +1,191 @@
+###  Публикация: 1697161   (119076) от 05.02.2024
+
+Running Wild - Gates To Purgatory (1984) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victim Of States Power (3:40)
+02. Black Demon (4:29)
+03. Preacher (4:26)
+04. Soldiers Of Hell (3:30)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134730B59069D964A4F66912314CDF0B382632CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696680   (119077) от 05.02.2024
+
+Madder Mortem - Old Eyes, New Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming From The Dark 04:53
+02. On Guard 03:42
+03. Master Tongue 04:47
+04. The Head That Wears The Crown 04:25(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46FE162BD42AB4FFE7F5EFC8E82C476EE718BA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697057   (119078) от 05.02.2024
+
+South Of Sundays - Honey Tongue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - She Keeps It Coming (00:05:54)
+02 - Heaven Falls (00:03:15)
+03 - Slow Burn (00:03:26)
+04 - Diamonds In The Rough (00:03:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1247A8565022EDF64DE5B9B9F9DA4FE2F24F751D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696947   (119079) от 05.02.2024
+
+Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner/Sludge Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119079.jpg" />
+</div>
+
+
+###  Подробнее
+
+URNE - британская рок-группа. Сложно определить звучание группы в каком-то одном стиле... Все сводится к одному: тяжести.2018 - The Mountain of Gold
+2021 - Serpent & Spirit
+2023 - A Feast On SorrowЖанр: Stoner/Sludge Metal/MetalcoreПродолжительность: 02:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3D90B3739BF06799A27D9662E946428322A2AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697276   (119080) от 05.02.2024
+
+Hit The Ground Runnin' - Control Yourself (2000) Reissue, Remastered, 2023, Pride & Joy Music [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Control Yourself (4:08)
+02. Back Again (4:19)
+03. Shanghaid (3:50)
+04. Lost (4:40)(   Читать дальше...   )Жанр: AOR, Hard RockПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2023C54D7507E0C8212BD4E36779BD14BFE9E031
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697183   (119081) от 05.02.2024
+
+Black Paisley - Perennials (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want Your Soul (5:06)
+02. Day by Day (4:09)
+03. Sometimes (4:03)
+04. Mother (5:10)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11557F08B6B547F76CE45AB85CD7086C0A7399F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697195   (119082) от 05.02.2024
+
+Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119082.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ravnens Banner
+A2 Frosne Vind
+A3 Må Du Brænde I Helvede
+B1 Latvian Fegurð(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6C74709662552E4386128EF8CA6785B40D02CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697244   (119083) от 05.02.2024
 
 Sacred Darkness - Dark Depth (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -480,190 +668,6 @@ Tipard DVD Creator для Mac позволяет записывать любые
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C2227EC8E51068A492A66FE5CA52444DCB0B707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697160   (119102) от 05.02.2024
-
-Чудо техники с Сергеем Малозёмовым (04.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему валенки снова стали популярны, правда ли в них теплее, чем в современной обуви и что на их счет думают ортопеды — не вредят ли они здоровью?
- Бюро находок XXI века! Как устроены службы поиска вещей на транспорте и в общественных местах и что самое необычное из потерянного попадало к сотрудникам современных бюро находок.
- Универсальный камин-ночник-увлажнитель: (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3A405AF0BFDB3E11E99483E68C455A8C929330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697050   (119103) от 05.02.2024
-
-Background Music Masters, Smooth Jazz Family Collective - Bellissimo Jazz Italian Restaurant, Smooth Jazz, Good Mood and Romantic Jazz Collection (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sm ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italian Restauran Jazz Music (3:53)
-02. Amelie mon Amour (3:38)
-03. Love Story (4:17)
-04. Monte Carlo (3:38)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F49FCC019D3948A956994CEEE3840C9B27DCA28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697119   (119104) от 05.02.2024
-
-Text Editor Pro 28.4.1 + Portable + Bonus [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5E785ABAD1E582BA7AEC923027C32533D31573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697047   (119105) от 05.02.2024
-
-Ghost Atlas - Dust of the Human Shape (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Void Voyeur (00:04:46)
-02 - Panorama Daydream (00:03:58)
-03 - Lesser Gods (00:03:45)
-04 - Gaps In The Armoire (00:03:44)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E57E4381BC86F9D5810FBE27D32C2834443BFF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697271   (119106) от 05.02.2024
-
-Sacrify Souls - The New Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Stranger In Town (00:05:01)
-02 - We Born To Die (00:04:08)
-03 - Long Way To The Darkness (00:07:51)
-04 - Crossroad (00:08:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E175C2783F4B8758E3602EAB5E57BC4BDCAFE77B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696910   (119107) от 05.02.2024
-
-Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мельбурнский квинтет Acolyte занимает видное место на австралийской музыкальной сцене как мощный и исследовательский представитель современной прогрессивной музыки, создающий яркий музыкальный ландшафт театральных мелодий, сокрушительных риффов, высоких соло и образцовой технической музыкальности.2016 - Shades of Black
-2021 - Entropy
-.Жанр: Progressive Metal, Prog RockПродолжительность: 01:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6227DBFF2E1CD0143806A6224B37846455483A2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696893   (119108) от 05.02.2024
-
-Shujaat Khan - Maestro's Voice (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <World>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zindagi Se Badi Sazaa Hi Nahi (11:21)
-02. Na Urooj De (11:52)
-03. Yeh Inayatein Gazab Ki (11:10)
-04. Kahan Aake Rukne the Raaste (11:03)(   Читать дальше...   )Жанр: WorldПродолжительность: 02:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFEF5562B2520EFEE6CBE44855F0C089D89C3B2
 ```
 
 

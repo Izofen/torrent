@@ -1,3 +1,92 @@
+###  Публикация: 478708   (98735) от 05.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (06.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD1415232D3ED3A44757979084230B60F517A21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478489   (98736) от 05.04.2012
+
+VA - Продвинутый Модный Хит DFm (2012) [MP3|256 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Школа Танцев Хардбаса - Sex, Квас, Хардбас
+002 Golden Crew feat. Icandy - Sexyfied
+003 Чиж & Co - Прекрасное воскресение (Dj Viduta remix)
+004 Plumbers feat. Desy Lady - I don't want you back (Simon From Deep Divas edit)
+005 Тутси - Сама По Себе (Tarasov & Alexey Frolove Remix 2011)
+006 Simon From Deep Divas feat. Goody - Disco dancer
+007 Гости Из Будущего - Мой Baby (Ruslan Maiamix Remix)
+008 Rodriguez - Out in space
+009 Muradiks feat. Bahtiyar - Мы Едем В Лето
+010 Alessandro Viale feat. Vaanya Diva - Goes deeper (Morris Corti mix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA2C97042F34B0339BA3C2812D84D39C56DA1EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478540   (98739) от 05.04.2012
+
+Somnesia - Mystic Moon (2012) [MP3|320 кб/с]<Goa Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystic Sun 09:02
+02. Encounter 09:54
+03. Goa Spirit 08:48
+04. Cosmic Gate 08:4
+05. Halluminium 08:18
+06. Nomad's Land (Original version) 10:27
+07. Beyond The Sky (Extended version) 12:55
+08. Space Liquid 09:05
+09. Dusk Till Dawn 03:06 (Outro)2012Жанр: Goa TranceПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F67B68FE709C537AC7D3402C0CC4460E670F57D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478669   (98740) от 05.04.2012
 
 [Wallpapers] Girls Desktop Wallpapers №3
@@ -647,86 +736,6 @@ Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67B83DE5352DEAD7699A1ED299127BA658B8211D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479700   (98822) от 07.04.2012
-
-[Wallpapers] Anime Wallpaper (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479752   (98823) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №13
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98823.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №13
-Название: Desktop Wallpapers №13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479432   (98825) от 07.04.2012
-
-[Wallpapers] HD Wallpapers №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98825.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №7
-Название: HD Wallpapers №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C50C6C589C26B526D2F36B1F66904B0ED4BE0EB
 ```
 
 

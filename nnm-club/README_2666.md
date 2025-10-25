@@ -1,3 +1,27 @@
+###  Публикация: 1782152   (70066) от 27.02.2025
+
+Журнал | Делаем сами №3 (576) (февраль 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70066.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387BBEFB3E1E166BFED1E0659F28C135E6E51D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782213   (70067) от 27.02.2025
 
 Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -629,33 +653,6 @@ Perfect Plan - Heart Of A Lion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E15748DBF7DACA401D7B455701D138AC3401CC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781973   (70092) от 26.02.2025
-
-VA - YORK Mini Mix (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - On The Beach (Mauro Picotto's Extended CRW Remix) (06:40)
-02. DJ Sakin & Friends - Nomansland (David's Song) (Extended Mix) (05:56)
-03. DJ Sakin & Friends - Dragonfly (Extended Mix) (04:57)
-04. York - Fields Of Love (feat ATB - YORK dub Extended Mix) (07:20)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5410A45F18F527B50A6646CAB39A88BEB87370E4
 ```
 
 

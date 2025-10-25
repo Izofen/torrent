@@ -1,3 +1,30 @@
+###  Публикация: 1802242   (66088) от 15.06.2025
+
+Larry McCray - Heartbreak City (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Try To Be A Good Man (4:18)
+02.  Heartbreak City (7:24)
+03.  Bye Bye Blues (4:54)
+04.  Bright Side (5:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99964EC9A39AC0CCA8EE7281DBCEFCB0C611B8DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802236   (66089) от 15.06.2025
 
 Inglorious - V (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -638,33 +665,6 @@ Sean Tyas - Lift (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06FE79DAD38C5D2CFC53E728DD77EE803D248099
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802055   (66114) от 14.06.2025
-
-VA - Ori Uplift - Uplifting Only Episode 644 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kvaii – Stars Twinkle (Intro Mix)
-02. Dinka & Erik Iker – Orion’s Belt (Orchestral Uplifting Classic)
-03. MaRLo & HALIENE – Whisper (Ferry Tayle Remix)
-04. AYDA – Beyond Time (Pre-release Pick)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9028E6E5D8B86DDEC162B2ACA20B1F58057EE4
 ```
 
 

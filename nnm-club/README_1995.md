@@ -536,6 +536,30 @@ magnet:?xt=urn:btih:5C5B81A2952D9F951305093D6D8A4418C4B81A5D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821328   (52258) от 01.10.2025
+
+Они живут по ночам / They Live by Night (1948) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_52258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое уголовников бегут из тюрьмы: один из них 23-летний Артур — отсидевший в тюрьме семь лет за убийство. Бандиты укрываются на заправке у одной из своих бывших знакомых, а Артур Боуерс или просто «Бой» — в первый раз в жизни знакомится с девушкой. Когда его подельники уже готовят ограбление банка. Заполучив добычу, Арт покидает своих друзей, которые организовали (   Читать дальше...   )Производство: США / RKO Radio PicturesЖанр: фильм-нуар, мелодрама, криминалРежиссер: Николас РэйАктеры: Кэти О’Доннелл, Фарли Грейнджер, Ховард Да Сильва, Джей С. Флиппен, Хелен Крэйг, Уилл Райт, Уильям Фиппс, Иэн Вульф, Гарри Харви, Мари БрайантПеревод: Одноголосый любительский (iDimo)Язык озвучки: русский, английскийСубтитры: русские (tata23), английские (full, SDH), немецкие, французские, испанские, португальскиеПродолжительность: 01:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3551C86E83BA6F7F7E158133E4FE40AA665B7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731155   (52259) от 24.06.2024
 
 Hugo Kant - 9 Albums (2011-2024) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo, Fusion>
@@ -608,30 +632,6 @@ magnet:?xt=urn:btih:1C6E9B03A54376D087BAB7BDA3D2CBE143906F20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99DDD7540CC6BB84AAB507827BA4F7FF005CB658
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732384   (52262) от 24.06.2024
-
-Steven D. Jamar, Lateef Mtima (еditors) | The Cambridge Handbook of Intellectual Property and Social Justice (2024) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Protection for intellectual property has never been absolute; it has always been limited in the public interest. The benefits of intellectual property protection are meant to flow to everyone, not just a limited population of creators and the corporations that represent them. Given this social-utility function, intellectual property regimes must address issues of (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University Press: UKФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA644562FA9C30BFCE23FF8F5BC53F98E5EABF92
 ```
 
 

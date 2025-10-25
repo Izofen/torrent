@@ -1,3 +1,30 @@
+###  Публикация: 1788559   (68506) от 30.03.2025
+
+Arthemis - Blood Fury Domination (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undead
+02. Black Sun
+03. Blood Red Sky
+04. Blistering Eyes(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6908AB9742036FA085D6FE355667975321E12A52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788391   (68507) от 30.03.2025
 
 Enrico Pieranunzi - The Complete Remastered Recordings On Black Saint & Soul Note (1980 - 1997) 6CD, 2010, CAM [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
@@ -657,33 +684,6 @@ Janiva Magness - Back For Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68DA77A796B9FC4894523AB49F40292EEE32BCF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788560   (68532) от 30.03.2025
-
-W.E.T - Apex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Believer (3:37)
-02.  This House Is on Fire (3:04)
-03.  What Are We Fighting For (4:03)
-04.  Love Conquers All (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B83ADE856D9A7B3D939E4CB45443586FBB558A0
 ```
 
 

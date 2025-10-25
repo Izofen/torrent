@@ -1,3 +1,30 @@
+###  Публикация: 1784963   (69338) от 15.03.2025
+
+The Hot Rod Gang - Can U Dig It? (40th Anniversary) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Rock & Roll, Rockabilly, Rhythm & Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can U Dig It? [00:04:00]
+02. Two Hearts [00:04:04]
+03. The Man He Used To be [00:03:42]
+04. Boogie Woogie Country Girl [00:03:10](   Читать дальше...   )Жанр: Rock, Rock & Roll, Rockabilly, Rhythm & BluesПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF00FC673F8F1E8C17A6FD61F1C046333C733EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785266   (69339) от 15.03.2025
 
 Electrical Cost / Стоимость электроэнергии v6.1.0 Mod by Balatan [Ru/Multi]
@@ -634,30 +661,6 @@ magnet:?xt=urn:btih:46D504E2D5B70BB1971B0B7FA425BD2745A5EB20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBCE10AF47ED798C50DFAF9F9B366A54D8DAB3A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785269   (69364) от 15.03.2025
-
-TrackChecker Mobile v2.28.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для отслеживания перемещений посылок и подобных почтовых отправлений. Поддержка сканирования штрихкода. Проверка статусов. Сортировка.Тип издания: PremiumРелиз состоялся: 14.03.2025Разработчик: MetalSoftПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448DF21798362D4B17EBF622E10D96565B8F446B
 ```
 
 

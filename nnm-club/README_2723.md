@@ -1,3 +1,30 @@
+###  Публикация: 1774310   (71548) от 20.01.2025
+
+Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nostradameus — шведская пауэр-метал группа из Гетеборга, сформированная в 1998 году.2000 - Words of Nostradameus
+2001 - The Prophet of Evil
+2003 - The Third Prophecy
+2004 - HellboundЖанр: Power MetalПродолжительность: 04:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3857F0FB702B7EE045CD2655C1A02A88C3EB6188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774318   (71549) от 20.01.2025
 
 Ihsahn - Ihsahn (2024) [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
@@ -643,30 +670,6 @@ magnet:?xt=urn:btih:73D283110A90137BDE3E053521FCFEA64C2EB280
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A7883206A1BB3ED5495A9B3DA962AEB95776BDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774243   (71574) от 19.01.2025
-
-Text Editor Pro 31.3.2 + Portable + Bonus [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1362B32A03572BFCDD29B415F89E26776B8DA5F0
 ```
 
 

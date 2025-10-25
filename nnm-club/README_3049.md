@@ -1,3 +1,87 @@
+###  Публикация: 469492   (96860) от 17.03.2012
+
+[Wallpapers] Nature Pictures №26
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96860.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №26
+Название: Nature Pictures №26
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183E96CDFDAA3D13E86C448D88255FBA1816BC75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468989   (96861) от 17.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96861.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 7
+Название: Avto Wallpapers Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469528   (96863) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 84
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96863.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 84
+Название: Desktop Wallpapers Pack 84
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACFD3758354D1AF96A1F3DCA89302E5F5B290DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468994   (96864) от 17.03.2012
 
 [Wallpapers] Nature Pictures №21
@@ -664,86 +748,6 @@ VA - Maxximum Trance Tunes, Vol. 8 (2012) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2FCD718EC789B89D470733660958B88A19776AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469002   (96894) от 17.03.2012
-
-[Wallpapers] Animals Full HD Wallpapers 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96894.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Animals Full HD Wallpapers 1
-Название: Animals Full HD Wallpapers 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AA959E40005E88697F9EAE0CFDE97EBD354B5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469061   (96895) от 17.03.2012
-
-Эллери Квин | Несчастливый город. Убийца лис [2008] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:2008Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD333769938A5FDBC152599EE7183DCBB641615A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468921   (96896) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 16
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96896.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 16 
-Название:  Desktop Wallpapers Pack 16 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3036149AE723E0D5496505A7DC6CB8EE302CE46A
 ```
 
 

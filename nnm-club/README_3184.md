@@ -1,3 +1,213 @@
+###  Публикация: 1760954   (103122) от 17.11.2024
+
+Tubesnakes - Navasota TX (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best of Me (3:21)
+02. Darkness on My Shoulder (3:05)
+03. When All Is Said and Done (4:59)
+04. Seventeen Fathoms (4:12)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403FCDC2F9490957B1E3E2696A6388DA04A05FAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760959   (103123) от 17.11.2024
+
+Айархаан - Добун Дуораан (2007) [MP3|320 Kbps] <Yakutia Folk, NeoFolk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уhуктуу [03:53]
+02. Орто дойду оноhуллуута [05:17]
+03. Алгыс ырыата [02:00]
+04. Ураанхайым дойдулара [02:59](   Читать дальше...   )Жанр: Yakutia Folk, NeoFolkПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34D247E32A357E2F57335B85F0C52F57252CAAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760951   (103124) от 17.11.2024
+
+The Feelgooders - Soul & Imagination (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cries (3:00)
+02. Funky Lady (4:01)
+03. I Found Love (3:11)
+04. The Absence of Cool (4:39)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A74969ABF8BA51B5FF6B3BDF0C89B54D2C14D4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761051   (103125) от 17.11.2024
+
+MotoGP. Этап 20 из 20. Гран-при Барселоны. Гонка (17.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103125.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 ноября 2024, воскресенье. 16:00 МСК. Этап 20, Испания. Гран-при Барселоны. Гонка (24 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66938DBF46DCC26DC58EF488735E9FB418F9F3BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760948   (103126) от 17.11.2024
+
+Solon Fishbone - Better Late (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luciano Leães - Going Back Home (3:44)
+02. Crazy Times (3:32)
+03. Fly Away (4:54)
+04. Mama & Papa (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBF6212EC180FB73B635FEFE203977253152999
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760808   (103127) от 16.11.2024
+
+The Damned - Darkadelic (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk Rock, Post-Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Invisible Man [3:11]
+02 - Bad Weather Girl [4:50]
+03 - You're Gonna Realise [2:37]
+04 - Beware of the Clown [3:15](   Читать дальше...   )Жанр: Rock, Punk, Punk Rock, Gothic Rock, Post-Punk, New WaveПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704DA9259AF2DB1252DF5F4C38F13500E19A1866
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760866   (103128) от 16.11.2024
+
+Литература и любовь / Literature and Love (1913) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем коротенькая, но милая романтическая история о знакомстве начинающей, пока еще не преуспевающей, писательницы и молодого книжного издателя. Правда она не знает, что он издатель. И, вообще, она думает, что он слепой. И...короче, там все запутано... :) Смотрите.Производство: США / Lubin Manufacturing CompanyЖанр: короткометражный, мелодрама, немое киноРежиссер: Ллойд Б. КарлтонАктеры: Гай Д’Эннери, Ormi Hawley, Мэри Смит, Ирвинг УайтПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7508051552F51687C5E3E327D93C8C333026ADB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760827   (103129) от 16.11.2024
+
+Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.1 (1952, 1953) Blue Moon [WavPack|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella by Starlight [2:44]
+02. Time on My Hands [2:57]
+03. 'Tis Autumn [3:14]
+04. The Way You Look Tonight [3:04](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24ACE995E84C3D507FE1A08FC41F55857B444CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760823   (103130) от 16.11.2024
 
 Times Of Grace - Studio Albums (2 releases) (2011; 2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
@@ -464,219 +674,6 @@ Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF99235F11BD18B301304EE2F67493BEB485877C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760879   (103148) от 16.11.2024
-
-Hilde Fjortoft (Fjørtoft) - Trolls in my head (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trolls in my head (3:02)
-02. Don't you lie to me (2:29)
-03. A change is gonna come (4:52)
-04. Reelin' and rockin' (1:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C0825E92C30D90097549617BE891DCDA640973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760839   (103149) от 16.11.2024
-
-MotoGP. Этап 20 из 20. Гран-при Барселоны. Квалификация (16.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103149.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 ноября 2024, суббота. 12:50 МСК. Этап 20, Испания. Гран-при Барселоны. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75AD9DD3C8C86D861078FA9C32C0A70B2FE03B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760805   (103150) от 16.11.2024
-
-Genus Ordinis Dei - Studio Albums & Singles (4 releases) (2016-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death/Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Genus Ordinis Dei - итальянская симфоническая дэт-метал/дэткор-группа. Образована в 2009 году.2016 - The Middle
-2017 - Great Olden Dynasty
-2020 - Glare of Deliverance
-2023 - The BeginningЖанр: Symphonic Death/Groove Metal/MetalcoreПродолжительность: 04:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FAFC9EB2C8406B25F1CFA99366BD41D4BF3383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760867   (103151) от 16.11.2024
-
-Beast - Ancient Powers Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103151.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Behead The Dragon
-2. In The Name Of The Horned One
-3. Ancient Powers Rising
-4. Kingdom Of Steel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA7BF8A21725E91FFB811A0A1C38216B9B72DE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760785   (103152) от 16.11.2024
-
-Rochelle & the Sidewinders - Soul Kiss (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinner's Tale (4:43)
-02. Soul Kiss (4:30)
-03. Backseat Driver (4:03)
-04. Maybe Tomorrow (5:07)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FE6775551B13FDE45DE4F414017823F00FB10D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760676   (103153) от 16.11.2024
-
-VA - Sahaliittoteoria Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Igor Swamp feat. Kulkuri & Loitsu - Saihaintai (07:58)
-02. Igor Swamp - Bombuttelu (05:41)
-03. Kulkuri - Ring The Bell (07:58)
-04. Igor Swamp feat. Gallop - Tapbats (06:30)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D61F812B99FA4E1D7E3C2BAD844506DCE322503
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749650   (103154) от 16.11.2024
-
-As I Lay Dying - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103154.jpg" />
-</div>
-
-
-###  Подробнее
-
-As I Lay Dying — американская металкор-группа из Сан-Диего, Калифорния.2001 - Beneath The Encasing Of Ashes
-2003 - Frail Words Collapse
-2005 - Shadows Are Security
-2007 - An Ocean Between UsЖанр: MetalcoreПродолжительность: 07:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300CA2D433807EF21D219752DB65180554EBA25B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760861   (103155) от 16.11.2024
-
-VA - Best of Celestial (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo Paoletta - Music (Original Mix) (7:21)
-02. Leo Paoletta - Valles Marineris (Original Mix) (7:26)
-03. VendettaX - Slum (Original Mix) (8:23)
-04. Nbwest - Somebody In Nowhereland (Original Mix) (5:42)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 07:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776988599840400227D28726C98B3DD21905C98D
 ```
 
 

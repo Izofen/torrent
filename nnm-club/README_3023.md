@@ -1,3 +1,36 @@
+###  Публикация: 454682   (93782) от 19.02.2012
+
+VA - Minimal Art v.6 (14.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Mansell - Minimal Business (Original Mix) (5:00)
+ 02. Antoine Brezza - Star Face (6:33)
+ 03. Aquinoise, Josh Bartoli - Wild (Original Mix) (7:52)
+ 04. Dani Sbert - Crush Me (Original Mix) (6:24)
+ 05. Daniel Zuur - Three Days (Original Mix) (6:55)
+ 06. Du Sant - Rebote De Azules (Original Mix) (6:49)
+ 07. Dub Dread - Warped (Ray Keith Remix) (6:06)
+ 08. Giuseppe Visciano - Cocaine (Alessandro Grops Remix) (6:05)
+ 09. Leano - Wtf (Original Mix) (7:46)
+ 10. Lorenzo Damario - The Boat (Original Mix) (6:30)(   Читать дальше...   )14.02.2012Жанр: MinimalПродолжительность: 02:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31A56845F226F0F60CFBF35FF477BAF030B57A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454678   (93784) от 19.02.2012
 
 VA - Minimal Art v.5 (13.02.2012) [MP3|320 kbps]<Minimal>
@@ -724,38 +757,6 @@ VA - Paul Oakenfold: DJ Box - February 2012 (2012) [MP3|320 kbps]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9A800F45DDBCB0248D2EFE2B01488CDAC9ACD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455461   (93935) от 20.02.2012
-
-VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.M.S - Pray For Japan 06:45
- 02. 1200 Micrograms - Let It Roll 06:59
- 03. Bizzare Contact - Vibrations 07:56
- 04. Space Cat - In The Air 07:13
- 05. Dynamic vs. Melicia - Go Back 07:03
- 06. Perplex vs. Intersys - Dirty Bytes 07:20
- 07. Black & White - Transition Mode 06:51
- 08. X-Noise - Streptococcus A 07:03
- 09. Nick Callaghan & Will Atkinson - Blizzard (Liquid Soul Remix) 08:122011Жанр: Psychedelic / Full OnПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332D0D12E0F1F8D67D5884BB69D8F7D0E3A32193
 ```
 
 

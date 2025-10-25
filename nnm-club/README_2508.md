@@ -1,3 +1,30 @@
+###  Публикация: 1802949   (65958) от 20.06.2025
+
+Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memorabilia (The Hacker 808 Remix) [00:06:39]
+02. A Man Could Get Lost (Jon Pleased Wimmin Remix) [00:05:48]
+03. Torch (MHC 2001 Remix) [00:08:42]
+04. Insecure Me (Hifi Sean Remix) [00:06:17](   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AF2EADF2995779240C3824FE9E5D92979E3CBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802931   (65959) от 20.06.2025
 
 Aesthetic Perfection - Closer to Human (2025) Limited Edition [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
@@ -664,33 +691,6 @@ Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [MP3|320 Kbps] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A67DDD6C2E807D5B0F35EF7021675483FE8519AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802832   (65984) от 19.06.2025
-
-VA - Cutterpillow: Tribute Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Amateurish - Superproxy (6:27)
-02.  Diego's Scenes - Back2Me (3:36)
-03.  Mi Mì - Waiting for the Bus (4:50)
-04.  Sansette - Fine Time (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264BC5C72A2B2535587E5F182FD57A9C17DDB326
 ```
 
 

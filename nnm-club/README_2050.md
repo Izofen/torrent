@@ -1,3 +1,29 @@
+###  Публикация: 1729576   (53667) от 11.06.2024
+
+Mohammad. Alhawary | Arabic Grammar in Context (2016) [EPUB, MP3] [EN/AR]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arabic Grammar in Context offers a unique and exciting approach to learning grammar. It presents grammar as a necessary and essential tool for understanding Arabic and for developing comprehension and production skills.
+Features include:
+authentic texts from a rich variety of sources, literary and non-literary, used as the starting point for the illustration and (   Читать дальше...   )Жанр: учебное пособиеЯзык: английский, арабскийИздательство: RoutledgeФормат: EPUB, MP3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5A58CE53BAD8491EF632B9324CA5C501E79555
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729543   (53668) от 11.06.2024
 
 Johannes Brahms, Seiji Ozawa, Boston Symphony Orchestra - Symphony No.1 (1977) SACD, Remastered, 2015, Deutsche Grammophon  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classical>
@@ -608,30 +634,6 @@ magnet:?xt=urn:btih:A5B462682674D38DC8FB1D7D4B6D29BC33D4B6C6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:072A6F49F2F30EA4B5AC5ABDA2096DDB940888E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191709   (53693) от 11.06.2024
-
-Груз / Cargo (2009)  BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 2267. Земля стала необитаемой из-за экологической катастрофы, а выжившие живут в переполненных космических станциях на орбите Земли. Молодой доктор Лора Портман одна из них. Она надеется на лучшее будущее далекой планеты Рея. Но чтобы попасть на нее - нужны деньги. Лора подписывает контракт и устраивается в корпорацию "Maschinen Stuerme" для работы (   Читать дальше...   )Производство: Швейцария, Eine Atlantis PicturesЖанр: фантастикаРежиссер: Иван Энглер, Ральф ЭттерАктеры: Анна-Катарина Швэбро, Мартин Рэполд, Регула Гроувиллер, Пьер Сэмлер, Клод-Оливер Рудольф, Майкл Фингер, Янгзом Брауэн, Мария Бётнер, Джилес ТсхудиПеревод: Любительский (одноголосый, Anubis)Субтитры: Русские, АнглийскиеКачество: BDRipПродолжительность: 01:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E8902F6426C13C53D2A25AE92EE28E994F4610
 ```
 
 

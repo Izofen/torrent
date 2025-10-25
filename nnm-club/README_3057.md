@@ -1,3 +1,97 @@
+###  Публикация: 470458   (97215) от 19.03.2012
+
+VA - NeРусский Шторм - 54 (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97215.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adrew - Super Girl (Extended Version) (4:48)
+2. Alexander Popov - When The Sun (Radio Edit) (3:02)
+3. Alisandra &ampamp; Vernandi - Angel (Radio Edit) (3:42)
+4. Allexinno Starchild - Senorita (Sagi Abitbul Remix) (4:30)
+5. Allexinno Starchild - Yasera (Official Radio Edit) (3:20)
+6. Amsterdam Crew - Your Life In My Life (Radio Edit) (3:11)
+7. Andreea Ignat - Phantom Lover (Radio Edit) (3:32)
+8. Boier Bibescu vs Luigi Ionescu - Lalele (Rework 2012) (5:20)
+9. Chris Thrace - Uh Girl (feat. Glorya) (Extended Version) (5:06)
+10. Da Fleiva - Get Out (Of My Mind) feat. Intempo (Extended Mix) (5:15)2012Жанр: Pop,DanceПродолжительность: 02:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470169   (97219) от 19.03.2012
+
+[Wallpapers] Best Wallpapers Pack 5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97219.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Best Wallpapers Pack 5
+Название: Best Wallpapers Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469804   (97220) от 19.03.2012
+
+Лиза Small - Время не установлено (2012) [MP3|256, 320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёзды (One-Bula Prod.)
+02. Более чем ты
+03. 2012 (Wake Up Promo - instr.J.Cole)
+04. Ближе к лету
+05. Не разочаруй
+06. Приглашение на концерт 12.02.12
+07. Стимул
+08. Фонари
+09. На пути (Hapan production)
+10. Ночь на максимум (Lingvisto beats production) VBR(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470260   (97222) от 19.03.2012
 
 [Wallpapers] Wallpapers Sexy Girls (18.03.12)
@@ -649,94 +743,6 @@ magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470164   (97263) от 20.03.2012
-
-VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97263.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zyce & Flegma - Afterglow (8:41)
-2. Cabal - The sacred Spirit (7:38)
-3. Aquafeel - GloryLand (6:43)
-4. Aqualize - Land of 2 Suns (7:51)
-5. Audioload - Way Out (7:42)
-6. Andromeda - Sensation (Aquafeel RMX) (6:32)
-7. Time in Motion - Colour (8:07)
-8. Progenitor - Typical Human Behaviour (8:18)
-9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470988   (97264) от 20.03.2012
-
-[Wallpapers] Nature Pictures №32
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97264.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №32
-Название: Nature Pictures №32
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470987   (97265) от 20.03.2012
-
-[Wallpapers] HD Pictures №1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97265.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №1
-Название: HD Pictures №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
 ```
 
 

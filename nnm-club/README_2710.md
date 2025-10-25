@@ -1,3 +1,27 @@
+###  Публикация: 1776788   (71210) от 02.02.2025
+
+Photo Studio PRO v2.7.13.3738 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 01.02.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B95C8D408FA63082E5FA07545E19D9C25394BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776777   (71211) от 02.02.2025
 
 VA - Classical Music Brilliance (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -629,33 +653,6 @@ Lane 8 & Sultan + Shepard - Live @ Field Stage, Proper NYD (2025-01-01) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85F74DDC6265C7634A5F6C3CE29842D2E6D4CEA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776533   (71236) от 01.02.2025
-
-Mogwai - The Bad Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <post-rock, Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Gets You Back [00:06:40]
-02. Hi Chaos [00:05:24]
-03. What Kind Of Mix Is This? [00:04:11]
-04. Fanzine Made Of Flesh [00:04:34](   Читать дальше...   )Жанр: post-rock, Alternative & IndieПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D149C3574E5B3F2BA55512A3452C4DEB6BAB4B8A
 ```
 
 

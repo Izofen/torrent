@@ -1,3 +1,192 @@
+###  Публикация: 1738031   (106395) от 20.07.2024
+
+VA - Keep It Trance Vol. 23 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kroman - Diversion (Extended Mix) [5:33]
+02. Yury Atomic - Gravity (Original Mix) [6:23]
+03. Leo Reyes - The Space (Radio Mix) [3:02]
+04. Grande Piano - Emotion Code (Original Mix) [6:56](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC5CC7CE49C73B01020464AB8320A7FB59507FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737839   (106396) от 20.07.2024
+
+Florizel - Mon Amour (2007) [WavPack|Lossless|image + .cue] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Valses De Vienne
+ 02. Merci
+ 03. Coeur De Loup
+ 04. Mon Petit Petit Taxi(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F20DB29CFF8D016BEF0DFC84F3614CB325FCDE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737833   (106397) от 20.07.2024
+
+Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nonpoint — американская рок-группа, образованная в 1997 году в городе Форт-Лодердейл, штат Флорида.1997 - Separate Yourself
+2000 - Statement
+2002 - Development
+2004 - Recoil(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 10:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE88F362409B874F713D03209FF37B07FB8206F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738027   (106398) от 20.07.2024
+
+Rampant Beast - Into The Infernal Pyre (2024) [MP3|320 Kbps] <Black, Speed, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106398.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Into the Infernal Pyre (Intro) (00:48)
+ 2. Bestial Torment (04:18)
+ 3. Dragged into Hellfire (03:48)
+ 4. Extreme Aggression (03:32)(   Читать дальше...   )Жанр: Black, Speed, Thrash MetalПродолжительность: 00:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C6D28D5380F93D1DE9CBDF65031238F4C759E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738036   (106399) от 20.07.2024
+
+Nikolo Kotzev - Nikolo Kotzev's Nostradamus - The Rock Opera (2001) Reissue, 2024, Frontiers Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock opera>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (2:59)
+02. Pieces Of A Dream (5:42)
+03. Desecration (5:39)
+04. Introduction (4:48)(   Читать дальше...   )Жанр: Rock operaПродолжительность: 01:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC723E5C799D63EDC61F9B200CA6B456C209774
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738021   (106400) от 20.07.2024
+
+Neaera - All Is Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antidote to Faith (4:31)
+02. Pacifier (5:39)
+03. All Is Dust (4:47)
+04. Swords Unsheathed (4:40)(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6CC5638F1925264BB119A83154311D51336BD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738042   (106401) от 20.07.2024
+
+Orange Goblin - Science, Not Fiction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fire At The Centre Of The Earth Is Mine (5:20)
+02. (Not) Rocket Science (4:21)
+03. Ascend The Negative (5:24)
+04. False Hope Diet (6:58)(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5ACF57EFB98B0C2CEA5C5791FC7C63ECA7F541
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737987   (106402) от 20.07.2024
 
 Golgotha - Spreading The Wings Of Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
@@ -489,183 +678,6 @@ magnet:?xt=urn:btih:4FE2EB46186F4CD03851D90B98F0696ACCAF9BA9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA12DC1C4453272C6D93DD1ADE86D9B91B0F27D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738000   (106421) от 20.07.2024
-
-VA - 9 Years, Pt. 1 (2024) [MP3|320 Kbps] <Progressive House, Organic House, Deep House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balad - When All Is Said And Done (Original Mix) [7:56]
-02. Random Tv & T. Dixon Noble - For Your Praise (Original Mix) [6:49]
-03. TooTall - Blossom (Original Mix) [6:19]
-04. Meadow Dawn - Icarus (Original Mix) [6:24](   Читать дальше...   )Жанр: Progressive House, Organic House, Deep House, Melodic House & TechnoПродолжительность: 03:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C451054429FBF138AA579246169A8F37EB4D8C21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737879   (106422) от 20.07.2024
-
-Photo Supreme 2024.2.2.6590 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4378BD53ABBBBE8DF5F7E898FEA23D73C0930B94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737902   (106423) от 20.07.2024
-
-VA - Dance Zone Level 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinman - Gudvibe
-02. Jx - You Belong To Me
-03. Hi Lux - Feel It
-04. U96 - Love Religion (Video Edit)(   Читать дальше...   )Жанр: Electronic, Euro House, HouseПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D68FAA5A15258B487B8193D4F4090F50C1BC5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737965   (106424) от 20.07.2024
-
-OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artificial Paradise
-02. Hurt
-03. Sink Or Swim
-04. Last Holiday(   Читать дальше...   )Жанр: Alternative Pop, Pop RockПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1328047DF4BACDCEFD4A798871C2B0452FDC9B3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737971   (106425) от 20.07.2024
-
-4K Video Downloader+ 1.8.0.0108 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106425.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44796AE074CA1AB8E967E72E23E5A39508C6C809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737921   (106426) от 20.07.2024
-
-Обратный отсчёт / Balsinjehan / Hard Hit (2021) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычным утром менеджер крупного банка Ли Сон-гю садится в машину, чтобы отвезти детей в школу и после отправиться на работу, когда в салоне звонит чужой телефон. Незнакомец сообщает, что автомобиль заминирован, требует перевести ему 1,7 млн. и передать 990 тыс. долларов наличными, а если Ли откажется, кто-то выйдет из машины или обратится в полицию — бомба под сиденьем (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, TPS CompanyЖанр: триллер, криминал, боевикРежиссер: Ким Чхан-джуАктеры: Чо У-джин, Ли Джэ-ин, Чин Гён, Ким Тхэ-юль, Чи Чхан-ук, Рю Сын-су, Ким Джи-хо, Чон Сок-хо, Чон Э-ён, Чин Ю-чханПеревод: Многоголосый профессиональный (Кипарис), Двуголосый любительский (АрхиAsia)Язык озвучки: русский, корейскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF909C4CD011F9846C0BF6C213AFA7A65E72113
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738038   (106427) от 20.07.2024
-
-16bit Sensation: Another Layer | 16-битная чувственность: Другой уровень [2023, TV, 13 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106427.jpg" />
-</div>
-
-
-###  Подробнее
-
-1992-й год. Студентка университета Мэйко Уэхара подрабатывает продавцом в компьютерном магазине. Ну или она так думала. Заглянув на второй этаж, Мэйко обнаруживает там Alcohol Soft, разработчика 18+ игр. Волею судьбы ей приходится заменить художника. Обескураженная и подгоняемая горящими дедлайнами Мэйко спешит завершить игру и доказать свою состоятельность. На кону (   Читать дальше...   )Производство: студия Silver / シルバーЖанр: комедия, повседневностьРежиссер: Сакума ТакасиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B071E1CFA425231902DB3B0F3382756463B69911
 ```
 
 

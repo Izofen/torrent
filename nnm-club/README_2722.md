@@ -1,3 +1,30 @@
+###  Публикация: 1774888   (71522) от 23.01.2025
+
+Bonfire - Higher Ground (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nostradamus (01:30)
+ 02 - I Will Rise (04:37)
+ 03 - Higher Ground (04:13)
+ 04 - I Died Tonight (04:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FBEAA36DC4C9B4974FD5B8EC91BAEAAFD33CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774861   (71523) от 23.01.2025
 
 Футбол. Лига Чемпионов 2024/2025. Основной турнир. Тур 7-й. Обзор матчей (22.01.2025) HDTVRip [H.264/1080p]
@@ -641,33 +668,6 @@ magnet:?xt=urn:btih:88E49EF26F323387757F8F012475677AE0BC2619
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D50A73D75878C2FE834E8ABEEEF9D65448E7F248
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774310   (71548) от 20.01.2025
-
-Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nostradameus — шведская пауэр-метал группа из Гетеборга, сформированная в 1998 году.2000 - Words of Nostradameus
-2001 - The Prophet of Evil
-2003 - The Third Prophecy
-2004 - HellboundЖанр: Power MetalПродолжительность: 04:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3857F0FB702B7EE045CD2655C1A02A88C3EB6188
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1790690   (68012) от 10.04.2025
+
+Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [MP3|320 Kbps] <House, Electro House, Dance-pop>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beat Goes On (Roger Sanchez Remix) [00:06:56]
+02. Kiss My Eyes (Angel Moraes Remix) [00:04:55]
+03. Sexy Dancer (Harlem Hustlers Remix) [00:07:42]
+04. Kiss My Eyes (Radio Slave Remix - Dub) [00:10:14](   Читать дальше...   )Жанр: House, Electro House, Dance-popПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36CAF92900269411F76EEF9BE48BD63A7884A4CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790667   (68013) от 10.04.2025
 
 Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [FLAC|Lossless|WEB-DL|tracks] <House, Electro House, Dance-pop>
@@ -646,30 +673,6 @@ VA - Vesna [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Nu Disco, Funky House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD59A862E13F334B7081BFE2EB17490EEE30D09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790731   (68038) от 10.04.2025
-
-VA - Night [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Амирчик - Эта любовьЖанр: Progressive HouseПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A351161BF40FD222D4CCE4149F73F464F3C485
 ```
 
 

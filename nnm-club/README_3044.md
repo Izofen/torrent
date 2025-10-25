@@ -1,3 +1,88 @@
+###  Публикация: 466643   (96415) от 12.03.2012
+
+Газета | Ждём гостей №3 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие кулинарные рецепты к торжествам и праздникам. Газета поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B05217B0709E862823FB0F25DCCC81EB75902DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466608   (96419) от 12.03.2012
+
+VA - House Vip (10.03.12) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96419.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A-Peace – Electronique (Original Mix) (5:34)
+ 2. Bassmonkeys, Dominatorz - Don't Throw It Away Feat. Amanda Wilson (Chris Kaeser Remix) (5:33)
+ 3. Clark & Kent - Catch a Star (Andy Chiles Remix) (7:31)
+ 4. Deadmau5 - Ghosts N' Stuff (Beef Theatre Remix) (5:40)
+ 5. Electro Makerz - U Got Me Rocking (Original Mix) (5:03)
+ 6. GOTYE - Somebody I Used To Know (It's The DJ Kue Remix!) (5:12)
+ 7. Kelly Clarkson - Stronger (What Doesn't Kill You) (7th Heaven Club Mix) (7:28)
+ 8. Laurent Simeca - Miami (Original Mix) (5:46)
+ 9. Replug - Let's Rock (Soulfix & Chi No Remix) (5:48)
+ 10. The Digital Monkey - Radeon (Original Mix) (6:52)2012Жанр: Electro HouseПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466416   (96420) от 12.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 68
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96420.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 68
+Название: Desktop Wallpapers Pack 68
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B63125022FF44EAA77F63B05E3AB03E5E00327
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466677   (96422) от 12.03.2012
 
 VA - Новинки Танцевальных Хитов. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -652,105 +737,6 @@ magnet:?xt=urn:btih:6B20DD6AF071DF65AD117AAC52605053EF850141
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F426F9D2E8139093C8578899B72439207922E6E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466563   (96499) от 13.03.2012
-
-Arminstel - Trance Evolution vol.71 (11.03.2012) [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Alwacker - Sunrise (Emotional Mix)
- 02. Marasin Sanya - The Beautiful Melody Of The Night (Original Mix)
- 03. Rene Ablaze & Tech Trek - Naranja (Original Mix)
- 04. Ehren Stowers - Desire (Original Mix)
- 05. Starline - Perfect Spring (Uplifting Trance 2012)
- 06. Azima - Mousewille (Original Mix)
- 07. Azima - The Saturn (Original Mix)
- 08. N-Gate - Be Fire (Original Mix)
- 09. MAXIMA - Solar Unity (Original Mix)
- 10. Perfect Sound - The Cloudless (Original Mix)(   Читать дальше...   )11.03.2012Жанр: Uplifting TranceПродолжительность: 02:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D013BFE333FF7BE5EF9AB4D5EA6705F581718A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467000   (96500) от 13.03.2012
-
-VA - 538 Dance Smash 2011 Vol.4 (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lucenzo feat. Don Omar - Danza Kuduro
-02 - Elena - Midnight Sun
-03 - Pitbull feat. Ne-Yo,Afrojack & Nayer - Give Me Everything
-04 - Alexandra Stan - Get Back (asap)
-05 - R.I.O. - Miss Sunshine
-06 - Avicii - Fade Into Darkness
-07 - Sak Noel - Loca People
-08 - Nicky Romero & Mitch Crown - Schizophrenic
-09 - Inna feat. Flo Rida - Club Rocker
-10 - Benny Benassi feat. Gary Go - Cinema2011Жанр: DanceПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D53EF58A0D3E61A11C7F6FC45FA0A4E173BD71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467517   (96504) от 13.03.2012
-
-VA - Plexus Relax Sector - Bleak Winter Wailing 2 (tracks + mix) (2012) [MP3|320 кб/с]<Ambient, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dissapocrifia - Algor Prelude c-moll (2:47)
- 02. jdoblom - Грибной Суп (7:39)
- 03. Simiram - Hinokio (5:54)
- 04. NOVA ILLUSION & Fibres - DOT (6:18)
- 05. sir cond - The Soul Labyrinth (3:28)
- 06. DJ Ger-Man - Before A Choice (5:07)
- 07. Eguana - On Ruins Of Mind (Easy Drums Version) (6:48)
- 08. Radio Silence - Easy Snowfalling Will Happen At This Night (5:33)
- 09. Index-1 - Love Story (4:20)
- 10. Романтик - Прощание С Людмилой (2:42)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B6E2D3EA4452F70627BA1AE6510EAD9CD4DFD9
 ```
 
 

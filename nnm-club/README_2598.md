@@ -1,3 +1,29 @@
+###  Публикация: 1789556   (68298) от 04.04.2025
+
+Шрифты - Fontspring - Interval Sans Pro [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Interval Sans Pro — семейство шрифтов без засечек. Этот шрифт имеет двадцать восемь стилей и был опубликован Mostardesign.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D53B09518A268FE8267838C518C8D4FAB77774
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789484   (68299) от 04.04.2025
 
 VA - Spring Emotions (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
@@ -636,33 +662,6 @@ magnet:?xt=urn:btih:7ACB8A0570A14E03EAD3363EA5B4E4C258FC22A4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:102385C3533D08C7465D9871B7DFF573EB3B13DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789426   (68324) от 04.04.2025
-
-VA - The Sound of 2025, Chapter 3: London (Night Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hårek - Tonight (F4T4L3RR0R Edit - Mixed) (04:49)
-02. PRODGY - Control (Original Mix - Mixed) (02:56)
-03. Aumak - Little Love (Lexenn Remix - Mixed) (03:13)
-04. AR7ANIS - Korhal (Original Mix - Mixed) (03:24)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D6D8ADB42D88CF3BE8809DD689F67DA8735339
 ```
 
 

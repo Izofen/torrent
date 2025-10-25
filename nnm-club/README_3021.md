@@ -1,3 +1,36 @@
+###  Публикация: 452807   (93441) от 15.02.2012
+
+Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004) [FLAC|Lossless]<Jazz, Swing Jazz, Female Vocal Jazz>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood Party (2:40)
+02. Good Little, Bad Little You! (2:46)
+03. Living in Sin (3:31)
+04. How Could Red Riding Hood? (2:10)
+05. My Blue Bird's Singing The Blues (3:30)
+06. Don't Take That Black Bottom Away (3:35)
+07. CeDisque Vous Dira (2:33)
+08. Baby O' Mine (3:18)
+09. I Love My Baby, My Baby Loves Me (3:03)
+10. Jersey Walk (2:56)(   Читать дальше...   )2004Жанр: Jazz, Swing Jazz, Female Vocal JazzПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 452864   (93443) от 15.02.2012
 
 Великий обман. Миллионеры из психушки (2011) SATRip
@@ -736,38 +769,6 @@ VA - Operatic Metal Voices (2011) [MP3|320 kbps]<Symphonic Metal, Power Metal, G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9797B46E3EF989AFDDE87F6255E5541CEC988C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453761   (93624) от 17.02.2012
-
-VA - Blacklite Tubes (2011) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flegma & Zyce - Out Of Control (8:26)
-02. Purple Raver - Total Integration (7:38)
-03. Nukleall - Ayahuasca Reset (7:50)
-04. Loud - Pink Noize (8:24)
-05. M-Theory - Exact Dosage (7:41)
-06. Nukleall - Ancient Plants (Barkode Rmx) (8:00)
-07. Hypnoise - Super Conscious (8:12)
-08. Ovnimoon & Axis - Galactic Mantra (Wizack Twizack Rmx) (8:41)
-09. Ghost Signal - Impulse Response (Rack Riders Rmx) (8:30)2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 01:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD5E2C30C29E672582A245F4699F15D9CB5E1CA
 ```
 
 

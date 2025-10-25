@@ -1,3 +1,184 @@
+###  Публикация: 1728787   (108293) от 08.06.2024
+
+Tanerélle (Tanerelle) - Electric Honey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B, around trip-hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Honey [00:00:57]
+02. Blink [00:02:39]
+03. Let Me In [00:02:58]
+04. Mirror [00:03:07](   Читать дальше...   )Жанр: R&B, around trip-hopПродолжительность: 00:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99206B9764F4B21AFB37448FADFA00EE97A74AEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728656   (108294) от 08.06.2024
+
+Nightmare - Encrypted (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцатый студийный альбом "Encrypted”, который вышел 7 июня на лейбле AFM.
+На счету NIGHTMARE множество успешных студийных альбомов, а также гастроли с SABATON, RHAPSODY OF FIRE и BLIND GUARDIAN. Однако сейчас группа открывает новую главу своей истории с мощной вокалисткой Барбарой Могоре (Barbara Mogore), которая обладает впечатляющим диапазоном и прекрасно (   Читать дальше...   )01. Nexus Inferis
+02. The Blossom Of My Hate
+03. Voices From The Other Side
+04. Saviours Of The Damned(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB41626853A270AB9BB0E3EBA25E40DDBA12FA00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728597   (108295) от 08.06.2024
+
+Mosimann - Axtone House Party (2024-06-07) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mosimann ft. Blythe - Where Did You Go (Original Mix)
+02. Mosimann - Why (Original Mix)
+03. Jennifer Lopez x FISHER - Waiting For Tonight
+04. Mosimann - ID(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62FE943393F97C6F6EA4245A850CFB8F5D391E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728802   (108296) от 08.06.2024
+
+Soul Browser 1.4.23 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soul Browser - добротный браузер, что несмотря на своё минималистичное визуальное исполнение весьма функционален. И ко всему прочему прилагает максимум усилий для того, чтобы пользователи не сталкивались с различными трудностями и ненужными им факторами. Автоматическая борьба с рекламой, встроенная качалка, видеоплеер, тонкая настройка управления (есть поддержка (   Читать дальше...   )Тип издания: ModРелиз состоялся: 04.06.2024Разработчик: SoulSoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3749B2D737AE9698DDA9DA830A2757862D910D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728753   (108297) от 08.06.2024
+
+Зеркало, зеркало / Mirror Mirror (1990) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэри Уэзерфорд приносит в жертву свою сестру Элизабет перед большим зеркалом, зарезав её на кровати. Десятилетия спустя Меган Гордон переезжает в этот дом со своей недавно овдовевшей матерью Сьюзен. В своей новой спальне Меган находит в углу большое зеркало, оставленное предыдущими владельцами... В своей новой школе Меган подвергается безжалостным насмешкам со стороны (   Читать дальше...   )Производство: США, Orphan EyesЖанр: ужасы, триллерРежиссер: Марина СарджентиАктеры: Карен Блэк, Ивонн Де Карло, Уильям Сэндерсон, Рейнбоу Харвест, Кристин Даттило, Рики Полл Голдин, Чарли Спрэдлинг, Том Брезнахан, Дорит Соер, Энн ХирнПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: нетПродолжительность: 01:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD210BE08A2998A2EC0C01D3EF173C0224602865
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728825   (108298) от 08.06.2024
+
+AllTrails: Hike, Bike & Run 19.1.1 Mod by AppModz [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108298.jpg" />
+</div>
+
+
+###  Подробнее
+
+AllTrails: Hike, Bike & Run - приложение для поклонников туристических походов, путешествий на своих двоих, времяпрепровождения на свежем воздухе, искателей зрелищных кадров природы и всего прочего. Им предлагается огромное количество маршрутов, действующих, в том числе и в оффлайн режиме, навигацию, и многое другое.Тип издания: ProРелиз состоялся: 03.06.2024Разработчик: AllTrails, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFEC6F3F34FA0260E116424E01557C6516A8597
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728515   (108299) от 08.06.2024
+
+Endangered Reign - The Forester Awakens (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Firesailing (00:06:08)
+02 - Through Your Fear (00:06:26)
+03 - Ethereal Skies (00:06:43)
+04 - Defending the Realm (00:05:32)(   Читать дальше...   )Жанр: Power, Progressive MetalПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EC884B45A00030970F9D01B71CAD1FC79631E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728809   (108300) от 08.06.2024
 
 Список дел: планер напоминания / To-Do List - Schedule Planner 1.02.43.0424 Mod by urban_86 [Ru/Multi]
@@ -481,195 +662,6 @@ Big Harp George - Cooking with Gas (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8986680BC16D672D7D7ED74A29F93698306E65E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728210   (108319) от 07.06.2024
-
-Bane Gluvakov - Awake (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Love Song (4:46)
-02. High on You (3:32)
-03. Keep Me out of Trouble (4:02)
-04. Flatland Romance (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB0668BB1BE71AF4455542A093F943D23CCE66B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728432   (108320) от 07.06.2024
-
-Reverend Hound - Deal In Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108320.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Night
-2. Hounds Of The Sea
-3. Days Of Wrath
-4. Glory(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD8B409CFEEA965B83330E02D8734B70F9E9E35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728222   (108321) от 07.06.2024
-
-Dave Williams - Open to Persuasion (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crushed (3:32)
-02. Full (4:18)
-03. It Was Impossible (5:45)
-04. Love on the Road (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F39466186BD4C483FC6C7545F11FC3E3641D53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728267   (108322) от 07.06.2024
-
-Jack Hadley - The St. Louis Sessions, Vol. II (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blues Made Me Strong Again (4:21)
-02. Afraid to Love (6:17)
-03. Always Enough Blues (6:05)
-04. Let's Say It's Over (5:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66E8E1D4A95AA856954E9CFE3DD08AC22770792
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728512   (108323) от 07.06.2024
-
-Jack McDuff - Legends of Acid Jazz: Brother Jack (1960, 1961) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brother Jack [4:04]
-02. Mr. Wonderful [3:57]
-03. Noon Train [5:56]
-04. Drowsy [3:42](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A953044CA44A2592EC3424C3B91BAAA7D0189145
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728523   (108324) от 07.06.2024
-
-Darko Us - Starfire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <progressive metalcore, deathcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starfire (1:14)
-02. Distant World (feat. Storm Strope (ex-The Last Ten Seconds of Life)) (4:27)
-03. Death Charge (feat. Marc Zelli of Paleface Swiss) (3:33)
-04. 5D (3:57)(   Читать дальше...   )Жанр: progressive metalcore, deathcoreПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F17E82DAEBDD07EC6FD4CA406145485DC5A471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728507   (108325) от 07.06.2024
-
-Sonny Stitt - 1946 – 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Bop in Pastel (Bouncing with Bud) [2:58]
-02. Fools Fancy (Wail) [2:35]
-03. Bombay [2:55]
-04. Ray's Idea [2:47](   Читать дальше...   )Жанр: BopПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DB1E451D335E407DBE883A330B2FDBBDB90168
 ```
 
 

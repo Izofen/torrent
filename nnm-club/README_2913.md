@@ -1,3 +1,33 @@
+###  Публикация: 475997   (85821) от 01.04.2012
+
+Владимир Иванов | Microsoft Project Server 2010 за 110 минут [2011] HDTV
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучение Microsoft Project Server 2010 за 110 минут.
+
+Быстрое визуальное обучение управлению проектами в Microsoft Project Professional 2010 и Microsoft Project Server 2010. Скоростная сборка прототипа бизнес-решения.
+Секреты и тонкости в настройке и в работе с программным обеспечением.
+
+Создан Владимиром Ивановым, MVP - специалистом по Microsoft Project
+Алексей Просницкий, Владимир Иванов | Управление проектами в Microsoft Project 2010 [2011]Жанр: Программное обеспечениеПродолжительность: 01:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1DD268BF93ABF360D15728BCAB4A2E699C1794B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474312   (85822) от 01.04.2012
 
 Аватар: Легенда о Корре / The Legend of Korra (Сезон: 1, Серии: 1-2 из 26) (2012) WEB-DLRip [Обновляемая]
@@ -658,39 +688,6 @@ magnet:?xt=urn:btih:8264D2A958123E0CAF22F0D75ED912ABE0B6D05F
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476789   (85877) от 02.04.2012
-
-VA - Top 200 Радио DFM Весна 50/50 (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85877.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алисия & Влад Корса - Здесь и сейчас
-002. Klaas & Bodybangers - I like (Bodybangers mix)
-003. Dan Balan - Лишь до утра (DFM special mix)
-004. JuicyTrax feat. Jess - Fuck your girlfriend
-005. Иракли - Ты одна (DJ Kirill Clash & DJ Dmitriy Nema remix)
-006. Madonna feat. Lmfao & Nicki Minaj - Give me all your luvin (Party Rock remix)
-007. Milena & Murzin Denis - До утра (Filipp Aniskin remix)
-008. David Guetta - Without you (feat. Usher)
-009. Блестящие - Милый мой
-010. Chris Parker - Space(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8C6461DABDAEEC0839EF08D0BAF1232495BFBE
 ```
 
 

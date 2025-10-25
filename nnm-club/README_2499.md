@@ -1,3 +1,30 @@
+###  Публикация: 1803914   (65724) от 26.06.2025
+
+Triumph - Magic Power: All Star Tribute to Triumph (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  24 Hours a Day (1:22)
+02.  Rock & Roll Machine (4:51)
+03.  Magic Power (5:29)
+04.  Spellbound (4:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7278DC242E550150590E5DF54FCF91A4980CD148
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803847   (65725) от 26.06.2025
 
 Wicked Bluesman - Dreams & Destiny (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -659,33 +686,6 @@ magnet:?xt=urn:btih:7762C833403EA2D06809E298713EB105F069EF0A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BE6DFD134144309629EB6E5B2B31FB5764D5D1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803856   (65750) от 26.06.2025
-
-Der Bote - Abbitte (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, NDH>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abbitte [00:03:29]
-02. Hardware liebt Software [00:04:18]
-03. Sektion 9 [00:04:27]
-04. Liebe schmerzt [00:04:42](   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A4E69F77E6F89ADEC2352AB844A0C8A0F2B646
 ```
 
 

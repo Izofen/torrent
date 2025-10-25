@@ -1,3 +1,30 @@
+###  Публикация: 1780829   (70352) от 20.02.2025
+
+Nick Brignola - On A Different Level (1990) Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Inside [5:25]
+02. Hot House [10:43]
+03. Duke Ellington's Sound of Love [8:29]
+04. All the Things You Are [6:23](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D66E06F82A9945C72F0B653ED789E2C4B063C2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780837   (70353) от 20.02.2025
 
 Rob McConnell & The Boss Brass - The Jazz Album (1976) 1996, Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
@@ -658,33 +685,6 @@ Saor - Amidst The Ruins (2025) [FLAC|Lossless|image + .cue] <Atmospheric Black M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E194E574C22D82EEA51503FE01B31D5FCE01869B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780635   (70378) от 19.02.2025
-
-Manhattan Jazz Quintet - The Sidewinder (1987) ProJazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Apple Jam [8:02]
-02. Django [8:43]
-03. You'd Be So Nice to Come Home To [6:02]
-04. The Sidewinder [8:26](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4FCF2AE169429978C1BD8EAB3435B12826143D
 ```
 
 

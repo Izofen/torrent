@@ -1,3 +1,211 @@
+###  Публикация: 1759189   (103306) от 07.11.2024
+
+Журнал | Квантик №9 (сентябрь 2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103306.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
+В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B95072483A0D89D9FBEF57CDF033AFF7DBA140C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759246   (103307) от 07.11.2024
+
+Грязный Король / Banchikwang (2000) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэ-Хо обычный банковский служащий. Его жизнь скучна. На работе постоянные проблемы, и босс частенько бьёт его. Но однажды он попадает в тренажёрный зал рестлеров. И судьба даёт ему шанс стать одним из них. Надевая маску ''Грязного Короля'' Дэ-Хо открывает новую главу своей жизни...Производство: Южная Корея / B.O.M. Film Productions Co. Ltd., Cinema ServiceЖанр: комедия, спортРежиссер: Чжи Ун КимАктеры: Кан Хо Сон, Джин Ён Чон, Сан Мён Пак, Ун Ин Чон, Ён Чан Сон, Хан Сон Чан, Су Ро Ким, Вон Чжон Ли, Син Гу, Чжи Иль Пак, Ду Хон ЧонПеревод: любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Faylan), английскиеПродолжительность: 01:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2905C5A80184F8752C3F0FB4C32DAB71E6D37AD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759320   (103308) от 07.11.2024
+
+VA - Coastal Chill: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamhunter - Moonrise (3:08)
+02. Supira - Cool Lounge (7:02)
+03. Natalie Z - In My Soul (4:01)
+04. Pier-O - Desire (5:16)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22150EF9A4AB335930583696952441D71430D009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759077   (103309) от 07.11.2024
+
+John Askew - A Room Full of Pros & Cons (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grave Digger (Mixed) [00:03:53]
+02. Steady & Stronger (Mixed) [00:05:01]
+03. Push It (Mixed) [00:03:53]
+04. UFO (Mixed) [00:04:06](   Читать дальше...   )Жанр: TranceПродолжительность: 2 CD, 02:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C343DF5AF28F5253B6FF7157BB2254D4F8A563A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759290   (103310) от 07.11.2024
+
+Delain - Dance with the Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance with the Devil (3:55)
+02. The Reaping (3:48)
+03. Sleepwalkers Dream (2024 Version) (4:26)
+04. The Cold (Live) (3:43)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:025AD190ED35F3554E8CE14DA20436CF231EFFC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759080   (103311) от 07.11.2024
+
+Aerosmith - Live in Boston (1994) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Train Kept A Rollin' [00:03:59]
+02 - Same Old Song And Dance [00:05:21]
+03 - Big Ten Inch Record [00:04:34]
+04 - Walk On Water [00:04:46](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D29AA6564504124F2807342DA95788B5F498A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759237   (103312) от 07.11.2024
+
+Грязный Король / Banchikwang (2000) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэ-Хо обычный банковский служащий. Его жизнь скучна. На работе постоянные проблемы, и босс частенько бьёт его. Но однажды он попадает в тренажёрный зал рестлеров. И судьба даёт ему шанс стать одним из них. Надевая маску ''Грязного Короля'' Дэ-Хо открывает новую главу своей жизни...Производство: Южная Корея / B.O.M. Film Productions Co. Ltd., Cinema ServiceЖанр: комедия, спортРежиссер: Чжи Ун КимАктеры: Кан Хо Сон, Джин Ён Чон, Сан Мён Пак, Ун Ин Чон, Ён Чан Сон, Хан Сон Чан, Су Ро Ким, Вон Чжон Ли, Син Гу, Чжи Иль Пак, Ду Хон ЧонПеревод: любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Faylan), английскиеПродолжительность: 01:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227144EE83B87D91273F7F30C4A1172196CA5D36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758321   (103313) от 07.11.2024
+
+Druidess - The Product Of My Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Alternative Rock, Psychodelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undine (03:20)
+02. The Sniffing Accountant (03:48)
+03. Lavender (04:04)
+04. Vacancy (06:01)(   Читать дальше...   )Жанр: Grunge, Alternative Rock, Psychodelic RockПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4E17C5AA6EEA3C672BDB6F1F6ACFE2CC4A9356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759267   (103314) от 07.11.2024
 
 Футбол. Лига Чемпионов 2024/2025. Основной турнир. Тур 4-й. Обзор матчей (06.11.2024) HDTVRip [H.264/1080p]
@@ -462,216 +670,6 @@ magnet:?xt=urn:btih:4A21CB5A31CF58FD10F4125521B96997E60F350E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AF7E5554BBDA722D9348DFD2543591A79959EF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758699   (103332) от 06.11.2024
-
-Своя игра (03.11.2024) WEBRip [H.264/1080p] (16-я игра)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103332.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B5BDE98228CAE744398BDC4A7F443B227BBA6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759166   (103333) от 06.11.2024
-
-Suidakra - Darkanakrad (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weight of Worlds (1:06)
-02. As Heroes Abide (3:17)
-03. Unravelling Destinies (4:31)
-04. Seven Sentinels (5:58)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C222B638763FF2979A6BB8601A893DE224C76E42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759041   (103334) от 06.11.2024
-
-Laurindo Almeida - Concierto de Aranjuez (1978) 1984, East Wind [FLAC|Lossless|tracks + .cue] <World Fusion, Brazilian Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concierto de Aranjuez [9:42]
-02. The Summer Knows [3:42]
-03. Star Dust [3:58]
-04. How Insensitive (Insensatez) [3:32](   Читать дальше...   )Жанр: World Fusion, Brazilian Jazz, Guitar JazzПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5C1B7F289F1D96B56BF77C2CC57FE3DEB16B82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759064   (103335) от 06.11.2024
-
-Viperwitch - Witch Hunt: Road to Vengeance (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road to Vengeance: Descendents of the Gods [00:02:48]
-02. Legend of the Midnight Rider: The Saxon Killer [00:01:43]
-03. Hellbound (feat. Devin Reiche) [00:04:04]
-04. The Ritual: Infinite Nocturn Rises [00:01:56](   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A3D713C5B9B20C182472226C35AB5C26F31157
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759038   (103336) от 06.11.2024
-
-Toshiko Akiyoshi Trio - Time Stream (1985) Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prosperity [5:10]
-02. Con Alma [6:24]
-03. Giant Steps [6:25]
-04. Smile [6:29](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464ABA28F1AFF1DA6159C0947963C08E25A21430
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759043   (103337) от 06.11.2024
-
-Bunkiman - Bunkiman 2023 Best (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clockwork Syndrome (2:19)
-02. The Walking Drunker (2:22)
-03. Rivals (2:31)
-04. Encounter (2:04)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B276A53E07BD8C93A1AA4263F53AE9667D7F23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758654   (103338) от 03.11.2024
-
-MotoGP. Этап 19 из 20. Гран-при Малайзии. Гонка (03.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103338.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 ноября 2024, воскресенье. 10:20 МСК, Этап 19 Куала-Лумпур. Гран-при Малайзии. Гонка (20 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36F141BF4DABDA7A49277BB9C8E2655F0364E7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758549   (103339) от 03.11.2024
-
-Frank Sinatra - Where Are You? (2002) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Are You [3:30]
-02. The Night We Called It A Day [3:29]
-03. I Cover The Waterfront [2:59]
-04. Maybe You’ll Be There [3:07](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD688184A250D65D5C93B4D971E4893D13B0255
 ```
 
 

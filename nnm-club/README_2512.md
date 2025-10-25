@@ -1,3 +1,30 @@
+###  Публикация: 1802228   (66062) от 15.06.2025
+
+88 and gone - Spiders (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  INTRO (2:08)
+02.  SPIDERS (3:58)
+03.  WISHBONE (3:20)
+04.  AGENDA (2:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE108B623A171DB463B1609E5D824D1F11AC6329
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802229   (66063) от 15.06.2025
 
 Deadcode - Nothing And Nowhere (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -652,33 +679,6 @@ magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94DCAFCA729593EE19177B104EAD49A7276BC35A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802242   (66088) от 15.06.2025
-
-Larry McCray - Heartbreak City (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Try To Be A Good Man (4:18)
-02.  Heartbreak City (7:24)
-03.  Bye Bye Blues (4:54)
-04.  Bright Side (5:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99964EC9A39AC0CCA8EE7281DBCEFCB0C611B8DB
 ```
 
 

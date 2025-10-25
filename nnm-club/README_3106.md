@@ -1,3 +1,91 @@
+###  Публикация: 484740   (99960) от 19.04.2012
+
+VA - Trance Parade Vol.2 (17.04.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99960.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Parade Vol.2 (17.04.2012)
+Год: 17.04.2012
+Жанр: Trance
+Продолжительность: 03:27:39Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+1.Robert, The Martinez Brothers--Dreaming About Paprica (Dave Joy Remix)
+2.DJ Shog--Jelousy (Vocal Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D64CFC25903F489C7DD8BD0D244642BF5519D86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484941   (99964) от 19.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (19.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950326F2F08360741F1C1519623FCC080C29E381
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484676   (99966) от 19.04.2012
+
+VA - Freedom Festival 2011 Back To The Roots (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Project - Hey You 07:50
+ 02. Sun Project - Epic Transition 07:46
+ 03. Azax Syndrom - A Man On Acid (feat Bliss) 08:23
+ 04. Vibe Tribe Spade - Music People 07:17
+ 05. Absolum Lost and Found - Power Science 08:21
+ 06. Ex Gen - Bankai 09:41
+ 07. Space Tribe - Time Warp (remix) 09:01
+ 08. Electric Universe - Boddisatva 08:25
+ 09. Rinkadink - Tranzmachien 06:59
+ 10. Skunk Tribe - Gods Equation 09:282012Жанр: Psychedelic / Full OnПродолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F295BCA861384B0F5352AC4351A5813E393B59E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484948   (99968) от 19.04.2012
 
 [Wallpapers] Wallpapers Sexy Girls (19.04.12)
@@ -608,88 +696,6 @@ MERCEDES положил начало автомобильной эпохи. С 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF033FA400A44FA5BBB8B2C393448C69429D8921
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483291   (100018) от 19.04.2012
-
-VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aquatica — Angels 08:20
-02. Bizzare Contact Phanatic And Electro Sun — Out Of Your Love (Sesto Sento remix) 07:47
-03. Sesto Sento And Space Cat — Getting High Power (Cosmic Tone remix) 08:15
-04. U_Recken — The Other Side (Visual Paradox edit) 06:52
-05. System Nipel — Psytronic 07:05
-06. Psynina — Sound Of Reality 07:04
-07. Aquatica And Ultravoice — Diamond Sky (Indra remix) 07:22
-08. Sesto Sento — Getting Fused (Silicon Sound remix) 07:32
-09. Visual Paradox And Cosmic Tone — Stop The Beat (Twina remix) 06:35
-10. Ultravoice — Dark Side (Psynina remix) 09:292012Жанр: Trance, Psy Trance, Full OnПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484984   (100022) от 19.04.2012
-
-Величайшие автомобили: Land Rover / Great Cars: Land Rover (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тяга к приключениям, не угасающая жажда исследовать неизвестное, побывать там где еще не ступала нога человека, первым достичь вершины или пересечь континент - именно это стремление стало причиной сухопутных экспедиций, которые прославили Land Rover. Именно оно спровоцировало появление целого семейства автомобилей этой марки.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041862CC662F6048FE1F51675F106E26C0121A11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483944   (100024) от 19.04.2012
-
-Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It
- 02. WhitewashЖанр: Stoner Noise RockПродолжительность: 0:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
 ```
 
 

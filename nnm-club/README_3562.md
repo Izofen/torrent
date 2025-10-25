@@ -1,3 +1,183 @@
+###  Публикация: 1708762   (112987) от 22.03.2024
+
+Эколс Дэмиен | Практики, которые спасли жизнь в камере смертников (2023) [MP3, Андрей Финагин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушателей ждёт не только уникальная история жизни приговоренного к смерти человека, но и вдохновляющий путь его духовного становления! «Магия – это путь не для последователей; это путь для ищущих, вопрошающих и всех, кому сложно довольствоваться догмами и заранее подготовленными ответами. Магия для тех, кто стремится поднять завесу реальности, чтобы увидеть то, (   Читать дальше...   )Жанр: Практическая эзотерикаИздательство: Аудиокнига АСТПродолжительность: 05:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7059BDBA47A3905F200AC6CD9579645FFF3A7038
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708767   (112988) от 22.03.2024
+
+Гэри Келлер, Джей Папазан | Начни с главного (2018) [MP3, Станислав Иванов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112988.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе предлагаемой в ней методики лежит простой принцип – на каждом временном отрезке, в каждом проекте, в каждой из жизненных сфер нужно сосредоточить свое внимание только на одной задаче. На первый взгляд этот подход кажется утопией, но если проанализировать истории по-настоящему успешных или даже выдающихся людей, станет ясно: все они действовали точно так (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 06:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82939FD18192B106AF1FC8608E11BE2D26859762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708500   (112989) от 21.03.2024
+
+Darkthrone - Goatlord (1996) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112989.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Earth's Last Picture
+A2 Blackwinged
+A3 Gather For Attack On The Pearly Gates
+A4 Black Victory Of Death(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EA6D3000AA85465EB42CD484FF4C06C622749A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708576   (112990) от 21.03.2024
+
+Carnival Of Dreams - Des Kaisers Alte Kleider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop | Darkwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Getraumt (00:04:10)
+02 - Spartacus (00:03:25)
+03 - Man On The Moon (00:02:37)
+04 - Das Licht (feat. Traumsoldat) (00:03:10)(   Читать дальше...   )Жанр: Synthpop | DarkwaveПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018BD9CEF9BA0CC15729D7BB1447F36345B34F42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708624   (112991) от 21.03.2024
+
+Марина Серова | Частный детектив Татьяна Иванова. Прямо в яблочко (2023) [MP3, Анна Вершинина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если бы частный детектив Татьяна Иванова не знала, что настоящий киллер никогда не возьмется сразу за два дела, то была бы почти уверена, что между убийством известного в городе банкира и угрозой покушения на ее клиента есть какая-то связь. Однако за смертью банкира последовала череда убийств крупных бизнесменов, напрямую связанных с ее клиентом – талантливым программистом-хакером. (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C8D734616CF57EF3655F8ECF7853D3E0C5BEC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708644   (112992) от 21.03.2024
+
+Cruzh - The Jungle Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jungle Revolution (3:55)
+02. Angel Dust (4:14)
+03. FL89 (4:09)
+04. Killing In The Name of Love (4:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9906C5D6C61F88C254289881A764A23D765C8BCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708661   (112993) от 21.03.2024
+
+Brodequin - Harbinger of Woe (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diabolical Edict (3:28)
+02. Fall Of The Leaf (2:34)
+03. Theresiana (3:03)
+04. Of Pillars And Trees (4:03)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBE888B371162BE5834E6CB62A6382ABC02B457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708725   (112994) от 21.03.2024
 
 Don't Drop the Sword - Path to Eternity (2017) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Epic Speed Metal, Metal>
@@ -497,192 +677,6 @@ Hideous Divinity - Unextinct (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical-Bru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F3FFD6021617279B7091C8D50ECBC0E732833E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708571   (113013) от 21.03.2024
-
-Grimwind - XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вальдор [00:03:23]
-02. Путь небес [00:06:07]
-03. Железо внутри [00:03:32]
-04. Рубрика Аримана [00:06:44](   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Melodic Death MetalПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366ABC4FB2A442B54188F99DF7CA70AB84809093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708408   (113014) от 21.03.2024
-
-9 Lazy 9 - Jam 9 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Trip-Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rumble Pie [00:04:51]
-02. Motel Etiquette [00:03:46]
-03. Harlem Sunset [00:05:13]
-04. Turning State [00:04:53](   Читать дальше...   )Жанр: Downtempo, Trip-HopПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341D7D592E06780E742B3249015DC95926FD8FF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708671   (113015) от 21.03.2024
-
-Skype 8.115.0.215 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADADAE4E759B9075F9B647CC9F8EA268981E617B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708578   (113016) от 21.03.2024
-
-Dark Voice of Angelique - Endgame (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial Punk, Dark Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witcher [00:02:42]
-02. Fearless [00:04:00]
-03. Kafka [00:02:40]
-04. Gone [00:03:58](   Читать дальше...   )Жанр: Electro Industrial Punk, Dark AmbientПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1427BD6A322D57B8E9E509A0E3A357A241956380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708569   (113017) от 21.03.2024
-
-KoscHei - Темница (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мара [00:05:14]
-02. Души умерших обращаются в воронов [00:01:42]
-03. Пир на костях [00:02:50]
-04. Акедия [00:01:09]Жанр: Black MetalПродолжительность: 00:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC9E935FB26EEC3187D9962873E7D051005562E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708538   (113018) от 21.03.2024
-
-Bruce Dickinson - Tattooed Millionaire (1990) [FLAC|24/96|image + .cue|Vinyl-Rip] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son Of A Gun
-02. Tattooed Millionaire
-03. Born In 58
-04. Hell On Wheels(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526D5202512CDD5C9A5028710A244351862583D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708668   (113019) от 21.03.2024
-
-Leaves' Eyes - Myths of Fate (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forged by Fire (4:47)
-02. Realm of Dark Waves (4:59)
-03. Who Wants to Live Forever (4:21)
-04. Hammer of the Gods (4:35)(   Читать дальше...   )Жанр: Symphonic Metal, Gothic MetalПродолжительность: 01:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62248D2A32C59D24CBDA71595528215A9361DA1
 ```
 
 

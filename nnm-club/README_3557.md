@@ -1,3 +1,192 @@
+###  Публикация: 1708930   (112857) от 23.03.2024
+
+VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Beat [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moten Swing [4:16]
+02. Out of Nowhere [4:05]
+03. Groovin' High [3:15]
+04. Autumn Leaves [4:37](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B25C6E996911C22F30F00BCA4127DE8C5D5000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709033   (112858) от 23.03.2024
+
+Aktarum - Trollvengers (2022) 2024 Reissue, Troll Studios  [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Tale of Trolls [1:41]
+02 - The Blood of Trolls [4:22]
+03 - In the Name of Trolls [4:17]
+04 - TrollVengers [5:23](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6DA11C1A9EACBAC8B1906C80D65CE080802C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709016   (112859) от 23.03.2024
+
+Aktarum - Ragnatroll (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Troll Feast [4:21]
+02 - Trolls in the Fog [4:47]
+03 - Council of Trolls [4:28]
+04 - Troll Bard [4:48](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82000C7BCA0A4BBEC86BDAAA227B75E517886131
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709183   (112860) от 23.03.2024
+
+Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112860.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jind De Tronuri
+A2 Flăcărarii
+B1 E-an-na
+B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708926   (112861) от 23.03.2024
+
+Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He May Be Your Man [2:48]
+02. Jack, I'm Mellow [2:47]
+03. My Unusal Man [2:49]
+04. Uncle Joe [2:37](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA547C10AD63F993F7E9DEDEC79EAB627C8A2D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708837   (112862) от 23.03.2024
+
+Aktarum - Game of Trolls (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Opening Game [1:11]
+02 - Game of Trolls [4:12]
+03 - Light up the Torches [4:51]
+04 - Troll Forever [5:54](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608992ECB61E606A86C57483F67729D6D52F3A00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709186   (112863) от 23.03.2024
+
+Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Timpul Întâilor
+A2 În Vieliștea Uitării
+B1 Descânt
+B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709025   (112864) от 23.03.2024
 
 Menhir - Buchonia (1998) EP Reissue, 2004, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
@@ -475,185 +664,6 @@ magnet:?xt=urn:btih:BD2D62895DB9CF3BF20001B827C689E99B22610B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709133   (112883) от 23.03.2024
-
-Sleeping Well - Wisdom Of The Ages (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Golden Dawn (14:14)
- 02 - Chronicles Of Pyropolis (08:11)
- 03 - Of Beggars & Kings (04:56)
- 04 - Horus (07:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF82E38E4E5A081A0F8CC7603F4CAAB0DAD4F139
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709058   (112884) от 23.03.2024
-
-Boris Tolstobokov - Quantum Satis (1988) 2023, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Imagination [19:28]
-02. Game In Beads [30:57]Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7BD7B1DDF6320FB4C11DD7CC55E89DFC5E0684
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709148   (112885) от 23.03.2024
-
-Holler - Reborn (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Believe
-02. I Don't Want
-03. Music Is The One
-04. Into Me Forever(   Читать дальше...   )Жанр: AORПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1776BABC7E5963655B4049E8EDBEC6D6AB974B2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709163   (112886) от 23.03.2024
-
-Своя игра (23.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112886.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D269C6076FBED96093BC08E7E76FB47DA68C7560
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709044   (112887) от 23.03.2024
-
-Cookie 7.2.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
-Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 12.0 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3801225D0134B88EFB504C82BB43E1B707ACD372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709052   (112888) от 23.03.2024
-
-Брайан Трейси | Наука денег (2018) [MP3, Алексей Мужицкий]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новинка 2018 года от бизнес-спикера мирового уровня Брайана Трейси уже помогла тысячам людей достичь процветания! Тема денег во все времена и везде остается одной из самых спорных, увлекательных, исследуемых, эмоциональных и заставляющих думать. Деньги всегда на пике интереса. Но вокруг финансов столько дезинформации, что порой мы еще больше запутываемся в своих (   Читать дальше...   )Жанр: БизнесИздательство: AB PublishingПродолжительность: 05:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586410CC0EA9D2FE9FE898B160239EB958065692
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709089   (112889) от 23.03.2024
-
-Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agent Of Liberty (Nik Z. WC Remix)
-4:56
-02. Lady Ecstasy (Extended Version) 5:32
-03. Love Spy (Night Mix) 8:40(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A292C14F7DCA7575F0939424D8D3676B9F6AF79
 ```
 
 

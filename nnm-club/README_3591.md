@@ -1,3 +1,192 @@
+###  Публикация: 1705929   (113741) от 10.03.2024
+
+Даниил Мордовцев | За чьи грехи? (2015) [MP3, Савелий Гуреев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историческая повесть «За чьи грехи?» русского писателя Д. Л. Мордовцева (1830−1905) рассказывает о временах восстания Степана Разина.
+В произведении изображены многие исторические лица и события, воссоздан целостный образ России XVII века.
+
+ Даниил Мордовцев на NoNaMe ClubЖанр: Русская историческая литература, повестьИздательство: Вира-М (аудио)Продолжительность: 07:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE85A6CFA2C982A38D276BA0B4A5135C7A5172FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705834   (113742) от 10.03.2024
+
+Обними Кита & Евгения Рыбакова - Концерт (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ко мне [00:03:16]
+02. Пополам [00:04:04]
+03. Одеяло [00:03:31]
+04. Мир недостроенных иллюзий [00:02:54](   Читать дальше...   )Жанр: Alternative, Indie Pop, Indie RockПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F77C130F34F94244C5655DB2AF8E57A0180971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705833   (113743) от 10.03.2024
+
+Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Именно так
+02 - Свети ярче
+03 - Незаметно укройся (от моего лунного света)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D59B1DE3FC90C49BC0D5A62FCAC8BDA8BA4AFC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705761   (113744) от 10.03.2024
+
+Madder Mortem - Mercury (1999) 2019 20th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undertow
+02. Under Another Moon
+03. He Who Longed For The Stars
+04. These Mortal Sins(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15FEDCB4CFA55E6123E8380EE2A2ED9CFB17369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705843   (113745) от 10.03.2024
+
+Stephane Grappelli - I Got Rhythm (1997) Delta Music [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Saw Stars [2:32]
+02. The Continental [2:38]
+03. Avalon [2:53]
+04. Some of These Days [2:24](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5E2EE2E95D99A91F76523020BE115BF2BEBDEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705847   (113746) от 10.03.2024
+
+Ellis Marsalis - Ruminations In New York (2004) ESP-Disk' [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things That You Never Were [3:51]
+02. A Moment Alone [4:47]
+03. Haven's Paradise [4:08]
+04. Homecoming [4:44](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830C296253195D74ED14A2E861400950640812AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705837   (113747) от 10.03.2024
+
+Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuss Budget [7:46]
+02. Oatmeal Cookie [4:39]
+03. Da-Baby [7:33]
+04. Down Home [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C7F9DA17CD70C29CEFE637E44BA2946ED991F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705840   (113748) от 10.03.2024
 
 Branford Marsalis Quartet - Coltrane's A Love Supreme: Live In Amsterdam (2004) Marsalis Music [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -493,195 +682,6 @@ Stephane Grappelli - Shades Of Django (1975) 1989, MPS Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69EE6225ACB035CAE842BC568F085D8464008B42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705693   (113767) от 09.03.2024
-
-Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aujourd'hui (5:58)
-02. Lâcher-prise (4:20)
-03. 42 à Brest (4:59)
-04. Sobriété (4:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F716BDFBC601E930CE779BD1B161D3B5F9BA59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705757   (113768) от 09.03.2024
-
-Madder Mortem - Red in Tooth and Claw (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood on the Sand
-02. If I Could
-03. Fallow Season
-04. Pitfalls(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CADBA404604BC157C6C2FA1D713DD429862C6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705610   (113769) от 09.03.2024
-
-Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vade Retro
-02. If She Floats
-03. Et Cum Spiritu Tuo
-04. Antecclesia(   Читать дальше...   )Жанр: Doom, Heavy MetalПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C706E004A502BEEA34F974CED6ECCB19C7AA303
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705748   (113770) от 09.03.2024
-
-Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Formaldehyde
-02. The Little Things
-03. Armour
-04. Resolution(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4151D12AB3A26AD4287DA4F9BBB484327DB793
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705563   (113771) от 09.03.2024
-
-Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan [8:20]
-02. April in Paris [5:05]
-03. Cherokee [2:26]
-04. Goodbye [8:17](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5F78302854161D3901575A2CA3F52EF705ADEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705608   (113772) от 09.03.2024
-
-Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icehouse [00:05:11]
-02. Force Majeure [00:04:44]
-03. Killing Time [00:02:52]
-04. Behind the Tears [00:05:23](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F1F27FBC24DE45207F8143352BFD16A61BED5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705564   (113773) от 09.03.2024
-
-Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby in Rhythm [3:08]
-02. Embraceable You [4:39]
-03. Love for Sale [5:09]
-04. Along with Me [3:19](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBF974D60C3ACC930624FF5C8F72EF92FE37BAA
 ```
 
 

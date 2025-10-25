@@ -1,3 +1,30 @@
+###  Публикация: 1778964   (70794) от 10.02.2025
+
+VA - Winter Deep House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alban Chela - Vida Loca (2:20)
+02. Barış Çakır - Sunshine (3:00)
+03. Deepest - Bastanna (I'll Wait) (3:00)
+04. MIRAC SARI - My Focus Is You (2:02)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B92E020DBC291B3F768F7B8F354D07A76D35FDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778955   (70795) от 10.02.2025
 
 Шрифты - MyFonts - Revia [TTF, WOFF, WOFF2, EOT]
@@ -634,30 +661,6 @@ magnet:?xt=urn:btih:D225874D949A57E86611E1D4B307BEE85CA995A4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6196A171F9383FF4F1CACDBCEA55A4155789E62D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778696   (70820) от 09.02.2025
-
-Шрифты - Bronco Bandit - Wild West Typeface [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Садитесь в седло и отправляйтесь на Дикий Запад с Bronco Bandit, смелым и резким шрифтом, вдохновленным суровым очарованием ковбоев, салунов и необузданной границы. Этот шрифт передает дух приключений и бунтарства с его отличительными острыми краями и вневременным дизайном. Благодаря своему незабываемому стилю и сильной индивидуальности, Bronco Bandit является лучшим (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5297EA64F1DF3E63051544609822946FC5B305
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1785623   (69208) от 16.03.2025
+
+Dead Rabbitts, Judge & Jury, Escape the Fate - Redefined (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hardcore, Post-Hardcore, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Artificial Gods [2:59]
+02 - T/R/A/P/P/E/D [3:19]
+03 - Oxygen [3:16]
+04 - Crowned Clown [3:54](   Читать дальше...   )Жанр: Hardcore, Post-Hardcore, Alternative MetalПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E51AA17BBAEA948DA16E44A6DBC9B37A42C85BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785580   (69209) от 16.03.2025
 
 Malevolent Hand - Entropic Immolation (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
@@ -651,33 +678,6 @@ Riot - Archives Volume 4 : 1988-1989 (2019) Compilation [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56ACC24776089AC6D1DBDF9D110555DE36A208A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785534   (69234) от 16.03.2025
-
-Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|image + .cue|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69234.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Intro - The Gate
-A2 Noose
-A3 Shadegrown
-A4 Bleed(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46037E3858D6AAE0DB92A4B0851C5E6334BD124
 ```
 
 

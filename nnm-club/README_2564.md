@@ -1,3 +1,27 @@
+###  Публикация: 1794171   (67414) от 27.04.2025
+
+Текстуры - Design Stocks - Behance - 10 Rough Plastic Textures - 224509793 [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные шероховатые текстуры.Формат: JPG, PNGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76439569730CDC9C9E0F326843CB8E18B96D220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793940   (67415) от 27.04.2025
 
 Тальма Лобель | Теплая чашка в холодный день. Как физические ощущения влияют на наши решения (2024) [MP3, Наталия Казначеева]
@@ -630,33 +654,6 @@ magnet:?xt=urn:btih:1F7DCDCF5EF6D8EDE319F24D29FE1FB3109EA082
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B35176BE5BF784CF2C6427ACDEA17F39BB5E172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793658   (67440) от 25.04.2025
-
-Missy Sippy All Stars - Vol II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Busy Bee (3:28)
-02.  Whatever Lola Wants (2:42)
-03.  Dimes For Nickels (3:04)
-04.  Dark Clouds Coming (2:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2866BD015D51A841134C6ED876EC62BD6277377A
 ```
 
 

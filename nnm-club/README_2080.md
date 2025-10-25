@@ -1,3 +1,27 @@
+###  Публикация: 1727650   (54447) от 03.06.2024
+
+Paul Barry | Head First Python. Second edition (2016) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54447.jpg" />
+</div>
+
+
+###  Подробнее
+
+With Head First Python, you’ll quickly grasp Python’s fundamentals, working with the built-in data structures and functions. Then you’ll move on to building your very own webapp, exploring database management, exception handling, and data wrangling. This second edition is a complete learning experience that will help you become a bonafide Python programmer in no (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: O’Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D709CBC5FE019F9E9A49CF134C08740868A1CE27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727649   (54448) от 03.06.2024
 
 Venatrix (2024) [Multi] (1.0) Repack FitGirl
@@ -595,30 +619,6 @@ magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DEFF02071ED1C7219B57443BC4038BF758C2C02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727671   (54473) от 03.06.2024
-
-Dark Souls 2: Scholar of the First Sin (2015) [Ru/En] (1.0.2/dlc) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Souls 2: Scholar of the First Sin - это ролевой экшен, в котором львиная доля времени уделена не прокачке персонажа или заданиям, а сражениям с врагами и боссами. Игроки обмениваются ударами с противниками, стараясь блокировать их удары или уворачиваться от них, чтобы не погибнуть.Тип издания: RepackРазработчик: FromSoftwareЖанр: RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8008561192730C9580760039110442E43B04C50
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 1743253   (105433) от 15.08.2024
+
+Veil Of Eternity - Land of the Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis (04:45)
+02. Land Of The Shadows (05:02)
+03. White Crows (04:13)
+04. The Other Side (04:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36808CED4A94653970593E0966D20AD6078C08E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743129   (105434) от 15.08.2024
+
+Early Fox - Free Bird (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mistery Girl (4:36)
+02. I'm Walking (2:44)
+03. A Change Has Gonna Come (3:53)
+04. Prisoner (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C312BDF43D576E57023DD959F6549744837EBD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743131   (105435) от 15.08.2024
+
+Elephant Gerald UK - Outcasts And Castaways (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painkiller (4:11)
+02. Sweet Wine (5:42)
+03. On A Quiet Afternoon (7:35)
+04. Manana Man (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13B0563100871E1FDCBE191D646F8CF4C19CA24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743127   (105436) от 15.08.2024
+
+Dax Butler - Trouble in Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireman's Ball (4:03)
+02. Sweet Potato (4:21)
+03. Mary O'Connell (3:51)
+04. Blood Needs Spilling (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890DA25C487178AE0F191473EE444AABB97852C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743123   (105437) от 15.08.2024
+
+Blind Lemon Pledge - Oh so Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Bill (3:04)
+02. Junkyard Dog (3:11)
+03. Oh so Good (2:10)
+04. How Can I Still Love You (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B2C8A5410E237111655B25C83898E809BBE925
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743125   (105438) от 15.08.2024
+
+Darrell Arnold - Portraits of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shinin' Moon (2:55)
+02. Backwater Blues (4:17)
+03. Big Road Blues (3:39)
+04. Devil Got My Woman (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73112AEE4EB9F17ED00F1F6884D8B643ADA667DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743140   (105439) от 15.08.2024
+
+Lou Majaw - The Bluesman of Shillong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Man of Shillong (0:23)
+02. Come Home (4:44)
+03. I Had a Woman (4:20)
+04. You're Gonna Lose Me (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525168C91A3C65D144CE67F42A1629F95AAFDA1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743122   (105440) от 15.08.2024
 
 Allan Wylco and the Voltanics - Time in Time Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -477,186 +666,6 @@ MEDUZA - Radio 1's Essential Mix (2024-07-13) [MP3|~245 Kbps (V0)] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B149510079E7210773E90DFD03C381B2ACF4AC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743331   (105459) от 15.08.2024
-
-Robse - Harlekin und Krieger (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Viking Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonata Arlecchino (1:39)
-02. Harlekin und Krieger (5:00)
-03. Hey Sturm (4:23)
-04. Amenthes (3:24)(   Читать дальше...   )Жанр: Melodic Death Metal, Viking Folk MetalПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04F0D06219F36D972CB55DE69C09DCCA3E24704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743384   (105460) от 15.08.2024
-
-Беспредельные путешествия во времени / Time Addicts (2023) WEB-DLRip [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два неудачника берут на себя непыльную, как им кажется, работу — выкрасть сумку из заколоченного дома. Оказавшись внутри, они понимают, что внутри дома там и сям разбросаны аномальные зоны, перемещающие их во времени.Производство: Австралия / Exile Entertainment, LexNeville ProductionsЖанр: фантастика, триллерРежиссер: Сэм ОдлумАктеры: Фрея Тингли, Чарльз Граундс, Джошуа Мортон, Элиз Джэнсен, Кейт Брабант, Мэйсон Натт, Джонатан Каралис, Джампс Хадивала, Дэйл Куотермейн, Фиби ЛеПеревод: Дублированный (Leff Sound) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743181   (105461) от 15.08.2024
-
-Miazma - 5 Albums (2011-2018) [MP3|320 Kbps] <Gothic Rock, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Miazma - 2011 - Dressed in black
-Miazma - 2016 - Miazma (Compilations)
-Miazma - 2017 - Dollar Rush (10th Anniversary)(   Читать дальше...   )Жанр: Gothic Rock, DarkwaveПродолжительность: 5 CD, 03:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9AC54D1B916068A75C02736C265759911EA31F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743176   (105462) от 15.08.2024
-
-Femme Fatale - Live + Demos (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fortune and Fame (Live) [00:04:58]
-02. My Babys Gun (Live) [00:04:58]
-03. Touch and Go (Live) [00:05:16]
-04. Back in Your Arms Again (Live) [00:05:32](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E99F4453B9E0F9075EE2B928B65AC5E450C760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743383   (105463) от 15.08.2024
-
-Беспредельные путешествия во времени / Time Addicts (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два неудачника берут на себя непыльную, как им кажется, работу — выкрасть сумку из заколоченного дома. Оказавшись внутри, они понимают, что внутри дома там и сям разбросаны аномальные зоны, перемещающие их во времени.Производство: Австралия / Exile Entertainment, LexNeville ProductionsЖанр: фантастика, триллерРежиссер: Сэм ОдлумАктеры: Фрея Тингли, Чарльз Граундс, Джошуа Мортон, Элиз Джэнсен, Кейт Брабант, Мэйсон Натт, Джонатан Каралис, Джампс Хадивала, Дэйл Куотермейн, Фиби ЛеПеревод: Дублированный (Leff Sound) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743144   (105464) от 15.08.2024
-
-VA - Compilation part 113 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jambeats - Hostage
-02. Akmalov - Limitless
-03. Akmalov - Daylight
-04. Hamidshax - Unstoppable(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3752ADED801543B509C2796C4267B830A60BA0EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743364   (105465) от 15.08.2024
-
-Феи: Волшебное спасение / Tinker Bell and the Great Fairy Rescue (2010) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды Фея Динь-Динь встретила Лизи, маленькую девочку с твердой верой в волшебство. У Динь-Динь возникает привязанность к любопытной девочке, которой так нужен друг. Ради нее она идет на огромный риск, подвергая опасности свою жизнь и будущее всей страны Фей.Производство: США, Индия, Канада / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Брэдли РэймондАктеры: Мэй Уитман, Лорен Мот, Майкл Шин, Памела Адлон, Люси Лью, Рэйвен, Кристин Ченоуэт, Анджела Бэртис, Роб Полсен, Джефф БеннеттПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3F8FBEF8AE2B3B4E5AC44EF6E8EF6190A8EDE6
 ```
 
 

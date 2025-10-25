@@ -1,3 +1,36 @@
+###  Публикация: 476789   (85877) от 02.04.2012
+
+VA - Top 200 Радио DFM Весна 50/50 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85877.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алисия & Влад Корса - Здесь и сейчас
+002. Klaas & Bodybangers - I like (Bodybangers mix)
+003. Dan Balan - Лишь до утра (DFM special mix)
+004. JuicyTrax feat. Jess - Fuck your girlfriend
+005. Иракли - Ты одна (DJ Kirill Clash & DJ Dmitriy Nema remix)
+006. Madonna feat. Lmfao & Nicki Minaj - Give me all your luvin (Party Rock remix)
+007. Milena & Murzin Denis - До утра (Filipp Aniskin remix)
+008. David Guetta - Without you (feat. Usher)
+009. Блестящие - Милый мой
+010. Chris Parker - Space(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8C6461DABDAEEC0839EF08D0BAF1232495BFBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476782   (85879) от 02.04.2012
 
 Mozzart - Money (The Maxi-Singles Collection) (2007) [MP3|320 кб/с]<Italo-Disco>
@@ -680,39 +713,6 @@ magnet:?xt=urn:btih:0660C64D55A4C928DB20069F3E5B0331A376BC02
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2CB0F0FAE7E20372BD7D2B0FFE1C25AF9274BDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477337   (85925) от 02.04.2012
-
-Видеоприложение к журналу "Рыбалка на Руси". Выпуск №4 Апрель (2012) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85925.jpg" />
-</div>
-
-
-###  Подробнее
-
-● СНАСТИ И СНАРЯЖЕНИЕ.
-Репортаж с 31-ой Международной выстаки "Охота и рыболовство на Руси"
-● КЛУБ РЫБОЛОВНЫХ ПУТЕШЕСТВИЙ.
-Дельта Волги. Ловля сома джигом.
-● ФЕСТИВАЛИ И СОРЕВНОВАНИЯ.
-Чемпионат Мира в Италии 2011. Как это было.
-● РЫБНЫЙ СТОЛ.
-Жаркое из налима.
-● ФЕСТИВАЛИ И СОРЕВНОВАНИЯ.
-Народная рыбалка.(   Читать дальше...   )Жанр: Документальный, Телепередача, СпортПеревод: ОтсутствуетПродолжительность: 02:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B487E7E05A832ADDEAD72F382F4212BED9C58914
 ```
 
 

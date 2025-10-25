@@ -1,3 +1,186 @@
+###  Публикация: 1700277   (117199) от 16.02.2024
+
+Steve Hackett - The Circus and the Nightwhale (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steve Hackett (Stephen Richard Hackett) - британский гитарист и автор песен. Получил известность будучи участником прогрессив-рок-группы Genesis, к которой он присоединился в 1970 году. Хэкетт участвовал в записи восьми альбомов группы, покинул её в 1977 году, после чего занялся сольной карьерой.01. People of the Smoke
+02. These Passing Clouds
+03. Taking You Down
+04. Found and Lost(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F159BC93726BD455912500035618770320EC61E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700145   (117200) от 16.02.2024
+
+Peter Gabriel - Shaking The Tree: Sixteen Golden Greats (1990) 1st German Press [APE|Lossless|image + .cue] <Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solsbury Hill (4:20)
+02. I Don't Remember (3:48)
+03. Sledgehammer (4:56)
+04. Family Snapshot (4:25)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF519B2004F5D9B0593D856ED0A1E06D57941CD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699856   (117201) от 16.02.2024
+
+VA - Driving Songs The Ultimate Collection (2014) 5 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Iggy Pop - Real Wild Child (Wild One)
+02.  Ocean Colour Scene - The Riverboat Song
+03.  The Hives - Walk Idiot Walk
+04.  Blink 182 - All The Small Things(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 05:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDE6D7AF5279491FF611D2A0A7C36058F480506
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700147   (117202) от 16.02.2024
+
+Мария Ермакова - Мы разбиваемся (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117202.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Мы разбиваемсяЖанр: PopПродолжительность: 00:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F7859FA795686C4551B4C599B208C42FCEA5A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700153   (117203) от 16.02.2024
+
+RJ TextEd 16.12 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117203.jpg" />
+</div>
+
+
+###  Подробнее
+
+RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования. Присутствует автоподстановка и ручная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C0D6F018B5322800BAB62BBEA80EE069C001AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700266   (117204) от 16.02.2024
+
+Steve Hackett - The Circus and the Nightwhale (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - People of the Smoke [4:51]
+02 - These Passing Clouds [1:36]
+03 - Taking You Down [4:18]
+04 - Found and Lost [1:50](   Читать дальше...   )Жанр: Pop Rock, Rock, Progressive RockПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0585EE37BE0B3A2F6A4CF1363F2BD47F8DCC1BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700141   (117205) от 16.02.2024
+
+Pet Shop Boys - Introspective (1988) 1st German Press / Holland Press [APE|Lossless|image + .cue] <SynthPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left To My Own Devices (8:17)
+02. I Want A Dog (6:16)
+03. Domino Dancing (7:41)
+04. I'm Not Scared (7:26)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F035E121995F1676DAA27FD32A660DC4EF5EF20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700239   (117206) от 16.02.2024
 
 VA - Black Hole House Music 02-24 (2024) [MP3|320 Kbps] <House, Progressive House>
@@ -483,184 +666,6 @@ Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700228   (117225) от 16.02.2024
-
-Стереополина - Песни для хорошего настроения (2024) Deluxe Edition [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ясно (Intro)
-2. Ясно
-3. Никуда мы не пойдем (Intro)
-4. Никуда мы не пойдем(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB708C59681ADCF943DA84D29AB30D7EF44D5C27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700255   (117226) от 16.02.2024
-
-LibreWolf 122.0.1-2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox является одним из лучших браузеров. Тем не менее некоторые пользователи с недоверием относятся ко встроенным в продукт Mozilla службам телеметрии.
-Многие пользователи предпочитают, чтобы браузер по умолчанию был настроен на максимальную конфиденциальность и безопасность, хотя Firefox все же предлагает мощные возможности для настройки.
-LibreWolf как раз решает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2683800F5FE29682C881BD2CF20DB45006EEEC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700465   (117227) от 16.02.2024
-
-Durbin - Screaming Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Made Of Metal
-02. Screaming Steel
-03. Where They Stand
-04. Hollows(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC197374A5065F19E430E1CC34F8A18F8209CEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700260   (117228) от 16.02.2024
-
-Topaz Photo AI 2 for Mac 2.3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2005 - 2024 Topaz Labs.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15366EA741AE80CC025D9E9A3F2091BFF8226AE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700418   (117229) от 16.02.2024
-
-CrossOver 24.0-b3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет CrossOver основан на программном коде Wine и представляет собой оболочку для запуска программ под Windows на платформе macOS. Кроме этого, он позволяет запускать игры, что для многих пользователей является решающим фактором при выборе операционной системы.
-Отметим, что вышеупомянутый Wine представляет собой программную прослойку, позволяющую выполнять Windows-приложения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2024 CodeWeaversПоддерживаемая ОС: macOS 10.15 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B8638FB72342641D3E1979C3D1EA5BA6C5DC60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700340   (117230) от 16.02.2024
-
-Газета | Моя грядка изобилия №1 (129) (январь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117230.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Моя грядка изобилия», газета профессиональных советов экологического органического живого земледелия ставит своей главной целью - помочь всем людям, имеющим несколько соток земли, выращивать на своих грядках максимум овощей, картофеля, ягод, фруктов, дабы обеспечить себя и своих близких витаминной продукцией без всякой «химии».Жанр: Садоводство, огородничествоИздательство: ИП М.И. Кузнецова (г.Уфа)Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F433464A08626218D81CB9E7F2C484D720D9D387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700374   (117231) от 16.02.2024
-
-WinSCP 6.3.0 Build 14793 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117231.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinSCP, это FTP и SFTP клиент с открытым исходным кодом для Windows систем, который поддерживает старый протокол SCP. Он обеспечивает безопасное передачу данных и файлов между разными компьютерами и позволяет использовать защищенный своего рода «туннель».
-При помощи WinSCP можно соединиться с сервером SSH (Secure Shell) по протоколу SFTP (SSH File Transfer Protocol) (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61F90C2373B7FD628059784CDB469FA1CC489B4
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1807753   (65100) от 20.07.2025
+
+Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterside
+02. Fallen Dreamer
+03. Life Painted Vermilion
+04. Monuments of Deception(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8233C35B025381BC0B16AACA14EBCE61BC99228B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807694   (65101) от 20.07.2025
 
 Burzum - Draugen - Rarities (2005) Compilation [FLAC|Lossless|image + .cue] <Black Metal, Ambient>
@@ -632,33 +659,6 @@ magnet:?xt=urn:btih:0D149FB2155ABCBF5281E2FB79EBEF10ABC23E2A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A459FD397BCF240C4345A270D3A126131A97D276
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807712   (65126) от 20.07.2025
-
-The Doobie Brothers - Walk This Road (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walk This Road (feat. Mavis Staples) (3:37)
-02.  Angels & Mercy (3:49)
-03.  Call Me (3:38)
-04.  Learn to Let Go (4:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8A1FE88728E8ABB9DF43E0D5B8E016E01963DF
 ```
 
 

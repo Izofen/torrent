@@ -1,3 +1,30 @@
+###  Публикация: 1780029   (70508) от 16.02.2025
+
+The Phil Woods Quintet - Mile High Jazz: Live In Denver (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for K.B. [10:40]
+02. Song for Sass [12:30]
+03. Harlem Nocturne [10:27]
+04. Godchild [7:12](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CF40EBE14BB05835F31E84331F1AE5C563B3EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780129   (70509) от 16.02.2025
 
 Downhome Kin - Soul in the South (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
@@ -635,33 +662,6 @@ ChopBeast от WA Production — это не просто еще один луп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA6DCF8F4ACCBFA2840877EC2FCE967104AD1319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780108   (70534) от 16.02.2025
-
-Jan Blomqvist - MUTE (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Unsaid [00:02:17]
-02. Underwater [00:04:06]
-03. Destination Lost [00:03:39]
-04. Midnight Sun [00:03:24](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EB08860CDA0C2BD25DA0BBA2CBC4256487C894
 ```
 
 

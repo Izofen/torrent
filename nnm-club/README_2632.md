@@ -1,3 +1,28 @@
+###  Публикация: 1785738   (69182) от 17.03.2025
+
+Шрифты - Andriy Dykun - MyFonts - Asterlight [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4CD701EF0AF01143EE47E585DB50154BAF0F68B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785712   (69183) от 17.03.2025
 
 Александр Данилин | Карты Таро (Цикл радиопередач). (2010) [MP3, Данилин Александр, Исхакова Галина, Исхаков Михаил, Киреева Ирина]
@@ -626,33 +651,6 @@ Vermilia - Karsikko (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Pagan, Bla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A62398263F3B45F9139C358197E4676201AA23B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785623   (69208) от 16.03.2025
-
-Dead Rabbitts, Judge & Jury, Escape the Fate - Redefined (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hardcore, Post-Hardcore, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Artificial Gods [2:59]
-02 - T/R/A/P/P/E/D [3:19]
-03 - Oxygen [3:16]
-04 - Crowned Clown [3:54](   Читать дальше...   )Жанр: Hardcore, Post-Hardcore, Alternative MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E51AA17BBAEA948DA16E44A6DBC9B37A42C85BF
 ```
 
 

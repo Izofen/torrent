@@ -1,3 +1,30 @@
+###  Публикация: 1806285   (65386) от 12.07.2025
+
+Steve Angello - Live @ Ibiza Global Festival, Spain (2025-07-05) [MP3|320 Kbps] <Tech House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia ft. Sting - Redlight (Intro Edit)
+02. Steve Angello & Sebastian Ingrosso - Tear The Club Up
+03. Magnificence & Corey James ft. Rion S - Time Machine
+04. Yaro vs. Travis Scott & Kendrick Lamar vs. Zombie Nation & James Hype - Deep vs. Goosebumps vs. Kernkraft 400 (Axwell Mashup)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C6DA02612573EDE5EDE3B2FA6A0E77AE0D667F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806286   (65387) от 12.07.2025
 
 Oliver Heldens - Live  @ Marquee Skydeck, The Edge NYC, United States (2025-06-28) [MP3|320 Kbps] <Techno, Melodic House>
@@ -639,33 +666,6 @@ magnet:?xt=urn:btih:B52E649E9BEF21D1B9E2A8729FB9733190754C49
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C9A0CBE0CE49C8506B1A1842364E686593914F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806047   (65412) от 10.07.2025
-
-Joe Pass Quartet - Live At The Encore Theatre (1964) 2017, Phono [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Spring [8:46]
-02. Some Time Ago [6:44]
-03. The Night Has a Thousand Eyes [7:15]
-04. Relaxin' at Camarillo [10:40](   Читать дальше...   )Жанр: Bop, Guitar JazzПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2797B9D97DA744B3D3D8259598E89FC07F2A4C6
 ```
 
 

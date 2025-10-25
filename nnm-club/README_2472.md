@@ -1,3 +1,30 @@
+###  Публикация: 1808144   (65022) от 22.07.2025
+
+Huckleberry - Lets Get Drunk And Huck (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  If Your A Viper (4:23)
+02.  Nobody Cares (3:38)
+03.  Icecream Man (3:10)
+04.  Potato Chips (3:48)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609734BE838F2619710FA7B825A61FAD4BE7CBAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808146   (65023) от 22.07.2025
 
 Jawbone - Jawbone II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -653,33 +680,6 @@ Unarchiver - Unzip RAR ZIP - простое в использовании при
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F5BD30235E9B060BC313A163018AE177A43F6E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808053   (65048) от 22.07.2025
-
-Styx - Circling From Above (2025) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто не в курсе: группа Styx образовалась в Chicago в 1972 году, поднявшись от выступлений в местных барах до статуса звёзд рока. Несмотря на перемены в составе за десятилетия - в частности, уход одного из основателей Dennis DeYoung в 1999 году - нынешний состав, в который входят Tommy Shaw, James JY Young, Lawrence Gowan, Chuck Panozzo, Ricky Phillips, Todd (   Читать дальше...   )01. Circling From Above (1:56)
-02. Build and Destroy (3:52)
-03. Michigan (3:03)
-04. King of Love (3:29)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1174F96EE8EABD1EEA8A5EDED907C7655D37DAB
 ```
 
 

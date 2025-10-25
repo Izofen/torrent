@@ -1,3 +1,27 @@
+###  Публикация: 415702   (89344) от 18.04.2012
+
+Подшивка журналов | National Geographic Traveler + Путеводители (2005-2012) [PDF] [Обновлено 18.04.2012]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9946E7AA6DB04698311E264E04FD460049F7A298
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483459   (89348) от 18.04.2012
 
 Тот ещё Карлосон! (2012) DVD9
@@ -666,39 +690,6 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ADC79C794BD30DE177A41FA9395277BA39188BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484864   (89408) от 19.04.2012
-
-VA - Сборник медленных хитов Vol.5 (2012) [MP3|320 kbps]<Pop | Rock | Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Braxton - And I Love You
-02. The Cardigans - Don't Blame Your Daughter(Diamonds)
-03. Charice - All That I Need To Survive
-04. Ricky Martin - Tal Vez
-05. Anggun - Undress Me
-06. Patricia Kaas - Je Ne Veux Plus Te Pardonner
-07. Bryan Adams - Nowhere Fast
-08. Eros Ramazzotti - Lacrime Di Gioventu
-09. Adriano Celentano - Ti Prendero
-10. Madonna - Live To Tell(   Читать дальше...   )2012Жанр: Pop | Rock | BluesПродолжительность: 06:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A401CB2A2F2DEF48803A0B909BD94C469231164
 ```
 
 

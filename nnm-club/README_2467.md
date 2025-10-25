@@ -1,3 +1,30 @@
+###  Публикация: 1808821   (64892) от 26.07.2025
+
+VA - Progressive Trance Awakening, Vol. 06 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trance Ensemble & AFTERUS - Dark (Radio Edit) [3:44]
+02. Dreaman - Time That Cannot Be Returned (Radio Mix) [5:56]
+03. Steve Sunrise - In My Dreams (Original Mix) [5:38]
+04. Eddie Lung - Afterglow (Extended Mix) [4:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4118EFC86BBA64330F811921CEAEF0DFF106913D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808728   (64893) от 26.07.2025
 
 Формула 1. Сезон 2025. Этап 13. Гран-при Бельгии. Спринт-квалификация (25.07.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
@@ -612,30 +639,6 @@ Cineastre - Hymnen an die Nacht (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F897A95F27FB7377D388E278C650EEAFB38A26DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808463   (64918) от 25.07.2025
-
-Анна Орлова | Лили (Дело 4). Золотой ребенок (2025) [MP3, Наталья Фролова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовь, деньги, власть – вот главные мотивы для убийства. Что, если смешать все три?Жанр: детективное фэнтези, городское фэнтезиИздательство: ИДДКПродолжительность: 04:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BFC7ED4C4724215E41461CE780F26EBF6743DA
 ```
 
 

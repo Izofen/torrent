@@ -1,3 +1,30 @@
+###  Публикация: 1781973   (70092) от 26.02.2025
+
+VA - YORK Mini Mix (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - On The Beach (Mauro Picotto's Extended CRW Remix) (06:40)
+02. DJ Sakin & Friends - Nomansland (David's Song) (Extended Mix) (05:56)
+03. DJ Sakin & Friends - Dragonfly (Extended Mix) (04:57)
+04. York - Fields Of Love (feat ATB - YORK dub Extended Mix) (07:20)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5410A45F18F527B50A6646CAB39A88BEB87370E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782075   (70093) от 26.02.2025
 
 Paul&Chucky - Letter From Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -631,33 +658,6 @@ Aktiv Grotesk — это сжатый шрифт без засечек, разр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7C7812ADD4BCC49726FF739CDB385E77808F852
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781964   (70118) от 26.02.2025
-
-VA - The Orient Collective: Caravan Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Kembali (6:18)
-02. Tibetania - Goodnight (6:24)
-03. DaDa Sound Project - Jatelo (6:07)
-04. Aglaia Rave - Tulpas (5:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70592D0F7272AEACD88AACDEA292539EDB301E96
 ```
 
 

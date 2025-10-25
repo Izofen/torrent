@@ -1,3 +1,193 @@
+###  Публикация: 1686547   (126187) от 24.12.2023
+
+Nebula Drag - Western Death (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crosses (00:04:49)
+02 - Sleazy Tapestry (00:03:45)
+03 - Failure (00:08:46)
+04 - Kneecap (00:03:48)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859DAF0F9AF3F7979000208362D9231C31E2B47A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686699   (126188) от 24.12.2023
+
+Satis - Despair (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Depression (00:10:13)
+02 - Anger (00:06:24)
+03 - Fear (00:10:23)
+04 - Grief (00:08:23)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:54
+bandcamp
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9DDDCE7F9695746C88F76874193BA46128ABF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686640   (126189) от 24.12.2023
+
+Smerdead - Зловещие истории (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Существо
+02.	Маньяк
+03.	Смерти лик
+04.	Некропсихопат(   Читать дальше...   )Жанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103EBEFF565737AC8A1E32394A4FB80C5E968594
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686614   (126190) от 24.12.2023
+
+Летальный Исход - Избыточная смертность (2022) [FLAC|Lossless|image + .cue] <Thrash Metal, Death Metal, Old School>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	На трон! (Intro)	00:52
+02.	Похороны бога	05:19
+03.	Самоистязание	04:54
+04.	Огонь	04:52(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Old SchoolПродолжительность: 00:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B885149864EF52A78717AE10400DFAE9EFFB20D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686838   (126191) от 24.12.2023
+
+Nova Arminius - Perish for the earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A coming storm [00:00:59]
+02. Between the empires [00:05:21]
+03. Demands [00:03:30]
+04. Escaping into the unknown [00:04:21](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4B2EDA8783C51DE346B48ED4E36C482B13D30B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686830   (126192) от 24.12.2023
+
+Inverno - Stasis (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove-Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollow [00:04:41]
+02. Insomnia [00:04:44]
+03. Martyrs [00:04:02]
+04. Lands [00:05:13](   Читать дальше...   )Жанр: Groove-Metal, MetalcoreПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C40BD37BC4B2667F1DC91F6980FDAA8D229D2A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686878   (126193) от 24.12.2023
+
+Relayer - Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Loss of Control (00:04:20)
+02 - Mystery Woman (00:05:19)
+03 - Woman in Black (00:05:16)
+04 - Flying High (00:03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134C0D1F3C631479F4396CD878D69373D3341584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686948   (126194) от 24.12.2023
 
 Disperser CA - Critical Moment of Agony (2023) [FLAC|Lossless|WEB-DL|tracks] <Metallic Hardcore>
@@ -497,192 +687,6 @@ Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09A839AF655398EC7DAD370C1825C9D9F1A2C9E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686908   (126213) от 24.12.2023
-
-Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pack Up (00:03:52)
-02 - Come In, It's All For Free (00:02:55)
-03 - Brown Hair (00:03:28)
-04 - Dance On Little Beauty (00:02:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD25F85FBD24463DB3CD1E8E3EB830CA39AF2B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686739   (126214) от 24.12.2023
-
-R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - World Leader Pretend (live) [00:04:19]
-02 - Half A World Away (live) [00:03:18]
-03 - Disturbance At The Heron House (live) [00:03:28]
-04 - Radio Song (live) [00:04:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686469   (126215) от 24.12.2023
-
-Футбол. Клубный ЧМ. Финал. Манчестер Сити (Англия) - Флуминенсе (Бразилия) (22.12.2023) HDTVRip [H.264/720p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Клубный ЧМ. Финал. Манчестер Сити (Англия) - Флуминенсе (Бразилия) (22.12.2023)
-СУДЬЯ Марциняк Шимон (Плоцк, Польша)
-СТАДИОН «имени короля Абдаллы» (Джидда)Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8349DEC7AC1591EC18D49C73CB7413EE9B9A92E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686495   (126216) от 24.12.2023
-
-[Amatory] - ВПС 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Восковый дождь 2023 [00:02:18]
-02. Страница VI 2023 [00:03:56]
-03. Осколки 2023 [00:03:58]
-04. Вечно прячется судьба 2023 [00:03:16](   Читать дальше...   )Жанр: Metalcore, Nu Metal, Alternative RockПродолжительность: 00:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F2A035F8B271C794171AA7F72377818DD342C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686995   (126217) от 24.12.2023
-
-Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Helsinki Ice Hall 2019 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under The Grass Clover (4:04)
-02. Platitudes And Barren Words (4:21)
-03. In Your Face (4:07)
-04. Shovel Knockout (4:13)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C75BD9DEDCA78CCD79501DA3E2A01DD18F9F387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686907   (126218) от 24.12.2023
-
-Neil Levin - Cosmic Blues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Worthwhile (4:04)
-02. Gone Away Prelude (0:19)
-03. Gone Away (2:45)
-04. Roses On The Grave (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686757   (126219) от 24.12.2023
-
-Джером К. Джером | Скряга из Саардама и другие рассказы (2023) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена (Английская литература).
-Джером Клапка Джером (1859–1927) – плодовитый романист, эссеист, автор коротких рассказов, в нашей стране известен преимущественно благодаря своей знаменитой повести «Трое в лодке, не считая собаки». За первые двадцать лет было продано более миллиона экземпляров книги по всему миру. Также, книга легла в (   Читать дальше...   )Жанр: Издательский дом «Союз», Покидышевъ и сыновьяИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 02:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0759F420B8DEA5F9D60143DE7DE76823A19E2E73
 ```
 
 

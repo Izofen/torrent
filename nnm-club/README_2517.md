@@ -1,3 +1,30 @@
+###  Публикация: 1801760   (66192) от 12.06.2025
+
+The Cure - Mixes Of A Lost World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Can Never Say Goodbye (Paul Oakenfold "Cinematic" Remix) [4:16]
+02 - Endsong (Orbital Remix) [6:24]
+03 - Drone:Nodrone (Daniel Avery Remix) [5:21]
+04 - All I Ever Am (meera remix) [8:03](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, RockПродолжительность: 02:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CDFD4804D00884D079514356989A617A175EBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801725   (66193) от 12.06.2025
 
 Magnetic Gardener - Time Ain't My Friend (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -645,30 +672,6 @@ Tim Hardin Trio - Light Intelligence Series 2 (1992) Golden Penguin [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F693E9D6891FB6415125955B61D5287EDA6629D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801181   (66218) от 08.06.2025
-
-MotoGP. Этап 08 из 22. Гран-при Арагона. Гонка (08.06.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66218.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 июня 2025, воскресенье. 15:00 МСК этап 8, Альканьис. Гран-при Арагона. Гонка (23 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD6B9DE3F8EBA54AE833B05B0DEB73AD90A477B
 ```
 
 

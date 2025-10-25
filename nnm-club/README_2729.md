@@ -1,3 +1,30 @@
+###  Публикация: 1773658   (71704) от 16.01.2025
+
+Tiger Rose feat. B. Chambille - Tiger Rose & B. Chambille (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Never Let Me Go (3:29)
+02.  I'm Good so Far (4:08)
+03.  Going Away (4:37)
+04.  What a Dog Does (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE369D3F60DE98B82F88882BCED9AD930F68FE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773557   (71705) от 16.01.2025
 
 DGM - Endless (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -661,33 +688,6 @@ Marius M.21 - Dreams (2016) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F8DDC4336537460477EE2A918A2B8EDC2911E20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772912   (71730) от 12.01.2025
-
-Olivia Rox - Super Cool Songs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Changes [00:03:34]
-02. Bubble Pop [00:03:03]
-03. Ignite [00:02:52]
-04. Pheromones [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C83D65E9FFA8DF49E2D29E8CF294297D143339
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1802898   (65854) от 22.06.2025
+
+VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alison Moyet - That Ole Devil Called Love (3:06)
+02. Cyndi Lauper - Time After Time (4:04)
+03. Des’ree - I'm Kissing You (4:54)
+04. Toni Braxton - Un-Break My Heart (4:31)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFD4473443CB9AF0D93BBF754024E22242E73DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803232   (65855) от 22.06.2025
 
 Бессмертный гарнизон (1956) DVD5
@@ -616,30 +643,6 @@ magnet:?xt=urn:btih:4FF762D7B8CC23112689163C30580AF8CAEFCEF5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2643382F3E418D059E82BFD4C0A6FDB6C01AFE0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803239   (65880) от 22.06.2025
-
-Текстуры - CCpreset - Envato - 40 White Textures HQ - JBC9VTS [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 40 белых текстур с высоким разрешением.Формат: JPGРазрешение файлов: 6720 x 4480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112AB9CF1DD4D732A05A3A8D91B901F5FFA07C41
 ```
 
 

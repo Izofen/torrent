@@ -1,3 +1,102 @@
+###  Публикация: 466563   (96499) от 13.03.2012
+
+Arminstel - Trance Evolution vol.71 (11.03.2012) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Alwacker - Sunrise (Emotional Mix)
+ 02. Marasin Sanya - The Beautiful Melody Of The Night (Original Mix)
+ 03. Rene Ablaze & Tech Trek - Naranja (Original Mix)
+ 04. Ehren Stowers - Desire (Original Mix)
+ 05. Starline - Perfect Spring (Uplifting Trance 2012)
+ 06. Azima - Mousewille (Original Mix)
+ 07. Azima - The Saturn (Original Mix)
+ 08. N-Gate - Be Fire (Original Mix)
+ 09. MAXIMA - Solar Unity (Original Mix)
+ 10. Perfect Sound - The Cloudless (Original Mix)(   Читать дальше...   )11.03.2012Жанр: Uplifting TranceПродолжительность: 02:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D013BFE333FF7BE5EF9AB4D5EA6705F581718A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467000   (96500) от 13.03.2012
+
+VA - 538 Dance Smash 2011 Vol.4 (2011) [MP3|320 кб/с]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lucenzo feat. Don Omar - Danza Kuduro
+02 - Elena - Midnight Sun
+03 - Pitbull feat. Ne-Yo,Afrojack & Nayer - Give Me Everything
+04 - Alexandra Stan - Get Back (asap)
+05 - R.I.O. - Miss Sunshine
+06 - Avicii - Fade Into Darkness
+07 - Sak Noel - Loca People
+08 - Nicky Romero & Mitch Crown - Schizophrenic
+09 - Inna feat. Flo Rida - Club Rocker
+10 - Benny Benassi feat. Gary Go - Cinema2011Жанр: DanceПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D53EF58A0D3E61A11C7F6FC45FA0A4E173BD71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467517   (96504) от 13.03.2012
+
+VA - Plexus Relax Sector - Bleak Winter Wailing 2 (tracks + mix) (2012) [MP3|320 кб/с]<Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dissapocrifia - Algor Prelude c-moll (2:47)
+ 02. jdoblom - Грибной Суп (7:39)
+ 03. Simiram - Hinokio (5:54)
+ 04. NOVA ILLUSION & Fibres - DOT (6:18)
+ 05. sir cond - The Soul Labyrinth (3:28)
+ 06. DJ Ger-Man - Before A Choice (5:07)
+ 07. Eguana - On Ruins Of Mind (Easy Drums Version) (6:48)
+ 08. Radio Silence - Easy Snowfalling Will Happen At This Night (5:33)
+ 09. Index-1 - Love Story (4:20)
+ 10. Романтик - Прощание С Людмилой (2:42)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B6E2D3EA4452F70627BA1AE6510EAD9CD4DFD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467386   (96505) от 13.03.2012
 
 VA - Dub Step vol.2 from AGR (2012) [MP3|256 kbps]<Dub Step>
@@ -674,79 +773,6 @@ VA - Dub Step vol.4 from AGR (2012) [MP3|256 kbps]<Dub Step>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF77B4070BF03780ACC0F8F65DAD390B3C6E8170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467748   (96635) от 14.03.2012
-
-Исола: 13я личность / Isola: Tajuu jinkaku shоjo (2000) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96635.jpg" />
-</div>
-
-
-###  Подробнее
-
-История этого фильма повествует о девушке-волонтере Юкаре Камо, которая прибыла из Токио, чтобы помочь пострадавшим от жуткого землятресения. Однако причина не только в желании помочь людям, но и в том, что Юкаре отчаянно ищет себя: всю жизнь чувствуя себя изгоем из-за своего дара телепатии, как ей кажется бесполезного...потому что, как бы она не хотела, помогать людям у нее не получается.
-Недалеко от центра Юкаре встречает странную девочку, которая оказывается психически больной. Почувствовав духовную близость к несчастной отверженной и всеми гонимой Чихиро, она всеми силами старается выяснить причину ее состояния и помочь ей. Оказывается, что в девушке живет и постоянно сменяется 13 личностей. Все они - это разные аспекты ее состояний, отношения к себе и к людям. Все, но не 13я из них. Она назвала ее Исолой - персонажем из Легенд луны и дождя Угетсу Моногатари - мстительным призраком ревнивой женщины, который явно выделяется среди остальных проявлений девочки и кажется чуждым, лишним. Юкаре, движимая желанием (   Читать дальше...   )Жанр: Триллер, Драма, УжасыРежиссер: Тошиюки МизутаниАктеры: Йошино Кимура,  Ю Куросава,  Кен Ишигуро,  Макико Ватанабе,  Сатоми Тезука,  Сусуму Тэрадзима,  Казухиро Ямаджи,  Хидэо Мурота,  Shirô Shimomoto,  Yôzaburô ItôПеревод: Одноголосый закадровыйПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F1BCF23A6C31E35BD8E79B6D0451D783C21C6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467951   (96651) от 14.03.2012
-
-Неудачники (1983) TVRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для детей. История благородного пса-спортсмена.Жанр: ДетскийРежиссер: Александр ДавыдовПродолжительность: 00:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2139B8314781CA2C7C97B82EDEC090C22DC850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467643   (96653) от 14.03.2012
-
-Эрл Стэнли Гарднер | Дело о секрете падчерицы [1994] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:1994Жанр: детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DD22FEDC5E5F2CB5941727975F5127CE2FE061
 ```
 
 

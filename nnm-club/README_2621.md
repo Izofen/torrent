@@ -1,3 +1,28 @@
+###  Публикация: 1786833   (68896) от 22.03.2025
+
+Forsaken - Virtues of Sanctity (1993) (EP) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68896.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. Where Angels Have Fallen (06:45)
+B. Confessing My Desolation (06:52)Жанр: Epic Doom MetalПродолжительность: 00:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9FF58432445197438227242571790583F28E23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786845   (68897) от 22.03.2025
 
 Forsaken - Tales of Doom and Woe (2010) (Split) [FLAC|24/96|image + .cue|Vinyl-Rip] <Epic Doom Metal>
@@ -643,30 +668,6 @@ VA - Milk & Sugar Miami Sessions 2025 (2025) [MP3|320 Kbps] <House, Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:223289C249B69B4B7455EC02B6717D652865C460
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786918   (68922) от 22.03.2025
-
-Растровый клипарт - Dealjumbo.com - Deeezy - Terminator - Free 3D Alphabet - 96760 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит-латиница под жидкий металл.Формат: PNGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2978659ED497DA00D4E5E16B0B528C28C048E15
 ```
 
 

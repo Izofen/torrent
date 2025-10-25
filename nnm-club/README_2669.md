@@ -1,3 +1,27 @@
+###  Публикация: 1781807   (70144) от 25.02.2025
+
+Шрифты - Creative Market - Rustica Plains - Handmade Sans Serif - 290897235 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rustica Plains — это шрифт без засечек ручной работы, призванный придать любому проекту нотку современной элегантности. Благодаря своему уникальному рукописному стилю этот шрифт идеально подходит для брендинга, логотипов, социальных сетей, плакатов, приглашений и многого другого. Его чистый, но деревенский вид обеспечивает как читабельность, так и эстетическую привлекательность, (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C118A7CD9898415285CB6632BC3B4735BE50EFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781792   (70145) от 25.02.2025
 
 Журнал | Профиль №7-8 (248) (февраль 2025) [PDF]
@@ -641,33 +665,6 @@ magnet:?xt=urn:btih:B0B40709FBB7B4652BCBAD616A06B71A39D86981
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1C021568EB06340BBF8DF1B186CE01A2130446B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781629   (70170) от 24.02.2025
-
-Joanie Sommers & Laurindo Almeida - Softly, The Brazilian Sound (1964) 2013, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation [3:01]
-02. Dear Heart [3:19]
-03. Watching the World Go By [3:07]
-04. Quiet Nights [2:51](   Читать дальше...   )Жанр: Vocal Jazz, Brazilian Jazz, Bossa NovaПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EC9F680441C492DA0AAEF57666ED0BC1217ECF
 ```
 
 

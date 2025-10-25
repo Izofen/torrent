@@ -1,3 +1,97 @@
+###  Публикация: 481467   (99406) от 12.04.2012
+
+VA - Record Trancemission vol.1 (Mixed by DJ Feel) (29.03.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poshout – Melorum (Original Mix)
+ 02. DJ Feel feat. Melissa Loretta – 4 U 2 C (Original Mix)
+ 03. Magic Sound – Infinity (Original Mix)
+ 04. The Airstatic – Christle (Original Mix)
+ 05. Sunbird – Tomorrow (Original Mix)
+ 06. Timur Adagio – Escape (Original Mix)
+ 07. Erick Strong – Forever Loved
+ 08. DJ Feel, Matisse & Sadko – A Day To Remember (Vadim Shantor Remix)
+ 09. D-Mad – No Pasaran (Original Mix)
+ 10. Nianaro – Citadel (Original Mix)(   Читать дальше...   )29.03.2012Жанр: TranceПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF0F7B18045B897E558A55114517E05149FA402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481808   (99410) от 12.04.2012
+
+Mindwave - Concept Of Freedom (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:10)
+02. Light Of Loss (7:49)
+03. Simple Moves (9:04)
+04. Guiding Voice (8:40)
+05. Within You (8:22)
+06. Levity (9:22)
+07. New Day (7:40)
+08. Underwater (8:46)
+09. Concept Of Freedom (7:47)
+10. Deepest Thoughts (5:38)2012Жанр: Psychedelic / ProgressiveПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234497A2A5F2D62B3F0D2F4F5C5D92A6C0053C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481904   (99413) от 12.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 33
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99413.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers Pack 33 
+Название:  Girls Desktop Wallpapers Pack 33 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 5120х3413
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC797D37FE2FC8AEEDE784D00542F405F309F66E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481790   (99414) от 12.04.2012
 
 [Wallpapers] Full HD Wallpapers Pack 12
@@ -627,91 +721,6 @@ magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E308BB5B9E1E119EB2B872DF9445FD064ACB77C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482435   (99474) от 13.04.2012
-
-Журнал | 5 колесо №3 (март 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99474.jpg" />
-</div>
-
-
-###  Подробнее
-
-«5 колесо» - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей. В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482712   (99475) от 13.04.2012
-
-[Wallpapers] HD Wallpapers №12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99475.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №12
-Название: HD Wallpapers №12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72ED6EFC203C01ADF00E1A5C77911BCF8D1D6B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482550   (99476) от 13.04.2012
-
-Derelict - Perpetuation (2012) [MP3|~295 кб/с]<Technical Progressive Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perpetuation 3:05
- 02. Spoils Of War 3:37
- 03. Expiry 2:55
- 04. Digital Birthright 3:25
- 05. Intricate Decay 4:38
- 06. Olympic 3:26
- 07. Ergogenic 3:32
- 08. Recreated 3:06
- 09. Yours To Surpass 2:34
- 10. Shackles Of Indoctrination 4:48(   Читать дальше...   )2012Жанр: Technical Progressive DeathПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E182DD163A8DBAA74A81BC0736B98A107DA8F60
 ```
 
 

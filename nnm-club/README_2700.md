@@ -1,3 +1,30 @@
+###  Публикация: 1777800   (70950) от 07.02.2025
+
+VA - Armin van Buuren - A State Of Trance 1211 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JOA – Missing Part Of Me
+02. Lycii – Alone
+03. Matt Fax – Vision
+04. Jerome Isma-Ae & JES – Come Alive(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8F92E19ADABAB6F6C24A82F4A1FF5BB9CD3DC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777759   (70951) от 07.02.2025
 
 Шрифты - Belluto Typewriter by Stiggy & Sands [OTF, TTF]
@@ -630,30 +657,6 @@ magnet:?xt=urn:btih:E5B3DD5FEF34077C3F5F002651E2C3063946899F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:016D696A3715CEC961A81ED08DB31557F765417E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777882   (70976) от 07.02.2025
-
-Шрифты - EFCO Growers by Ilham Herry [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Низкоконтрастный плоский шрифт без засечек с открытыми апертурами, вдохновленный этикетками винтажных фруктовых ящиков. Этот шрифт поставляется с 21 статическим шрифтом и 1 переменным шрифтом с осями веса и ширины. Функции OpenType поддерживают стилистические альтернативы, табличные цифры, надстрочные цифры и дроби. Переменная толщина и ширина позволяют без труда (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8E19B45E9874A0474DB942CDAB577AD09B86D7
 ```
 
 

@@ -1,3 +1,93 @@
+###  Публикация: 458638   (94763) от 27.02.2012
+
+VA - Psytrance Frequency (2012) [MP3|320 кб/с]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synesis - Unknown Language 08:10
+ 02. Pulsar vs. Thaihanu - Baktun 06:55
+ 03. Imox Maya - Sumerian Vibes 08:43
+ 04. Tech Twist - Open Season 06:53
+ 05. Tikal - Meditation 10:05
+ 06. Raymi Pastor vs. Psytor - The World is Crying 08:49
+ 07. Imox Maya - Ananda Tribe (Shan K Remix) 07:40
+ 08. Prototype vs. Reactor - Wild West 07:26
+ 09. Imox Maya - Psyara 07:33
+ 10. Ctrlz3ta vs. K´Uh Wayak - Kukulkan 06:552012Жанр: Psychedelic / Full OnПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8956C2550E01AED77C87B53CE6585531D4BECC4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458506   (94764) от 27.02.2012
+
+[Wallpapers] Money
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94764.jpg" />
+</div>
+
+
+###  Подробнее
+
+95 картинок на тему денег, золота итд
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80F73F75ED091AF45A09413127E93808AB951E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458632   (94768) от 27.02.2012
+
+Kuba - Random Precision (2012) [MP3|320 кб/с]<Ambient, Downbeat, Lounge, Dub>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Trustafarian (vocals by Jimi Learmonth) 04:27
+ 02. Out Of The Box 02:53
+ 03. Hole In My Sitar 04:10
+ 04. Dub Mythology 05:55
+ 05. Sunset Smile 04:22
+ 06. On The Spot 02:53
+ 07. Is This Stuff Real 05:56
+ 08. Parc Guell 05:37
+ 09. Little Mountain 05:32
+ 10. Evaluation (rmx) 05:04(   Читать дальше...   )2012Жанр: Ambient, Downbeat, Lounge, DubПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D86DCF525C480877957C3523F1569EE38B74A7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457281   (94773) от 27.02.2012
 
 [Wallpapers] Heather Graham/Хизер Грэм
@@ -653,105 +743,6 @@ VA - House Vip (25.02.2012) [MP3|320 кб/с]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E1799CA65CE19D1D3E13EDBA752D49489D1798D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458765   (94914) от 29.02.2012
-
-Alexandre Mospan - tootamixa radio radioshow (2011) [MP3|320 кб/с]<Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94914.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deepfunk - Monday
-2. Underset-Berlin (Original Mix)
-3. Gabriel Cazali-Altas Expectativas
-4. Felix Dofenbeck - Me and You
-5. Shant - Garinet (Juan Deminicis Remix)
-6. Kassey Voorn - A Rock.
-7. kassey voorn - garrys kitty
-8. Jody Wisternoff - Vintage
-9. Tom Glass - Time
-10. kobb-sea2011Жанр: Progressive HouseПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712960474C88D602E5F9BDE29949336E9C655EB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460005   (94916) от 29.02.2012
-
-VA - Mystic India (Vol.3) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Asher - Temple Gates (08:06)
-02. Tulku - Shanti Puja (06:37)
-03. Galactic Agents - Buddha Of Compassion (05:08)
-04. Chinmaya Dunster - Chidambaram (05:28)
-05. Tya - The Mosque (06:12)
-06. James Asher - Pemulwuy Returns (05:47)
-07. Shamiana - Buddha In Town (05:34)
-08. Bhakta - In Between Moments (04:57)
-09. Chinmaya Dunster - Purnima Namaskar (08:33)
-10. Namaste - Aum Shree Ram (05:50)(   Читать дальше...   )2003Жанр: New Age, Meditative, RelaxПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D976CBA82E803930D23606F6D569659EE7C316E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460011   (94941) от 29.02.2012
-
-VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Pruess - Waiting For The Beloved (07:28)
-02. Ranga - Phoenix (04:33)
-03. Deliter - Yellow Mandala (08:36)
-04. Bhakta - Third Eye (06:41)
-05. Chinmaya Dunster - Hanuman In New Delhi (04:15)
-06. Rasa - Jaya Radha (08:28)
-07. Niladri Kumar - Dhun (Raga Bhairavi) (09:22)
-08. Tanmoy Bose - Communion (04:04)
-09. Chinmaya Dunster & The Celtic Ragas Band - Wedding In Kotree (05:09)
-10. Galactic Agents - Kailash Baba (04:52)(   Читать дальше...   )2004Жанр: New Age, Meditative, RelaxПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
 ```
 
 

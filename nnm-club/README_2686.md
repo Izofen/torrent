@@ -1,3 +1,27 @@
+###  Публикация: 1779831   (70586) от 15.02.2025
+
+Шрифты - MyFonts - Trade Gothic® [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trade Gothic был разработан Джексоном Берком между 1948 и 1960 годами для Linotype. В гротескном стиле девятнадцатого века, как и News Gothic, Trade Gothic имеет большую высоту x. Trade Gothic с его сжатыми начертаниями является классическим дизайном для газетной работы, особенно для заголовков и рубричной рекламы. Сжатые версии увеличивают универсальность шрифта, (   Читать дальше...   )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACCE3F7E27C5D2AD9CBC1526F66A60827B3D87F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779924   (70587) от 15.02.2025
 
 Александр Куприн | Яма (2023) [MP3, Татьяна Бондаренко]
@@ -611,33 +635,6 @@ ExtraDisks - это набор инструментов для создания 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1DB7477B19AFF7A8F043088BE1771AE73F11BD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779881   (70612) от 15.02.2025
-
-VA - House of the past years (2025) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70612.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Worakls - Good Night My Love (Joachim Pastor Remix) (6:39)
-002. Tosel & Hale, Heavy Pins feat. Veselina Popova - Read The Signs (Radio Edit) (3:32)
-003. Tensnake feat. Fiora - See Right Through (4:28)
-004. Stefan Gruenwald, Lookee feat. Pearl Andersson - Wonderful Life (Radio Edit) (3:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 09:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E38F660098E8C612B2E381B8BCAB824B2DB0760
 ```
 
 

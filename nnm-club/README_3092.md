@@ -1,3 +1,84 @@
+###  Публикация: 479625   (99043) от 08.04.2012
+
+Биатлон. "Гонка чемпионов" в Москве. Смешанная эстафета (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смешанная эстафета на "Гонке Чемпионов" в Москве.Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3E82E8B47825F03D6E2BDB76BBA57C72046C0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478236   (99044) от 08.04.2012
+
+Твердый Мики (Полумягкие) - Джаст Мэри (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Попросту
+02. Ты понял?
+03. Решат фит magic
+04. Дилижанс фит nevponyatkah, kroog
+05. Спасибо тебе
+06. Громче фит СНЗЗ, kroog
+07. Релакс
+08. В белом
+09. В крыму фит magic
+10. Забываю фит ТГК(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1470F49DB7A1510234BDB60791E7F13C7CDEC40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478932   (99045) от 08.04.2012
+
+[Wallpapers] Windows 8_ Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая подборка обоев с логотипом windows 8.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8884846BC893584AF8774E3724D6B64BCC77831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480279   (99048) от 09.04.2012
 
 VA - Танцевальное Движжение 50/50 (2012) [MP3|224 kbps]<Club | Dance>
@@ -663,99 +744,6 @@ magnet:?xt=urn:btih:928FC58CC6928138AEC686B0D19DB0660E993296
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF8E8483CFB3E46DAA8D37B5B772522993AFA1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479256   (99089) от 09.04.2012
-
-VA - Dance Charts Арлекина. Часть 1 (2012) [MP3|256 kbps]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99089.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Michel Telo - Ai Se Eu Te Pego (Elkana pAz & Gili Kaneti Remix)
-002 Simon from Deeo Divas feat. Goody - Disco Dancer (Simon Original Radio Mix)
-003 Modana & Carlprit - Party Crash (Video Mix)
-004 Kim Appleby - The World Today Is a Mess
-005 1950 and the Chu Chi Girls feat. Hayley Jo - The Chu Chi Sway (Radio Mix)
-006 Frisco Disco feat. Ski - One Way Ticket (Radio Version)
-007 Tom Boxer & Morena feat. Meital De Razon - Voulez-Vous (Radio Edit)
-008 Mohombi - In Your Head (High Level Radio Edit)
-009 Kittens - I'm In Love (La La La) (Radio Edit)
-010 Mishelle feat. Randi - It Feels So Good (Radio Edit)(   Читать дальше...   )2012Жанр: DanceПродолжительность: 05:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111D65FD74386165FCBD63EC1A9A52F9AE8E8DEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480741   (99091) от 09.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99091.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers №11
-Название: Girls Desktop Wallpapers №11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E9EAF1B5D2763916101D2308B06CC5F713FD32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480027   (99092) от 09.04.2012
-
-VA - Весенняя танzплощадка 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99092.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Любовные Истории - Без Тебя
-002 Nadia Aali - Rapture (Willy William Remix)
-004 Aelyn - Believe In Us (Chillout Mix)
-005 Светлана Лобода - На Свете
-006 Electric Giant Beatz Feat Michelle Williams - On The Run (Soul Seekerz Radio Edit)
-007 Eugene Star - Electro Pavlik(Mem Mix)
-008 Vali G & Mariana Moculescu - Crazy For U (Radio Edit)
-009 Чай Вдвоем - Новогодний Поцелуй (Alex Dea Radio Edit 2012)
-010 Scotty - Sundown (Radio Edit)2012Жанр: PopПродолжительность: 06:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66453E3C9C83DBF9C9456A747C4EE2B24DD01F5
 ```
 
 

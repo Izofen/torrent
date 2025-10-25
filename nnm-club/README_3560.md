@@ -1,3 +1,186 @@
+###  Публикация: 1708984   (112935) от 22.03.2024
+
+Firefox Browser 124.0.1 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE592973040A74A64BBAFCBB82D605BE483E208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708818   (112936) от 22.03.2024
+
+Steve Emm - Framework (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Bullet (3:25)
+02. Freewheelin' (3:01)
+03. Class Of '84 (3:48)
+04. Shining Heart (3:34)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA785C8B65D5B2B3EEE1AA70B54BC8E78760B947
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708786   (112937) от 22.03.2024
+
+VA - Gym Beast Mode Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hail The Villain - Runaway (3:11)
+02. Billy Talent - Try Honesty (4:15)
+03. Linkin Park - Numb (3:07)
+04. Green Day - The American Dream Is Killing Me (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 02:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B34CBAC36B04C813872335A261174F67054C2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708830   (112938) от 22.03.2024
+
+Gossip - Real Power (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Act of God
+02 – Real Power
+03 – Don’t Be Afraid
+04 – Crazy Again(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD90E37DCEE003E899660282B06BB8780036B2D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708973   (112939) от 22.03.2024
+
+О. Генри | Короли и капуста (2004) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Антология юмора и сатиры.
+О. Генри (O. Henry) (настоящее имя Уильям Сидни Портер, Porter) (1862–1910) – американский писатель юморист, непревзойденный мастер короткого рассказа.
+«Короли и капуста» (1904) – сатирическая притча об авантюрах американской жизни. Книга поражает занимательным сюжетом и парадоксально неожиданной развязкой. В ней есть всё – «...и (   Читать дальше...   )Жанр: Зарубежная литература, классика, юмор, притчаИздательство: Студия «АРДИС»Продолжительность: 08:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF986A8488200ABD5CC962B2631548D1A493118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708857   (112940) от 22.03.2024
+
+Romantic Love Songs Academy - Rendezvous at Dawn: Sultry Jazz and Romantic Mood (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Café de Luxe (4:11)
+02. Soft and Slow (3:33)
+03. Midnight Easy Listening (3:35)
+04. I Love Sax (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD8C313E091487E972B2EFD2F757F625B7FEF74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708961   (112941) от 22.03.2024
+
+RAW Power 3.4.20 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2016-20213 Gentlemen Coders, LLC1Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C351F6974D1AE4A1F0A5BDAB369DCAFDE3C0C61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708723   (112942) от 22.03.2024
 
 QOwnNotes 24.3.4 Portable [Multi/Ru]
@@ -473,190 +656,6 @@ StopTheMadness — это расширение для браузеров Safari,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5FE34F47D26EAEFE47F1A9646979E6B2E81BA7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708769   (112961) от 22.03.2024
-
-Слот - Мэшап (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112961.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Танцуй, Вселенная (feat. 7000$)
-2. Марсово поле (feat. Нейромонах Феофан)
-3. Северный Слот (feat. Северный Флот)
-4. Жесть и чернуха (feat. ТАйМСКВЕР & Гарри Топор)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8282997BC790D5AEB6C59A8AF667EB9F59806780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708866   (112962) от 22.03.2024
-
-Юрий Лоза - Что сказано, то сказано (1988) [FLAC 24/192|Lossless|tracks] <Pop-Rock, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Что сказано, то сказано
-02. Не принимай
-03. Сто часов(   Читать дальше...   )Жанр: Pop-Rock, ChansonПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485D5CFCAE55F4DDC51CA3FF95C540DC1FEAF208
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708946   (112963) от 22.03.2024
-
-Александр Беляев | Электрический слуга (Сезам, откройся!!!) (2021) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ "Электрический слуга" известен под другим названием "Сезам, откройся!!!"
-К состоятельному пожилому человеку обращается представитель компании, распространяющий различные устройства, вроде дверей, открывающихся на голос или роботов, помогающих по дому...но так ли всё гладко в этой истории с искусственными созданиями?Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E5EFF83B0561C42FD7AFBCEA89689F8F629FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708945   (112964) от 22.03.2024
-
-Brave Browser 1.64.109 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3A6AF91163D4A7659EC39DCD1B8026237DE71B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708981   (112965) от 22.03.2024
-
-David Guetta - Live @ The Monolith Al Ula, Saudi Arabia (2024-03-20) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U2 - With Or Without You (David Guetta Remix)
-02. Township Rebellion - Luminous w/New Order - Blue Monday (Acappella)
-03. Volaris - Don't You Know w/Röyksopp ft. Karin Dreijer Andersson - What Else Is There (Acappella)
-04. David Guetta & MORTEN - The Truth(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788FD0F530B388E4B7E75C3273FC8AD0C886AA2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708989   (112966) от 22.03.2024
-
-Arvo Part - Alina (1999) [MP3|320 Kbps] <Classical, Contemporary>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiegel im Spiegel (for violin and piano)
-02. Fur Alina
-03. Spiegel im Spiegel (for cello and piano)
-04. Fur Alina (reprise)(   Читать дальше...   )Жанр: Classical, ContemporaryПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE96C7476DB5F53743EB6E441E1358502CE51C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708882   (112967) от 22.03.2024
-
-Sensual Lounge Music Universe - Sensuality in the Air: Romantic and Erotic Jazz Collection (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexy & Noir (3:29)
-02. Music for Quiet Moments (4:28)
-03. Jazz Mood – Erotic Dance (4:03)
-04. Sentimental Sounds (3:50)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C735EA5E047B56216B68BD232BA920A1155D45D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1793406   (67518) от 24.04.2025
+
+Yasuhiro Kohno - Princess Sayaka (1995) ASCAP Record [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Leaves [16:42]
+02. Misty [9:12]
+03. In a Sentimental Mood [9:27]
+04. Softly, as in a Morning Sunrise [6:51](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05FE7E70EFFF8EF1661F29C38AD31C467C8DAA60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793477   (67519) от 24.04.2025
 
 Хэм и маршрутка / Ham and the Jitney Bus (1915) WEBRip
@@ -621,33 +648,6 @@ magnet:?xt=urn:btih:131E38DBE378D181481470CAEBBF324CA780FF69
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05570A3ECF93E8CE0F4F0932DE7DB219838A38C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791925   (67544) от 23.04.2025
-
-Светлана Калачёва, Александр Ганичев - Песни русской души (2025) [MP3|320 Kbps] <Фолк>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Песни русской души [00:04:01]
-02 - Сердце матери [00:03:56]
-03 - Земля и люди [00:03:42]
-04 - Дочки матери [00:03:36](   Читать дальше...   )Жанр: ФолкПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8845381C81404F61255A48B4FEB21CCC9BC8665
 ```
 
 

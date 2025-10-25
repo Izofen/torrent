@@ -1,3 +1,35 @@
+###  Публикация: 455461   (93935) от 20.02.2012
+
+VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.M.S - Pray For Japan 06:45
+ 02. 1200 Micrograms - Let It Roll 06:59
+ 03. Bizzare Contact - Vibrations 07:56
+ 04. Space Cat - In The Air 07:13
+ 05. Dynamic vs. Melicia - Go Back 07:03
+ 06. Perplex vs. Intersys - Dirty Bytes 07:20
+ 07. Black & White - Transition Mode 06:51
+ 08. X-Noise - Streptococcus A 07:03
+ 09. Nick Callaghan & Will Atkinson - Blizzard (Liquid Soul Remix) 08:122011Жанр: Psychedelic / Full OnПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332D0D12E0F1F8D67D5884BB69D8F7D0E3A32193
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455183   (93936) от 20.02.2012
 
 Trance Therapy - Volume 7 (2012) [MP3|320 kbps]<Trance>
@@ -763,39 +795,6 @@ VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FFA317FE5F68BFF2A189601E73B52958F521026
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456118   (94129) от 22.02.2012
-
-Paul van Dyk - Vonyc Sessions 286 (17.02.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paul van Dyk in the mix:
- 01. Cosmic Gate & Arnej - Sometimes They Come Back for More (Alex O'Rion Bigger Room Mix)
- 02. Paul van Dyk with Austin Leeds - Verano (Paul van Dyk's Evolution Mix)
- 03. DNS Project - Exclusive (Bigroom Mix)
- 04. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild And Perfect Day
- 05. Michael Woods - Full Access
- 06. Envotion - Recoder (Extended Mix)
-
-Spotlight mix Moguai:
- 07. Mord Fustang - We Are Now Connected(   Читать дальше...   )17.02.2012Жанр: TranceПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3678B38707735F40D87041ADB55EE6F4F338D0A5
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1802581   (66010) от 18.06.2025
+
+AJ Tracey - Don't Die Before You're Dead (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Outta Sight [2:01]
+02 - Second Nature [2:46]
+03 - 3rd Time Lucky [2:40]
+04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB8B6F65CCABE0963948E309373091950626601
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802669   (66011) от 18.06.2025
 
 Grace Potter - Medicine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
@@ -660,33 +687,6 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8DEF6CF72B36CC3CBBA89A95D03B2FD26B24859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802691   (66036) от 18.06.2025
-
-Electric Church - Used and Abused (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock, Jam Band>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superstar (05:30)
- 02. On the Run (03:29)
- 03. Devil's Creek (04:52)
- 04. Lovin' Man (03:59)(   Читать дальше...   )Жанр: Blues Rock, Southern Rock, Jam BandПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9604833219CDF1DB2C9E6A87294FB4BCF2C032
 ```
 
 

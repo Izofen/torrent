@@ -1,3 +1,185 @@
+###  Публикация: 1700350   (117147) от 16.02.2024
+
+GoodTask 7.6.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117147.jpg" />
+</div>
+
+
+###  Подробнее
+
+У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
+GoodTask — это элегантная и мощная «напоминалка», которая прекрасно взаимодействует со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2024 haha interactiveПоддерживаемая ОС: macOS X 10.15+Язык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4110D1F16FF7E2ABB9D27BDB5B993636C48644D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700224   (117148) от 16.02.2024
+
+Bike Outliner for Mac 1.18.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Структурированное и целенаправленное написание. Используйте Bike, чтобы думать, писать и организовывать. Составляйте списки, делайте заметки, создавайте документы. Bike — необычайно быстрое приложение для письма, разработанное для вашего Mac. Bike быстрый, он может справиться с большими проектами, которые ломают другие планировщики. Bike также быстро справляется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2023 HogbaysoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB51E02C2E23CAFF9A7086DE34EDDC7ABFDD402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700419   (117149) от 16.02.2024
+
+David Aubaile - Trafiquants (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alcántara (6:10)
+02. Trafiquants (6:48)
+03. Camel caldo (6:36)
+04. Tilho (4:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B480528668746F519FE6D8B0362634A97DDA7421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700201   (117150) от 16.02.2024
+
+The Barry Harris Sextet - Luminescence! (1967) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luminescence [6:31]
+02. Like This! [3:03]
+03. Nicaragua [8:42]
+04. Dance of the Infidels [5:13](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B81AEC2C335DFABF1FCE69AECDBE7411FB55E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700366   (117151) от 16.02.2024
+
+Boinx FotoMagico Pro 6 v.6.5.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117151.jpg" />
+</div>
+
+
+###  Подробнее
+
+FotoMagico – популярный пакет для создания слайд-шоу от компании Boinx Software.
+В состав программы входит отдельный плеер, который позволяет просматривать слайд-шоу с высоким разрешением на компьютерах, на которых не установлен пакет FotoMagico (ранее это было возможно лишь при экспорте слайд-шоу в видеоролик, при этом приходилось искать компромисс между большим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2024Разработчик: © 2024 Boinx Software International GmbHПоддерживаемая ОС: macOS 10.15.2 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454EC67DC28CCA462422BED3BEE1BDD1A08F66F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699958   (117152) от 16.02.2024
+
+Амели На Мели - Наизусть (2017) [FLAC|Lossless|WEB-DL|tracks] <Инди-Поп>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117152.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Зима по проводам
+2. О важном
+3. Не буди
+4. Забыть её(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06ACBA3C0A793D3A03B6DC7EEF2B1A897A28F0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700225   (117153) от 16.02.2024
+
+VA - Armin van Buuren - A State Of Trance 1160 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Armin van Buuren ft. Anne Gudrun - Love Is A Drug (Agents Of Time Remix) (ARMIND (ARMADA))
+02.	Ashley Wallbridge & John Grand - Echoes (ENHANCED PROG)
+03.	Hel:sløwed & JNSN - Want Me Artwork (Progressive Pick)
+04.	Magnus - JOI ARMADA ELECTRONIC ELEMENTS(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159986631C01B6348E3ECFA6E58A509F2C535DBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700357   (117154) от 16.02.2024
 
 Легенды о славянских витязях (2008) [MP3, Валерий Золотухин и др.]
@@ -491,187 +673,6 @@ magnet:?xt=urn:btih:5155B1FB9E669B61F7BC6BFFFC9684B39EB2514C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:475FAD8E4DB04809D278054D3CC161B608B1DE06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700422   (117173) от 16.02.2024
-
-Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy Obsession: Jazzy Erotic Sensual Experience (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Co ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sax for My Darling (4:34)
-02. Never Forget Our Love (3:40)
-03. Straight to His Arms (3:39)
-04. Brave Game (3:41)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary Jazz, LoungeПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E9338605EE227FD70E4536121B6690E81734D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700259   (117174) от 16.02.2024
-
-Topaz Gigapixel AI for Mac 7.0.2 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Gigapixel AI. — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, Topaz Gigapixel AI ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A693C1FB7B8156877B2120775A7086BEB15605
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700127   (117175) от 16.02.2024
-
-Pet Shop Boys - Bilingual (1996) 1st Holland Press [APE|Lossless|image + .cue] <SynthPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discoteca (4:38)
-02. Single (3:48)
-03. Metamorphosis (4:04)
-04. Electricity (4:58)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EE8314D91CB66E677C389E905A9E8863DD9E14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700155   (117176) от 16.02.2024
-
-UMC - 80s in Metal (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dirty Diana [4:32]
-02 - Holding Out For A Hero [4:34]
-03 - With Or Without You [3:43]
-04 - Ghostbusters [4:12](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE0C8BF824A4159BCC2E70816CFF11EB7A4D4ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700207   (117177) от 16.02.2024
-
-Журнал | Родина №2 (февраль 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный исторический журнал "Родина" — это продолжение традиций научно-популярной исторической журналистики, заложенных создателями одноименного дореволюционного издания еще в 1879 году. Современная "Родина" выходит с января 1989 года и неизменно предоставляет читателю богатый просветительский материал.Жанр: Исторический научно-популярный журналИздательство: "Редакция "Российской газеты"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60EEFCC6EFF406A49DEDCE2ADE167F488CEFB32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700109   (117178) от 16.02.2024
-
-Illumishade - Another Side of You (2024) [MP3|320 Kbps] <Symphonic Metal, Gothic Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter the Void [00:01:51]
-02. ELEGY [00:04:55]
-03. ENEMY [00:04:53]
-04. In the Darkness [00:04:23](   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Progressive MetalПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EA25E546AD7980C43FDAEE8D7ED11CD6C702E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700448   (117179) от 16.02.2024
-
-Sante DICOM Editor 10.0.6 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sante DICOM Editor — это профессиональный редактор DICOM, средство просмотра 2D/3D, анонимайзер, конвертер, дикомайзер, клиент PACS, мини-сервер PACS, устройство для записи CD/DVD пациентов (со средством просмотра) и многое другое.
-Sante DICOM Editor — ведущее в отрасли приложение постобработки для редактирования, преобразования и обработки файлов DICOM, оно используется (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3132AA8169F162CD2DFFA2460F84D8D711888256
 ```
 
 

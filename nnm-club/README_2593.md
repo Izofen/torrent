@@ -1,3 +1,30 @@
+###  Публикация: 1790140   (68168) от 07.04.2025
+
+Mr. Jazzek - Swing Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bad Habit (2:41)
+02.  Alanna Lyes - Stay (2:48)
+03.  Break It Up (2:28)
+04.  Bukovina (2:54)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806FA25FC3C11FED9CDFA4A7A18DB9C253377377
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790046   (68169) от 07.04.2025
 
 VA - 25 Years Of Anjuna Mixed By Eli & Fur (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
@@ -631,33 +658,6 @@ magnet:?xt=urn:btih:6E137817FCA028D3B7E0927F851163B70C20FAF5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B16476FC97687CD2EFD5196E9ED86B8A95137CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789966   (68194) от 06.04.2025
-
-VA - Urban Grooves Vol. 5 (Urban Funk Breaks Dub Hip Hop Beats) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anduze - Getting You Off (Radio Edit) (4:15)
-02.  Soulstance - Longing (4:49)
-03.  Ice One - Aspetta (Instrumental) (2:23)
-04.  De La Kyo - Nightdriver (4:19)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8DF9FFD33AF9E05D0CA8CCC17F9012813C8551
 ```
 
 

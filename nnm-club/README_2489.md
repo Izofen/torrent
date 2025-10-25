@@ -1,3 +1,30 @@
+###  Публикация: 1805311   (65464) от 05.07.2025
+
+Ashes Of Reason - Crisis Catalyst (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fight The Machine
+02. Desensitised Nation
+03. Crisis Catalyst
+04. Screaming At The Void(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EBBCE9CD81DE3B846E56DF5DCA371BAFB34715
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805350   (65465) от 05.07.2025
 
 Шарль Перро | Кот в сапогах. Красная Шапочка (Инсценировка) (2007) [MP3, Николай Литвинов, Ростислав Плятт и др.]
@@ -635,33 +662,6 @@ Metal Detektor - Violence and Pride (2025) [FLAC|Lossless|WEB-DL|tracks] <Old Sc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:379B780E22BE3D92A2157C3D2B2A8F9A3E18E35C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805231   (65490) от 04.07.2025
-
-The Speaker Wars - The Speaker Wars (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Make Every Lie Come True (3:18)
-02.  It Ain't Easy (4:54)
-03.  Taste of Heaven (3:53)
-04.  Never Ready to Go (3:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7751D6996382F5E9619A608B5360AC41DD0E168
 ```
 
 

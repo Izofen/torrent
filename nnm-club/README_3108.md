@@ -1,3 +1,79 @@
+###  Публикация: 485638   (100100) от 21.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D731611FCCA882AC8713791F93686B41BA4078B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485635   (100102) от 21.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29D6C787DB0320228B9AF50F01D0A56DC1CEDC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486232   (100103) от 21.04.2012
+
+[Wallpapers]45 Wonderful Planes
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100103.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers]45 Wonderful Planes
+Название: 45 Wonderful Planes
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpegВремя раздачи: до 5 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6016503E29F8C4981DAB037E4CFEFAE3E8797625
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486107   (100105) от 21.04.2012
 
 VA - TMP: Trance Harmony 064 (2012) [MP3|320 kbps]<Trance, Uplifting Trance, Dream Trance>
@@ -609,88 +685,6 @@ magnet:?xt=urn:btih:3FE301FBD00833709BD51DF57095D60469276125
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB2AE6516D9CA3903E0C582A9204022127513910
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486573   (100180) от 22.04.2012
-
-Журнал | Встречи на кухне № 3. Устроим рыбный день! [март 2012] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кулинарный журнал для тех кто любит готовить.
-Тема номера: Рыбный день.март 2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864157A5CEAA9B8792414FF7E483C1CB6AB17529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486285   (100181) от 22.04.2012
-
-Журнал | Автомир [Украина] №17 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100181.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C58B7FC2CF4692B508B5502CCFC2819CD6C45D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484211   (100193) от 22.04.2012
-
-VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Brandt - Mana (Original Mix)
-02. Rafael Frost - Channel 4 (Original Mix)
-03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
-04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
-05. Phunk Investigation - Smash (Original Mix)
-06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
-07. Kachu MX - Alien Bubble (Original Mix)
-08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
-09. Matula feat Goldsound - Wonderful World (Gaga Remix)
-10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
 ```
 
 

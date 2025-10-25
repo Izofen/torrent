@@ -1,3 +1,30 @@
+###  Публикация: 1638278   (56449) от 15.05.2024
+
+Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freedom Call — немецкая пауэр-метал группа, основанная в 1998 году.1999 - Stairway To Fairyland
+1999 - Taragon (EP)
+2001 - Crystal Empire
+2002 - EternityЖанр: Power MetalПродолжительность: 11:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3B1A5274A55E651DDADB5A18900732D8021049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723193   (56450) от 15.05.2024
 
 VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
@@ -612,30 +639,6 @@ magnet:?xt=urn:btih:FB465CC385ACA9DC37B9C6B269ADC123ED3F22F9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF26918748EBB7A5DACB905A050834F1B3E937A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723421   (56475) от 15.05.2024
-
-Topaz Video AI 5.0.4 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4131C03C2775DE6F46CDC54BDB7F6938F6D65EA8
 ```
 
 

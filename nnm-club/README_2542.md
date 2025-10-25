@@ -1,3 +1,27 @@
+###  Публикация: 1797274   (66842) от 15.05.2025
+
+Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen | Кагуя: В любви как на войне (2015) [28 томов, 281 глава + Экстра] [Манга] [Русский] [PNG, JPG] [Complete]
+
+>>Манга и Арт
+>>Манга, Манхва, Маньхуа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кагуя Шиномия и Миюки Широганэ – члены школьного совета невероятно престижной Академии Шуичи, признанные гениями из гениев. Всё время, проведённое вместе, послужило поводом разобраться в чувствах к друг другу, но их гордость не позволит ни одному из них признаться и покориться другому в отношениях! Любовь – это война, это битва с целью заставить другого признаться!Жанр: комедия, романтика, драма, сэйнэнФормат: PNG, JPGПродолжительность: 19 мая 2015 - 2 ноября 2022
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F98765A256D9FCA54A2680D235A00E7FEC2F9E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797238   (66843) от 15.05.2025
 
 Oldschool Union - Herra Ja Hidalgo (2025) [MP3|320 Kbps] <EBM>
@@ -656,33 +680,6 @@ Brody Buster - Redemption (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5BA8F0A04F7C27320A233627D40EA9AF3511D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796930   (66868) от 13.05.2025
-
-Ken (Kenny) Wheeler & The John Dankworth Orchestra - Windmill Tilter: The Story Of Don Quixote (1968) 2010, BGO Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preamble [0:43]
-02. Don the Dreamer [6:14]
-03. Sweet Dulcinea Blue [3:40]
-04. Bachelor Sam [5:18](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFC2174AC39EFFC8118A21F39FC4B2D749AA6A5
 ```
 
 

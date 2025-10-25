@@ -1,3 +1,219 @@
+###  Публикация: 1765892   (101295) от 15.12.2024
+
+VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Da Mata - Aich (5:42)
+02. Indiano - Meditation (10:28)
+03. Kalico Jak - Sunlight Through the Treetops (9:04)
+04. 4Moon Music - Sofy (7:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766007   (101296) от 15.12.2024
+
+Четыре Апреля - Бездна (2021) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101296.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Это игра (00:03:29)
+✧ 02 - Выбора нет (00:04:05)
+✧ 03 - Летала душа (00:04:48)
+✧ 04 - Что будет с нами- (00:03:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1005FB74786F2AEA1284067F8ED552F8F05AB9C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765989   (101297) от 15.12.2024
+
+Ермак! - 3 Albums (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo-Core>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Ермак! - 2024 - Дневник памяти FLAC (16,24bit-44.1,96kHz)
+Ермак! - 2024 - Не забывай (Ремиксы) FLAC
+Ермак! - 2024 - Русы валят рептилоидов (Ремиксы) FLACЖанр: Post-Hardcore, Emo-CoreПродолжительность: 3 CD, 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CABD9F8644DF27C53899A007E6B25058E7AC82D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765885   (101298) от 15.12.2024
+
+Gotus - Gotus (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The Mountain (3:49)
+02. Beware Of The Fire (3:57)
+03. Love Will Find Its Way (5:52)
+04. Undercover (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC069D68A35BD8E2D69009141949DC661869FFA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766005   (101299) от 15.12.2024
+
+VA - Redux Presents: The Finest Selection (Mixed by DJ Jayel) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petereese - Redrasoew (Extended Mix) (06:32)
+02. Cj Mover - 1st In Space (Extended Mix) (07:05)
+03. Lele Palmieri - Supernatural (Extended Mix) (07:01)
+04. Stnx - Remedy (Extended Mix) (06:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C3486B6BFA3C268CE46BF4CD106151A093AB09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765903   (101300) от 15.12.2024
+
+Mason - I Can't Wait (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Life (4:04)
+02. I Can't Wait (4:06)
+03. I'ts Okay To Cry (4:29)
+04. Turn Me Around (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587B51127F2E244291BA77B3FBFCE253B835B60E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765913   (101301) от 15.12.2024
+
+The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tokyo Woman (5:20)
+02. Endless Summer (4:59)
+03. Aubree's Melody (4:38)
+04. Say You Love Me (4:35)(   Читать дальше...   )Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDD6CA8A8A46636CC02E4B118B6C4EA3B3BCF62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765915   (101302) от 15.12.2024
+
+Ultraboss - Slow Motion Rider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ultraboss - Get The Heart In [00:04:13]
+02 - Ultraboss - Calling On Forever [00:03:27]
+03 - Ultraboss - Vienna Nightdrive [00:02:31]
+04 - Ultraboss - Slow Motion Rider [00:05:00](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178E98C8911255467CC9A556A93E5F89D8BDA383
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765901   (101303) от 15.12.2024
 
 Lionville - Supernatural (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
@@ -457,213 +673,6 @@ magnet:?xt=urn:btih:62C0F7B738216114A076FA85E5A2CB2A1BA50D26
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EA69D2DF82C4F0A2D520420C092D280B498F67B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765960   (101321) от 15.12.2024
-
-Происшествие / Jiken / The Incident (1978) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе Шохэй Оока... Тело Сакаи Хацуко, 23-летней женщины, убитой ножом, было найдено в лесу. Несколько дней спустя 19-летний рабочий верфи Уэда Хироси был арестован и обвинён в убийстве. На суде над Уэдой разворачивается сложная история...Производство: Япония / Shochiku EigaЖанр: драма, криминалРежиссер: Ёситаро НомураАктеры: Кэйко Мацудзака, Синобу Отакэ, Тосиюки Нагасима, Цунэхико Ватасэ, Синсукэ Асида, Хисая Морисигэ, Дзюнко Нацу, Ко Нисимура, Нобуко Отова, Син Сабури, Асао Сано, Тэцуро Тамба, Кэи ЯмамотоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (дед_сто_лет), английскиеПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B07E17B5DC9029CF017D57159D93C63AA7A8C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765900   (101322) от 15.12.2024
-
-VA - Feel The Burn Body Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Mixmasters - Too Much (Fitness Version 128 Bpm 32 Count) (4:00)
-02. DJ Space'c - Both (Fitness Version 128 Bpm 32 Count) (3:45)
-03. D'Mixmasters - Rock My Body (Fitness Version 128 Bpm 32 Count) (4:00)
-04. Kangaroo - Red Flags (Fitness Version 128 Bpm 32 Count) (4:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0597CAC5E4B904AFCC458E2EA29D165A25DC7BA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765800   (101323) от 15.12.2024
-
-VA - Ibiza Winter 2025 (Dance Snowflakes From The Heart) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaques Le Noir - Intentions (Radio Edit) (03:37)
-02. Francesco Diaz & All Purple - Hometown (02:49)
-03. Zulu Natives - In My Dreams (02:55)
-04. Mayson & Noise - Day Go By (02:41)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5371DCE845B2FD9004975F508507C0073B27583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765943   (101324) от 15.12.2024
-
-Происшествие / Jiken / The Incident (1978) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе Шохэй Оока... Тело Сакаи Хацуко, 23-летней женщины, убитой ножом, было найдено в лесу. Несколько дней спустя 19-летний рабочий верфи Уэда Хироси был арестован и обвинён в убийстве. На суде над Уэдой разворачивается сложная история...Производство: Япония / Shochiku EigaЖанр: драма, криминалРежиссер: Ёситаро НомураАктеры: Кэйко Мацудзака, Синобу Отакэ, Тосиюки Нагасима, Цунэхико Ватасэ, Синсукэ Асида, Хисая Морисигэ, Дзюнко Нацу, Ко Нисимура, Нобуко Отова, Син Сабури, Асао Сано, Тэцуро Тамба, Кэи ЯмамотоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (дед_сто_лет), английскиеПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA3237FB0BDC0E9532D49E672224673827A9E57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765746   (101325) от 15.12.2024
-
-Karnage Through Crossing - Shattered Chains (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimson
-02. Judgement Day
-03. Frozen Crown
-04. Maverick(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:899B9EB8EFF33CBF106DEDFD11A77E5F74C16EDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765750   (101326) от 14.12.2024
-
-Шарджа: роддом для бабочек, по дюнам на багги, лунный ретрит и арабские лакомства | «Поедем, поедим» (14.12.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди отправился в Шарджу в ОАЭ, где погонял на багги по барханам и покорил самые высокие дюны! А еще ведущий переночевал посреди пустыни, где устраивают лунные ретриты, увидел остров бабочек, комнату дождя и отправится на сафари с багги. Также путешественнику довелось отведать арабских лакомств, печень коровы и даже молодого верблюда.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A0606431F868C0F42418DF0B763FBF417E23A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765738   (101327) от 14.12.2024
-
-Hawkwind - Live At The Royal Albert Hall (2024) [MP3|320 Kbps] <Psychedelic, Space Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen In Time - Studio Rehearsal
-02. Practical Ability - Studio Rehearsal
-03. Lost Chances - Studio Rehearsal
-04. Second Chances - Studio Rehearsal(   Читать дальше...   )Жанр: Psychedelic, Space Rock, Progressive RockПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC23F1F1736F99F807F6A32FBA1FCB88A29FB56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765727   (101328) от 14.12.2024
-
-Rival Sons - Pair of Aces, Pt. 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Get What’s Coming
-02 – Torture
-03 – Radio
-04 – Sleepwalker(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817349167377D288DA1427AE3D2CA89851A6A94E
 ```
 
 

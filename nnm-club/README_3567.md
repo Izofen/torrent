@@ -1,3 +1,187 @@
+###  Публикация: 1708011   (113117) от 19.03.2024
+
+Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Planet (2:52)
+02. Happy Earth (2:53)
+03. Yellow Bird (2:35)
+04. Balmy Night (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B3166E0EB7AD153662AE80ED59AD500D7DE58F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708016   (113118) от 19.03.2024
+
+Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Space (0:58)
+02. Heirloom (4:32)
+03. Vortex (2:49)
+04. Buoyancy Of Water (3:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708097   (113119) от 19.03.2024
+
+Марина Серова  Частный детектив Татьяна Иванова. Ошибка Купидона (2024) [MP3, Шахерезада]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город в панике: таинственный шантажист-убийца посылает письма с угрозами в семьи девочек-подростков. Если ему вовремя не выплатят определенную сумму, говорится в письме, девочка будет изнасилована и убита. И это не пустые угрозы: женщина заплатила шантажисту нужную сумму, однако, ее дочь все-таки убили. Безутешная мать обратилась за помощью к частному детективу Татьяне (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557479B134BB787AFD73E1DB77005AB2A8A46FCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708156   (113120) от 19.03.2024
+
+Karpathian Relict - Forever Not Yet (2018) [FLAC|Lossless|tracks] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dormant Mind
+02. In The Course Of Centuries
+03. The Filthy Desires Of Flesh
+04. Express Your Will(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2FAC59B505115B946B803451AD1FF60F95DBB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708063   (113121) от 19.03.2024
+
+The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Announcements by Willis Conover and Art Farmer [1:16]
+02. It Ain't Necessarily So [7:25]
+03. The Portrait [4:28]
+04. Bean Bag [9:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09003E02F7F3C65F7C60DEC4D1512F513D3CCE8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707767   (113122) от 19.03.2024
+
+Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113122.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Transilvanian Hunger
+A2 Over Fjell Og Gjennom Torner
+A3 Skald Av Satans Sol
+A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708020   (113123) от 19.03.2024
+
+Codepoint for Mac 1.15 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
+Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2022–2024 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963BE241D02921AEF0F05D79F06F5530B5D4D0AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707883   (113124) от 19.03.2024
 
 The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Hard Rock,>
@@ -485,187 +669,6 @@ Benny Golson - I Remember Miles (1992) 1996, Evidence [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2CF99AD8162BE49E3CCED49430552368C92F447
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708238   (113143) от 19.03.2024
-
-Manntra - Live in Leipzig (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Invocation (LIVE IN LEIPZIG) [1:29]
-02 - Heathens (LIVE IN LEIPZIG) [3:52]
-03 - Morana (LIVE IN LEIPZIG) [3:01]
-04 - Tanz (LIVE IN LEIPZIG) [3:16](   Читать дальше...   )Жанр: Metal, Alternative MetalПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E854EF4B870409038FF7D8045981394023CF884
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708033   (113144) от 19.03.2024
-
-Embrace Of Souls - Forever Part of Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning of Everything
-02. Tame My Storm
-03. My Blade Will Fall On You
-04. Our New Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3BEB5A4DB170EB8E2C1332D587F78C38E2F4D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708101   (113145) от 19.03.2024
-
-Журнал | Сваты на даче №3 (111) (март 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113145.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859D412719565E65ED5D3121AF25CC3C922E578C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708139   (113146) от 19.03.2024
-
-CompressX for Mac 1.5.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113146.jpg" />
-</div>
-
-
-###  Подробнее
-
-CompressX - это приложение для сжатия видео. Значительное уменьшение размера файла, аналогичное качество видео.Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2024 Dinh Quang HieuПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BF4B64927CE630E10973D63F7F3FC96CF0CDE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707638   (113147) от 19.03.2024
-
-Elektric Music - Esperanto (1993) [FLAC 24/96|Lossless|tracks] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113147.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 TV
-A2 Show Business
-A3 Kissing The Machine
-Lead Vocals – Andy McCluskey(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AABAFE58EC8827D6C617A7E76DF01D18450D4CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708150   (113148) от 19.03.2024
-
-NCH DreamPlan Plus for Mac 9.10 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуализируйте и спланируйте дом своей мечты с помощью реалистичной 3D-модели дома.
-• Создайте план дома, квартиры или квартиры
-• Настраиваемые цвета, текстуры, мебель, украшения и многое другое
-• Планируйте идеи внешнего озеленения и садовых пространствТип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2024 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADC1310F910A65EF22B08234A36ADFB9A354381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708211   (113149) от 19.03.2024
-
-MWeb Pro 4.5.8 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113149.jpg" />
-</div>
-
-
-###  Подробнее
-
-MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
-MWeb поддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 CoderForArt IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9667AC29B1BC84AF6DECB92ADF7A0BC4B3C08302
 ```
 
 

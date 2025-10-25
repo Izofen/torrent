@@ -1,3 +1,30 @@
+###  Публикация: 1787191   (68844) от 24.03.2025
+
+Nightwish - Angels Fall First (1997) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvenpath
+02. Beauty and the Beast
+03. The Carpenter
+04. Astral Romance(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D26DF54B0BA7C3C1A8F23BE7B711772124C960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787080   (68845) от 24.03.2025
 
 Gotthard - Stereo Crush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -650,33 +677,6 @@ magnet:?xt=urn:btih:521FD3F1DB5D2B4A064F3B755599EF98AC677CFB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E872A7E52B48FA44E4F5401FBC2019D5BD60FD73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787051   (68870) от 23.03.2025
-
-VA - I Love ZYX Italo Disco Collection 3 (2005) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Bedford - More Than A Kiss
-02. Roger Meno - I Find The Way
-03. Albert One - For Your Love
-04. K.B. Caps - Catch Me Now I'm Falling(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1FE05C5C7CD437A69515BB9241E26519C7D9A0
 ```
 
 

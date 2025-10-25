@@ -1,3 +1,29 @@
+###  Публикация: 1803464   (65828) от 24.06.2025
+
+DJ Tomcraft - Silence (2000) [FLAC|Lossless|tracks + .cue] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Silence (Radio Edit) 3:58
+02 Silence (Vocal Mix) 10:12
+03 Silence (Original) 10:12Жанр: TranceПродолжительность: 24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0132FF0229C7590EB4078813D04EA1A9AAE9E05D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803680   (65829) от 24.06.2025
 
 Chilly Swing Band - Study Jazz with the Feel of a Spring Breeze (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
@@ -639,33 +665,6 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC4E29910DD9738B597F80EB64541476A2D67EA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802898   (65854) от 22.06.2025
-
-VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alison Moyet - That Ole Devil Called Love (3:06)
-02. Cyndi Lauper - Time After Time (4:04)
-03. Des’ree - I'm Kissing You (4:54)
-04. Toni Braxton - Un-Break My Heart (4:31)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFD4473443CB9AF0D93BBF754024E22242E73DB
 ```
 
 

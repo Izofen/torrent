@@ -1,3 +1,189 @@
+###  Публикация: 1695107   (120406) от 28.01.2024
+
+Fionn Legacy - Rise of the Windlord (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Departure (01:43)
+02 - Majestic Return (04:15)
+03 - Distant Lands (04:36)
+04 - Farewell (04:39)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448333CB661AFBE130096CC572AE9BBD51628D9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695296   (120407) от 28.01.2024
+
+Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat для PostgreSQL — это мощный, но простой в использовании графический интерфейс PostgreSQL, предоставляющий обширные функциональные возможности для управления базой данных PostgreSQL и ее разработки. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7767B8161385AED810F423767792AB4C31362C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695244   (120408) от 28.01.2024
+
+Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightless (5:07)
+02. Labyrinthine Hex (7:11)
+03. Morningstar (6:57)
+04. Shapshu (4:22)(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320DF0D9E9A8AC6DB00477154B30EA1F85E44C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695178   (120409) от 28.01.2024
+
+Mel Torme - Two Darn Hot (1990) 2CD, 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine on Your Shoes [3:19]
+02. Looking at You/Look at That Face [4:34]
+03. A Nightingale Sang in Berkeley Square [4:46]
+04. Wave [5:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3B79F5F9EA3AA426CF90BD9F2A9FFA4DBCC60D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695187   (120410) от 28.01.2024
+
+Mel Torme & Carmen McRae - Ralph J Gleason's Jazz Casual (1962, 1964) 2001, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Got a World That Swings [2:10]
+02. Interview [7:24]
+03. Comin' Home Baby [2:31]
+04. Mel Speaks [1:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62A1C218FC83FEE3C881EE7DC459984C9F8EF5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695216   (120411) от 28.01.2024
+
+Greengoat - A.I. (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120411.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Void 02:23
+2. The Seed 07:06
+3. A.I. 05:30
+4. Human 05:05(   Читать дальше...   )Жанр: Stoner Rock, Stoner MetalПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914F8C0E28330B2FB5B0B11B99E133768EEA27A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695195   (120412) от 28.01.2024
+
+JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Thrill [9:33]
+02. The G Thing [6:41]
+03. Die Dreaming [5:58]
+04. Red Label [6:30](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D5AFD95C59CA64D80C6735B8E0409404AE4374
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695298   (120413) от 28.01.2024
 
 Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
@@ -494,188 +680,6 @@ Helgrindur - Helgrindur (2023) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE4F4A0765061D587BD8B9D98023B6510F2A28CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695347   (120432) от 28.01.2024
-
-Richard Lindgren - Grand Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Fat Nothing (6:08)
-02. Empire In Ruins (5:22)
-03. Argentinian Shoes (4:03)
-04. Lament From A Reservoir (4:51)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152DB4E5C7ADEA78315986429E8B34235B9A8EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695335   (120433) от 28.01.2024
-
-Brad "Guitar" Wilson - Buckle Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucille (3:23)
-02. Can't Always Get What You Want (4:50)
-03. Hoodoo Party (2:40)
-04. Hound Dog (4:16)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B603FBEAE70DF097D12FDC19F858A496A71BAC13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695124   (120434) от 28.01.2024
-
-Caro Emerald - The Shocking Miss Emerald (The Remixes) (2013) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tangled Up (Yarin & Richwood Remix) [00:03:34]
-02. Tangled Up (Yarin & Richwood Remix) (Yarin & Richwood (Extended Version)) [00:04:36]
-03. Tangled Up (Lokee Remix) [00:03:25]
-04. Tangled Up (Kahedi Remix) [00:03:04](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3C17969EF1FCFCAC718384906A6065E57B5285
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695324   (120435) от 28.01.2024
-
-Total Video Converter Pro for Mac 5.1.0 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Video Converter Pro - полноценный и универсальный набор инструментов для работы с видео, позволяющий конвертировать, редактировать, записывать, улучшать и смотреть видео. Поддерживает конвертацию видео между почти всеми форматами видео и аудио, выполняя конвертацию до 30 раз быстрее чем существующие аналоги.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2024Разработчик: EffectMatrix LtdПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6802EC24139D4C8817B5B5C20B82B96B322B90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695198   (120436) от 28.01.2024
-
-Роберт Брындза | Детектив Эрика Фостер (Книга 4). Последнее дыхание (2024) [MP3, Ксения Бржезовская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое расследование Эрики Фостер в остросюжетном детективном триллере Роберта Брындзы, автора бестселлера «Девушка во льду»!
-
-Кому понадобилось зверски убивать двадцатилетних красавиц? Что движет тем, кто похищает юную девушку, несколько дней держит ее в заточении, мучает и калечит, а затем перерезает ей артерию и выбрасывает тело в мусорный бак?Жанр: зарубежные детективы, полицейские детективы, современные детективы, триллерыПеревод: Светлана ХатуеваИздательство: АСТ-АудиокнигаПродолжительность: 10:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E14B9B6230B33439961B810B852FDD574FF75C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695112   (120437) от 28.01.2024
-
-Лорет Энн Уайт | Охотник на людей (2023) [MP3, Наталия Урбанская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120437.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некоторые места лучше не возвращаться. Даже если это твои собственные мысли…
-
-Сержант Габриэль Карузо прибывает в отдаленную деревушку в глуши Юкона с одним намерением – стереть все воспоминания о серийном убийце, который разрушил его жизнь.
-(   Читать дальше...   )Жанр: зарубежные детективы, современные детективы, триллерыПеревод: Александр БушуевИздательство: ЭксмоПродолжительность: 07:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037E1D84890278443BA964C73E000F37D0C45A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695165   (120438) от 28.01.2024
-
-Газета | Оракул №2 (358) (февраль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета эзотерических знаний "Оракул" - астрологические прогнозы, гадания, сонники и многое другое. Газета открывает читателям возможность по-новому видеть и думать, помогает понять себя, окружающий мир и найти путь к гармонии.Жанр: Магия, эзотерикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD48B7543D71C5BBF0DEB9243748FF39F0227D7
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1781964   (70118) от 26.02.2025
+
+VA - The Orient Collective: Caravan Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Kembali (6:18)
+02. Tibetania - Goodnight (6:24)
+03. DaDa Sound Project - Jatelo (6:07)
+04. Aglaia Rave - Tulpas (5:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70592D0F7272AEACD88AACDEA292539EDB301E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782016   (70119) от 26.02.2025
 
 Холодное сердце / Frozen (2013) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -617,30 +644,6 @@ magnet:?xt=urn:btih:EB9EC165924445C50410E8B6E1B48350E7A9FAC2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82673EEBA11DA82254C1029F6786CFA5A40B15F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781807   (70144) от 25.02.2025
-
-Шрифты - Creative Market - Rustica Plains - Handmade Sans Serif - 290897235 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rustica Plains — это шрифт без засечек ручной работы, призванный придать любому проекту нотку современной элегантности. Благодаря своему уникальному рукописному стилю этот шрифт идеально подходит для брендинга, логотипов, социальных сетей, плакатов, приглашений и многого другого. Его чистый, но деревенский вид обеспечивает как читабельность, так и эстетическую привлекательность, (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C118A7CD9898415285CB6632BC3B4735BE50EFD
 ```
 
 

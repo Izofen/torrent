@@ -1,3 +1,182 @@
+###  Публикация: 1706107   (113715) от 11.03.2024
+
+Soulver 3 v.3.10.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего Excel много, а калькулятора мало или неудобно. Понимает цифры вперемешку со словами, не нужно жать «равно», может отнять 100 евро от тысячи долларов и поделить на троих.
+Имея простой и понятный интерфейс, рабочее окно приложения состоит всего из двух частей. В левой части записываются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2024 Acqualia Software OÜПоддерживаемая ОС: macOS X 11.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443A2DE48EE2D52168CAF6D0F860E60829505BBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706006   (113716) от 11.03.2024
+
+Houwitser - Sentinel Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Dogma
+02. Sentinel Beast
+03. Warmonger
+04. King Of Madness(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A082BB4556A29785BA50C72BEDACBAF835E41019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706169   (113717) от 11.03.2024
+
+DB-Text 1.12.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение DB-Text может открывать файлы CSV и TSV и управлять ими, как никогда раньше. Для
+импорта любого файла CSV или TSV достаточно перетащить (или выбрать в стандартном диалоговом окне открытия) файл для импорта.
+ПО имеет множество утилит и функций, чтобы сделать вашу работу быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2012-2024 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6381E19E4E180A8639D7DB3B42CBC417D4ABA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706046   (113718) от 11.03.2024
+
+TG Pro (Temperature Gauge Pro) 2.91 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113718.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2024Разработчик: © 2023 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87DDBFAF0DD888FDA7AC899698500805E5024DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706170   (113719) от 11.03.2024
+
+Daes - D1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pick a Card (Intro) (2:16)
+02. 9 of Hearts (10:23)
+03. Chopping Block (6:11)
+04. Someday (2:46)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF3ADCDE8F0B1A347D545CE7D6E163D10AC7559
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706161   (113720) от 11.03.2024
+
+QuickLinks 3.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113720.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickLinks - это приложение для создания пользовательских сочетаний клавиш. Можно создать ярлык для любого любимого или регулярно используемого файла, папки, документа, приложения и т. д. Сначала выберите файл, чтобы создать ярлык для легкого доступа. Значок в строке состояния обеспечивает быстрый доступ к списку созданных ярлыков.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2017-2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB17D797A15C9448651F8E128A1593AF542FF93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706122   (113721) от 11.03.2024
+
+Bookends 15.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
+Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2024Разработчик: © 2024 Sonny SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A27E2AE7ADC1AF7BC9A39B5B33D558D881372BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706029   (113722) от 11.03.2024
 
 Pantheist - Kings Must Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
@@ -470,195 +649,6 @@ magnet:?xt=urn:btih:6313C5E0153FEC3D760D03E660F155D9CF995BD8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA8C1DD55DCB6DA44896B176A34626E3FBDA5B3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705929   (113741) от 10.03.2024
-
-Даниил Мордовцев | За чьи грехи? (2015) [MP3, Савелий Гуреев]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческая повесть «За чьи грехи?» русского писателя Д. Л. Мордовцева (1830−1905) рассказывает о временах восстания Степана Разина.
-В произведении изображены многие исторические лица и события, воссоздан целостный образ России XVII века.
-
- Даниил Мордовцев на NoNaMe ClubЖанр: Русская историческая литература, повестьИздательство: Вира-М (аудио)Продолжительность: 07:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE85A6CFA2C982A38D276BA0B4A5135C7A5172FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705834   (113742) от 10.03.2024
-
-Обними Кита & Евгения Рыбакова - Концерт (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ко мне [00:03:16]
-02. Пополам [00:04:04]
-03. Одеяло [00:03:31]
-04. Мир недостроенных иллюзий [00:02:54](   Читать дальше...   )Жанр: Alternative, Indie Pop, Indie RockПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F77C130F34F94244C5655DB2AF8E57A0180971
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705833   (113743) от 10.03.2024
-
-Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Именно так
-02 - Свети ярче
-03 - Незаметно укройся (от моего лунного света)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D59B1DE3FC90C49BC0D5A62FCAC8BDA8BA4AFC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705761   (113744) от 10.03.2024
-
-Madder Mortem - Mercury (1999) 2019 20th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undertow
-02. Under Another Moon
-03. He Who Longed For The Stars
-04. These Mortal Sins(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15FEDCB4CFA55E6123E8380EE2A2ED9CFB17369
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705843   (113745) от 10.03.2024
-
-Stephane Grappelli - I Got Rhythm (1997) Delta Music [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Saw Stars [2:32]
-02. The Continental [2:38]
-03. Avalon [2:53]
-04. Some of These Days [2:24](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5E2EE2E95D99A91F76523020BE115BF2BEBDEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705847   (113746) от 10.03.2024
-
-Ellis Marsalis - Ruminations In New York (2004) ESP-Disk' [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things That You Never Were [3:51]
-02. A Moment Alone [4:47]
-03. Haven's Paradise [4:08]
-04. Homecoming [4:44](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830C296253195D74ED14A2E861400950640812AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705837   (113747) от 10.03.2024
-
-Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuss Budget [7:46]
-02. Oatmeal Cookie [4:39]
-03. Da-Baby [7:33]
-04. Down Home [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C7F9DA17CD70C29CEFE637E44BA2946ED991F3
 ```
 
 

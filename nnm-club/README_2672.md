@@ -1,3 +1,30 @@
+###  Публикация: 1781466   (70222) от 23.02.2025
+
+VA - Musical kaleidoscope part 30 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Le Voyage De Shakuhachi
+02. Kasimoff - Enigma
+03. Sisco Le Voyageur - Enigma French 43
+04. Сергей  Грищук - В  Объятиях Времени(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8638D135649F1D4D1C072E0CC03F33AC22BC01DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781514   (70223) от 23.02.2025
 
 Шрифты - Zetafonts - Casagrande [TTF]
@@ -629,32 +656,6 @@ magnet:?xt=urn:btih:E9261B3848524123F4C27D50D499831DC8C6F073
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F36F2FAE7803179CBF484D1BF3B8B9ABAC21D688
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780415   (70248) от 22.02.2025
-
-Шрифты - MyFonts - Faktum [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Faktum — это исследование жанра геометрических гротесков, вдохновленное архитектурой и дизайном интерьера середины века. Он доступен в 40 стилях, объединяя четкие линии, органические изгибы и геометрические формы в одном современном дизайне.
-
-Кириллица не поддерживается.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D734B0030FC6BAD2205FA09BF49FF37E27D1412C
 ```
 
 

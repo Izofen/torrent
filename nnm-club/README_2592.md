@@ -1,3 +1,30 @@
+###  Публикация: 1789993   (68142) от 07.04.2025
+
+Markus Schulz - Global DJ Broadcast World Tour, MAD Club Wynwood Miami (2025-04-04) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Layton Giordani x Tiga x Audion - Let's Go Dancing
+02. Kölsch & Kevin de Vries - Gate
+03. Markus Schulz presents Dakota - Manray
+04. Ramon Tapia - Last Step(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E23340C4C0C5CFCEA4F887EC7D4FE087C09222C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790144   (68143) от 07.04.2025
 
 Shari Puorto - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Rock>
@@ -652,33 +679,6 @@ magnet:?xt=urn:btih:D02F775B466B95E010A29E6106B235F5B197E988
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8376D0FBB33739F0D8685F905005F57AE8CC4F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790140   (68168) от 07.04.2025
-
-Mr. Jazzek - Swing Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bad Habit (2:41)
-02.  Alanna Lyes - Stay (2:48)
-03.  Break It Up (2:28)
-04.  Bukovina (2:54)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806FA25FC3C11FED9CDFA4A7A18DB9C253377377
 ```
 
 

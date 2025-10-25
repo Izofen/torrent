@@ -1,3 +1,27 @@
+###  Публикация: 1713347   (67934) от 12.04.2025
+
+Сирил Корнблат | Чёрный чемоданчик (2022) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67934.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Доктор Фулл, лишенный врачебной лицензии за мошенничество и алкоголизм, стал счастливым обладателем врачебного чемоданчика из будущего. Поскольку в будущем уровень умственного развития населения крайне низок, содержимое чемоданчика рассчитано на обладателя совсем небольшого ума." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEEBF01287196094880365CA5AD1F9AF91699CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791209   (67935) от 12.04.2025
 
 Жажда славы / Magazine Dreams (2023) WEB-DLRip [H.264] [MVO]
@@ -645,33 +669,6 @@ Cynthia Perkins - Blue Winter (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DE59FC1AB2F7609A7B1E4E198619E0E2342C001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790929   (67960) от 11.04.2025
-
-Headcrasher - Nothing Will Remain (1989) 2 x CD, Reissue, , 2017, Punishment 18 Records, Special Edition [FLAC|Lossless|image + .cue] <Thrash, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67960.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 - Nothing Will Remain:
-01. Intro 01:23
-02. Blood from the Sky 05:05
-03. Live or Die (W.C.W.C.) 03:50(   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 01:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF4EEF86DD6A28EE56149E0FE2E06F662C5961C
 ```
 
 

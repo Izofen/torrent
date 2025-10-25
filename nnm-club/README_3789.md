@@ -1,3 +1,184 @@
+###  Публикация: 1695307   (118894) от 07.02.2024
+
+Взаперти (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случайные знакомые Кема и Макс посреди праздничного застолья уединяются в квартире, чтобы остаться в ней навсегда. Они ищут выход, но его нет, окна и двери ведут в новые лабиринты комнат, а вокруг — лишь замкнутое пространство. Кема и Макс видят жутких призраков детей, лишь со временем понимая, что эти сущности — такие же жертвы обстоятельств, как и они. Разгадывая (   Читать дальше...   )Производство: Казахстан / QARA ProductionЖанр: ужасы, триллерРежиссер: Олжас БаялбаевАктеры: Елизавета Юрьева, Роман Жуков, Сергей Уфимцев, Платон СаввинПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ED5F1D3D0260359EB2E754CD238F97056B960D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697619   (118895) от 07.02.2024
+
+BeachHead (2024) [En] (1.3.25) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте обновленную версию, которая смогла преодолеть все ограничения! Попросту говоря, это игра не на один раз, которая получила захватывающий игровой процесс и свежий опыт в постоянно растущем мире. Так чего же вы ждете? Отправьтесь в параллельно существующий мир, который имеет собственную социальную структуру и экономику. Попросту говоря, перед вами ролевой (   Читать дальше...   )Тип издания: RepackРазработчик: Digital Fusion Inc.Жанр: Экшены, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4D9B01C9D6CA323AD60296C81514B53C80A84C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697651   (118896) от 07.02.2024
+
+Native Instruments - Guitar Rig 7 v7.0.2 Standalone, VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Native Instruments выпускает седьмую версию известного плагина для моделирования гитарного усиления.
+Заявлено, что новинка обзавелась четырьмя виртуальными усилителями (Super Fast 100, Super Fast 100, AC Box XV, Bass Rage) и пятью педалями, основанными на технологии машинного обучения Intelligent Circuit Modeling (ICM). Кроме этого, в плагин теперь добавлено (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521B947D6E9E551D8943D503BDF86D2E0BB143F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697331   (118897) от 06.02.2024
+
+Mississippi Shakedown - Mississippi Shakedown QLD (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can We Get Married REAL Soon (3:42)
+02. Something Comes Into My Mind (3:53)
+03. A Hard Day's Night (4:10)
+04. (Living my Life) One Pay at a Time (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3569979F335D27450F27AD461527F8DBC20E03E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697486   (118898) от 06.02.2024
+
+Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118898.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ella
+A2 Fager Som En Ros
+A3 Leaves Of Yggdrasil
+A4 Ramund(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED376654036B0920377373ACCEAAC855CCD647C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697329   (118899) от 06.02.2024
+
+Johnny Rawls - Walking Heart Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking Heart Attack (3:25)
+02. Trying To Live My Life Without You (3:20)
+03. Free (3:39)
+04. Tell Me The Truth (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA887B9AC6C720FBAD3D111F28BC8C9D8C46C64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697437   (118900) от 06.02.2024
+
+Kenny Barron Trio - Lemuria-Seascape (1991) 2023, Candid [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemuria [4:36]
+02. Ask Me Now [5:31]
+03. Sweet Lorraine [7:20]
+04. Fungii Mama [5:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3324E7445B0F3B6E7C508B35DB3BA7847082A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697364   (118901) от 06.02.2024
 
 Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Metal>
@@ -496,194 +677,6 @@ magnet:?xt=urn:btih:890437C371B375AB93C6A348F6DB2E0A33BB84B6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56258D5A43105AF6DE0BB53C901917B8C5CADDB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697342   (118920) от 06.02.2024
-
-Hammerhead - Lords Of The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Waiting For The Daisies
-2. Lords Of The Sun Pt. 1: Blood & Sand / Coup De Gras
-3. Lords Of The Sun Pt. 2: Threnody / Dreamscape
-4. Faithful Heart(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8E582C282D0F128585D151D300087EB9B52912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697478   (118921) от 06.02.2024
-
-Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brutus - норвежская хард-рок-группа из Осло, Норвегия, образованная в 2007 году. У Brutus тяжелый грув, основанный на блюз-ориентированном рифф-роке 1970-х годов, в духе Black Sabbath, Grand Funk Railroad, Blue Cheer, Pentagram и других.2010 - Brutus
-2013 - Behind The Mountains
-2016 - Wandering BlindЖанр: Hard Rock, Stoner RockПродолжительность: 02:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697429   (118922) от 06.02.2024
-
-Shaytan - Chapter One (2023) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaytan (03:59)
-02. Salting the Earth (05:10)
-03. Speaking in Tongues (04:56)
-04. Tabula Rasa (04:52)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62317D68A3368E5A12C90B409F3D3FACEEAA793A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697481   (118923) от 06.02.2024
-
-Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118923.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mareridt
-A2 Maneblot
-A3 The Serpent
-A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697322   (118924) от 06.02.2024
-
-Bubba Henry - It Is What It Is (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Blues Be the Blues (4:14)
-02. I'm a Bluesman (3:18)
-03. Me and Memphis (3:41)
-04. Losing the Blues (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51711CB938DBF8D8A7762E9E5EDA7D0023AEA64F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697321   (118925) от 06.02.2024
-
-Bourbon Street Revival - Bourbon Street Revival (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolution (4:44)
-02. No More (5:06)
-03. Nine Minutes of Bliss (3:23)
-04. Ain't No Use (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD8C26BEEEF6E73D570993CE7A2A9CD93B3FEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697108   (118926) от 06.02.2024
-
-Prediction of the Witch - Sworn into the Void (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawling [00:03:07]
-02. Color of Death [00:03:40]
-03. Swamp Water [00:03:03]
-04. Monolith [00:03:30](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B3635D5916635EDA529AD2C0A5F8974620C445
 ```
 
 

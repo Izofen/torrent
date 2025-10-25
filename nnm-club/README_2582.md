@@ -1,3 +1,30 @@
+###  Публикация: 1791260   (67882) от 12.04.2025
+
+Alex Okami - Strange As Angels (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Darkwave, Post-Punk, Gothic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Dark [00:03:13]
+02. Telarañas [00:03:48]
+03. Under My Skin [00:03:22]
+04. Monster [00:03:36](   Читать дальше...   )Жанр: Darkwave, Post-Punk, Gothic RockПродолжительность: 00:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7306BA225FCA50E532DDA060BC7AA76629AA8044
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791142   (67883) от 12.04.2025
 
 Тест-драйв Avior G10 — Минтранс (12.04.2025) WEBRip [H.264/720p]
@@ -625,30 +652,6 @@ magnet:?xt=urn:btih:CFC19ECCCA606D0E16D1FD953D510AED08ABF3B3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0058C355A190E45F163ED9D1A3090340E6F5048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791058   (67908) от 12.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Purple and Turquoise Luxury Floral Texture Digital paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фиолетовая и бирюзовая цифровая бумага с роскошной цветочной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BB97F76E239544E749E39AA3FA7FEB49503D14
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1802691   (66036) от 18.06.2025
+
+Electric Church - Used and Abused (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock, Jam Band>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstar (05:30)
+ 02. On the Run (03:29)
+ 03. Devil's Creek (04:52)
+ 04. Lovin' Man (03:59)(   Читать дальше...   )Жанр: Blues Rock, Southern Rock, Jam BandПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9604833219CDF1DB2C9E6A87294FB4BCF2C032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802663   (66037) от 18.06.2025
 
 David M'ore - Holy Sinners & Sinful Saints (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -661,33 +688,6 @@ SanMinor - Ночь декабря (2015) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F7A6CCB7475B010DC36735396025B4DEDF86751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802228   (66062) от 15.06.2025
-
-88 and gone - Spiders (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  INTRO (2:08)
-02.  SPIDERS (3:58)
-03.  WISHBONE (3:20)
-04.  AGENDA (2:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE108B623A171DB463B1609E5D824D1F11AC6329
 ```
 
 

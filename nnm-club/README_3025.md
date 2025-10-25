@@ -1,3 +1,36 @@
+###  Публикация: 456118   (94129) от 22.02.2012
+
+Paul van Dyk - Vonyc Sessions 286 (17.02.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paul van Dyk in the mix:
+ 01. Cosmic Gate & Arnej - Sometimes They Come Back for More (Alex O'Rion Bigger Room Mix)
+ 02. Paul van Dyk with Austin Leeds - Verano (Paul van Dyk's Evolution Mix)
+ 03. DNS Project - Exclusive (Bigroom Mix)
+ 04. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild And Perfect Day
+ 05. Michael Woods - Full Access
+ 06. Envotion - Recoder (Extended Mix)
+
+Spotlight mix Moguai:
+ 07. Mord Fustang - We Are Now Connected(   Читать дальше...   )17.02.2012Жанр: TranceПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3678B38707735F40D87041ADB55EE6F4F338D0A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455836   (94140) от 22.02.2012
 
 VA - Black Box One (2012) [MP3|320 кб/с]<Drum & Bass>
@@ -709,39 +742,6 @@ Nerso - Exploration of Infinity (2011) [MP3|~265 кб/с (V0)]<Psychedelic / Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ADBE36E581A7BC26C9068FE873488AA0982DFCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455743   (94328) от 25.02.2012
-
-VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anjiro Rijo – Sunshine (Original Mix) (7:07)
- 02. Carl Louis & Martin Danielle - FiveAM (Thomas Sagstad Remix) (6:41)
- 03. Carl Louis, Martin Danielle - Five AM (Original Mix) (6:08)
- 04. Daviddance - South Bitchs feat Rona Geffen (Original Mix) (7:16)
- 05. Dirty South & Thomas Gold & Kate Elsworth - Alive (Idriss Chebak Xmas Remode) (5:25)
- 06. Domestic Technology - Split It Up (Original Mix) (8:00)
- 07. Garuso - I Need You (Original Mix) (7:07)
- 08. Jane Maximova - Amid The Road (Original Mix) (5:20)
- 09. Jeremy Rowlett - Vanilla Skies (Wilson & Mclennan Cruise Control Remix) (9:48)
- 010. Kanov - Meditations (Andrew Benson Remix) (7:03)20.02.2012Жанр: Progressive HouseПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD9F888C57903B51D72C45C78B504CF348DEA84
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1788055   (68662) от 28.03.2025
+
+VA - I Love ZYX Italo Disco Collection 10 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Mine - Hypnotic Tango (Extended Player '89)
+02. Robert Camero - Lady Suprise (12'' Version)
+03. Broken Dreams - Broken Dreams (12'' Version)
+04. Taco - Got To Be Your Lover (Special D.J. Remix)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91BF17B07CA365F63E4C61489EBCCE9008665AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788016   (68663) от 28.03.2025
 
 Arch Enemy - Blood Dynasty (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Melodic Death Metal, Death Metal>
@@ -642,32 +669,6 @@ VA - Amsterdam Session 2025 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FFA0E51BAA4CB4CD5EF2E8F3C7871159219DB90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787808   (68688) от 27.03.2025
-
-Шрифты - Creative Market - Archine Eamore | Fancy Classic Serif - 290922277 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archine Eamore | Fancy Classic Serif от Denustudios интересный шрифт подходящий для любых проектов.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B27A86D42B5F910412941642870FF274BB71817
 ```
 
 

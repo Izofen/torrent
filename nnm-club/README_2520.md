@@ -1,3 +1,30 @@
+###  Публикация: 1801046   (66270) от 07.06.2025
+
+Ксения Лиходеева - Лишь во сне (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Женская [00:03:46]
+02 - Лишь во сне [00:03:18]
+03 - Тишина [00:03:13]
+04 - Грешу и каюсь [00:04:04](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E211AFFCF6DE32BA07B8D3289F1FF5B4395231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800850   (66271) от 07.06.2025
 
 СЛОТ - 15 (The Best Of) (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Nu Metal>
@@ -642,33 +669,6 @@ Anthems in Ashes - This Affliction (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84EC1924B9655A4DD24B3714C18E91D38E9C46BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800252   (66296) от 01.06.2025
-
-Big Head Todd And The Monsters - Midnight Radio (1990) CD, Album, Reissue 1994 [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vincent of Jersey    [0:01:13.18]
-02. The Leaving Song    [0:04:25.47]
-03. Dinner With Ivan    [0:04:34.05]
-04. Bittersweet    [0:06:13.35](   Читать дальше...   )Жанр: Rock, Blues, Alternative RockПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFEDCEAF48E688488B7EEB47B00392367B275C0
 ```
 
 

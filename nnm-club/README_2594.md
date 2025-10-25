@@ -1,3 +1,30 @@
+###  Публикация: 1789966   (68194) от 06.04.2025
+
+VA - Urban Grooves Vol. 5 (Urban Funk Breaks Dub Hip Hop Beats) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anduze - Getting You Off (Radio Edit) (4:15)
+02.  Soulstance - Longing (4:49)
+03.  Ice One - Aspetta (Instrumental) (2:23)
+04.  De La Kyo - Nightdriver (4:19)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8DF9FFD33AF9E05D0CA8CCC17F9012813C8551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789901   (68195) от 06.04.2025
 
 Первая передача на НТВ. Автомобильная передача (06.04.2025) WEBRip [H.264/720p]
@@ -650,33 +677,6 @@ Bitterking — смелый шрифт, который идеально вопл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C123438E6153E4794D3B22022BCF5295E794EF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789908   (68220) от 06.04.2025
-
-Sheila - A L’avenir (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Chanson>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Dilemne
-02 – Les amoureux
-03 – Rac‚e
-04 – Courir(   Читать дальше...   )Жанр: Pop ChansonПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2ACF01705CE10C504AD96914F814E5E61DA675
 ```
 
 

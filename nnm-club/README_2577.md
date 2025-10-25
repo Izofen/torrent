@@ -1,3 +1,30 @@
+###  Публикация: 1791728   (67752) от 17.04.2025
+
+Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67752.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Crush Depth
+A2 - Tear Down The Walls
+A3 - Beyond My Destiny
+A4 - Arena(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:5746
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EC8D278E5F039D015C11E9DDE787796F3363A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791398   (67753) от 17.04.2025
 
 Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
@@ -656,33 +683,6 @@ Mentalist - Earthbreaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C18471EEC3707571A46382FC4196386ADDA077B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791754   (67778) от 15.04.2025
-
-The Oscar Peterson Quartet - City Lights: Live in Munich (1994) 2024, Mack Avenue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Will Never Be Another You [8:49]
-02. The Gentle Waltz [11:11]
-03. Kelly's Blues [8:49]
-04. Love Ballade [10:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FCC1310BAD955D6A15B52BFFBCE3EEA7E4901E
 ```
 
 

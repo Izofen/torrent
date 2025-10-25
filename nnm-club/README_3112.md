@@ -1,3 +1,84 @@
+###  Публикация: 487363   (100427) от 24.04.2012
+
+Texture pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола, отлично подойдут для  программы Rainmeter.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEBBF1F53CE7075273AB9E7033720B2C2AD927C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487460   (100428) от 24.04.2012
+
+Т.С.Хиабахов | Истина в вине [1992] [DJVU]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100428.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приведены правила и принципиальные основы приготовления виноградных и плодово-ягодных вин, а также крепких напитков типа коньяка. Детально описана техника органолептической оценки (дегустации) вин. Приведены методы определения основных показателей состава винограда и вина (сахаристости, кислотности, крепости, сернистой кислоты и др.). Дана справочная информация по винодельческому оборудованию.1992Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE767200BF6955BA8061A1E6DD3DFB2D012C878
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487201   (100431) от 24.04.2012
+
+Waylon Jennings - 5 Original Album Classics (2008) [MP3|320 кб/с]<Country>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100431.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2:34) 01. Mammas Don't Let Your Babies Grow Up To Be Cowboys
+(3:04) 02. The Year 2003 Minus 25
+(2:32) 03. Pick Up The Tempo
+(3:04) 04. If You Can Touch Her At All
+(2:38) 05. Lookin' For A Feeling
+(3:20) 06. It's Not Supposed To Be That Way
+(2:24) 07. I Can Get Off On You
+(3:04) 08. Don't Cuss The Fiddle
+(4:00) 09. Gold Dust Woman
+(4:02) 10. A Couple More Years(   Читать дальше...   )Жанр: CountryПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D86AF35020BCD4FFF87052B6987E679EBA2F5D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487200   (100432) от 24.04.2012
 
 Мамины загадки (1986) SATRip
@@ -639,105 +720,6 @@ Vergissmeinnicht - 2 albums (2008-2011) [mp3|320 kbps] <Neofolk, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DA5BB37DDF3DAE69C203F1369E14D6C8E968144
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487520   (100481) от 25.04.2012
-
-VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100481.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Sergey Fisun - History 2012
-002. David DeeJay feat. Ami - Magnetic
-003. Medina - Gutter
-004. Robert M And Dirty Rush - Heart Of You (Radio Edit)
-005. Ne-Yo - She Uses Me (Masturbation)
-006. Linkin Park - Wretches And Kings
-007. Maroon 5 Feat. Christina Aguilera - Moves Like Jagger (Bit Error Radio Mix)
-008. Ronski Speed feat. Renee Stahl - Out Of Control (club mix)
-009. Chuckie feat. Gregor Salto - What happens in Vegas
-010. Deepside Deejays - Never Be Alone (Radio Edit)(   Читать дальше...   )2012Жанр: Pop. DanceПродолжительность: 06:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69D30F858E998FFAAD013A088F011D4851EEAAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487620   (100483) от 25.04.2012
-
-VA - Западный Еврохит Топ-Чарт (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
-002 Gravitonas - Call Your Name
-003 Matisse & Sadko Vs. Mark Knight - Sveska Got A Love (Duher & D-Frost Bootleg)
-004 Pitbull Ft. Havana Brown - We Run The Night
-005 Baccara - Cara Mia
-006 Atlantica - La Vie Est Belle
-007 Bobina - You Belong To Me
-008 Dj Sandro Escobar Feat. Katrin Queen - Mi Amor (Radio Mix)
-009 Fumin - After Party (Starz Angels Remix)
-010 Vanguarde - Gimme Gimme Gimme (Abba)2012Жанр: Pop,DanceПродолжительность: 07:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DB178260E4FD160ED95E54704907935F9E34B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486215   (100485) от 25.04.2012
-
-Alpha Kawu - Cryogenic time (2011) [MP3|320 кб/с]<Ambient / Easy listening / Experimental / IDM>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black and white 02:48
- 2. Aufstehen 01:57
- 3. Sirius 06:20
- 4. Frozen Karl-Johans 05:43
- 5. ill gift 01:50
- 6. Kawu Sun 09:16
- 7. Cano Cristales 05:50
- 8. Sennacherib 06:53
- 9. The citadel 04:14
- 10. To nowhere (part one) 07:35(   Читать дальше...   )Жанр: Ambient / Easy listening / Experimental / IDMПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A796EEF607EFD71F937492289E02186BE247D5
 ```
 
 

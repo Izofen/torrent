@@ -1,3 +1,30 @@
+###  Публикация: 1788560   (68532) от 30.03.2025
+
+W.E.T - Apex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Believer (3:37)
+02.  This House Is on Fire (3:04)
+03.  What Are We Fighting For (4:03)
+04.  Love Conquers All (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B83ADE856D9A7B3D939E4CB45443586FBB558A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788403   (68533) от 30.03.2025
 
 Шрифты - MyFonts - Royal Portasear [OTF, TTF]
@@ -647,33 +674,6 @@ VA - Ultimate Sunset Chillout Best Selections (2025) [MP3|320 Kbps] <Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1817DCE0694A704217AC597FC9DEE6378B821835
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788204   (68558) от 29.03.2025
-
-Duke Pearson - Four Classic Albums (1959 - 1962) 2CD, 2016, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone In Love [5:29]
-02. Black Coffee [4:28]
-03. Taboo [4:53]
-04. I'm Glad I'm There [4:51](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DF518EDE67ECAAD6BC548D5817D6C3F1692CA0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1794023   (67284) от 28.04.2025
+
+Goose - Shenanigans Nite Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 So Ready(04:35)
+02 (setellite)(04:37)
+03 Madhuvan(10:16)
+04 SOS(03:41)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664EFE910D9814976A9FC7CE49FC040FDB17DD01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794386   (67285) от 28.04.2025
 
 Avenger of Blood - Revenge Is My Name (2025) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Metal, Death, Thrash Metal>
@@ -618,33 +645,6 @@ The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3172792EC8CA60EE382C321D56BE36F3C6FED7DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794034   (67310) от 28.04.2025
-
-VA - Franz Schubert – Night Wanderer (1997) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67310.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Piano Trio N°. 2 In E-flat - Andante Con Moto -10:52
-Piano – Trio Di Trieste
-2. Ave Maria
-Arranged By – Mischa Maisky - 5:32(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037622EA6732DFA29AA35B958B23A15131B31A8D
 ```
 
 

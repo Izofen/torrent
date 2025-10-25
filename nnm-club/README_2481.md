@@ -1,3 +1,27 @@
+###  Публикация: 1807562   (65256) от 19.07.2025
+
+Gaia GPS (Topo Maps) v2025.5 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планируйте путешествия и исследуйте мир с Gaia GPS на телефоне, планшете и компьютере. Широко признано, что Gaia GPS является лучшим приложением с картами для использования на открытом воздухе, оно было продемонстрировано в историях Apple "Your Verse", и о нем писали в бесчисленном количестве крупных изданий, от Outside и TrailRunner, до New York Times (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.07.2025Разработчик: TrailBehind Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B77E6DC39DB606F75355EDD485A15B12EC27348
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807443   (65257) от 19.07.2025
 
 Allavsoft Video Downloader Converter 3.28.2.9330 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -624,33 +648,6 @@ Earthen Sea - Recollection (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53840DCE54AAAEE9368D86D4C2E2F8D9B6736B04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807357   (65282) от 18.07.2025
-
-Reign Of Glory - Slingshot (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On
-02. Higher Ground
-03. Unholy Prophet
-04. Slingshot Of Faith(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400E7182541074F39E483C4F9B8ACF75EB09BCE7
 ```
 
 

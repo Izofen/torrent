@@ -1,3 +1,30 @@
+###  Публикация: 1786083   (69104) от 19.03.2025
+
+Wayne Shorter - Juju (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juju [8:33]
+02. Deluge [6:53]
+03. House of Jade [6:54]
+04. Mahjong [7:44](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F921E81DB95A71744333B2E130AF99DC7599A82E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786163   (69105) от 19.03.2025
 
 Bat - Under the Crooked Claw (2024) [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy, Speed Metal>
@@ -659,33 +686,6 @@ Heathen - Bleed the World (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Spe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E756CC631A93E64DD281003A4DE7C9F9781351B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785911   (69130) от 18.03.2025
-
-Various - Ronnie James Dio - This Is Your Life (2014) Japanese Edition, Compilation [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthrax–	Neon Knights
-Mixed By – Jay Ruston
-Written-By – Ward, Butler, Dio, Iommi
-4:29(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48F60F5CCB0565974DE53C410D99351FB96295E
 ```
 
 

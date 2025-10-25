@@ -1,3 +1,30 @@
+###  Публикация: 1705267   (63183) от 12.03.2024
+
+Various Artists - Sazz & Jaz (2013) [FLAC|Lossless|image + .cue] <Ethno, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reincarnation - Qani Vur Jan Im....
+02. Jazz Trio Levon Malkhasyan - Lorik
+03. Inga and Anush Arshakyans - Hala, Hala
+04. Mr. Avant-Garde Folk Arto Tunçboyaciyan, Armenian Navy Band - Gulo(   Читать дальше...   )Жанр: Ethno JazzПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F857080E734CC5B0D1144525405D0A44FF2AAA68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706241   (63184) от 12.03.2024
 
 Ласковый Май - Белые Розы (1989) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Electronic, Pop, Disco>
@@ -605,30 +632,6 @@ magnet:?xt=urn:btih:A9CAF4D2563ABE1DB59D015C662D2AA518521DD6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FA8DAA1F66AA6681E488966C28FA620C8915AD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706178   (63209) от 12.03.2024
-
-Волчьи дети Амэ и Юки / Ookami Kodomo no Ame to Yuki / Wolf Children / The Wolf Children Ame and Yuki (2012) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юки и Амэ — только с виду обычные дети, которым должны быть нипочем тяготы окружающего мира. Когда погибает их отец, последний представитель древнего рода оборотней, их матери — обыкновенной девушке, когда-то влюбившейся в человека, оказавшегося волком — приходится переехать подальше от большого города.Производство: Япония / Studio ChizuЖанр: аниме, мультфильм, фэнтези, драма, мелодрамаРежиссер: Мамору ХосодаПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: русские (full, forced)Продолжительность: 01:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E5C023A0B655099D386A2F59B1B8C743DD14FF
 ```
 
 
