@@ -667,3 +667,30 @@ magnet:?xt=urn:btih:F5463252875C3D8EA62F7C0721E7052CC7A9DA15
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649317   (195092) от 27.07.2023
+
+Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 5 in D minor, Op. 47
+1. I. Moderato, Allegro non troppo, Moderato (13:38)
+2. II. Allegretto (5:17)
+3. III. Largo (12:09)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C94E9B0E138D068B7EA9C76C1C27A12AEACC844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
