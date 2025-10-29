@@ -349,6 +349,33 @@ magnet:?xt=urn:btih:45DBE26BCED4C66D13D6557C15CB9B5C3604DB2B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596107   (173924) от 08.12.2022
+
+VA - Paradigm House Sound (2022) [MP3|320 Kbps] <Electronica, Progressive, Tech House, Deep Groove>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ollie S. - Hidden Heat (So.undso Remix)
+02. Phaze Dee - Make out Love (Original Mix)
+03. Rasmus Vels - Pragma (Extended Mix)
+04. Ressonant - Resonant Red Skywalker (Original Mix)(   Читать дальше...   )Жанр: Electronica, Progressive, Tech House, Deep GrooveПродолжительность: 06:12:13 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872BB9553A017F49CBF49FD99FABD86FEE6AEADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668153   (174574) от 11.10.2023
 
 VA - Top of the Morning (2023) [MP3|320 Kbps] <Pop, House, Other>
@@ -371,6 +398,33 @@ VA - Top of the Morning (2023) [MP3|320 Kbps] <Pop, House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A2776459268FC0705983F6D2DBE24DCF0EAF934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595601   (174931) от 06.12.2022
+
+VA - Christmas Dance Party 2022-2023 (2022) [MP3|320 Kbps] <House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geo Da Silva & Stephan F - Bam Bam Boogie (Extended Mix) (3:35)
+02. Turbotronic - Be My Lover (Extended Mix) (4:09)
+03. FLGTT - I Like To Move It (Extended Mix) (3:47)
+04. Stephan F & Tony T - The Power (Extended Mix) (3:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC4244AF1E2431E1B2F37DDD68757ACDD9766F0
 ```
 
 
@@ -403,6 +457,87 @@ magnet:?xt=urn:btih:87E14432C16D28A8C25636C23EAB8778B99DC573
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595310   (175424) от 05.12.2022
+
+VA - Blues & Rock part  13 Compilation (2022) [MP3|320 Kbps] <Blues, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonnie Shields - Love Games
+02. Lonnie Shields - Woman, I Want to Talk to You
+03. Lonnie Shields - Same Kind of Lovin' (Love Me All Over)
+04. Gary B.B. Coleman - Cloud Nine(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223C958F09E9E3746EE554472A44CFF327AE9AEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595497   (175462) от 05.12.2022
+
+VA - Music News vol.229 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eline Noelia feat. Falito - Unholy (02:27)
+ 002. Akon feat. Amirror - Prolly Fuck (02:08)
+ 003. Akon feat. John Mamann & Dawty Music - TT Freak (01:32)
+ 004. Alessiah - Breeze Of Love (Sean Norvis Remix) (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C254C454F5358061CADC77980781B7CA877724C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595164   (175487) от 05.12.2022
+
+VA - Rock part  12 Compilation (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaus Brandl - Red Wine Before Sunset
+02. Chris Stapleton - Devil Always Made Me Think Twice
+03. Klaus Brandl - Black Dog Smile
+04. Chris Stapleton - Cold(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B911AD68918D0639737A12FD9A352DFAADD0FBBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667725   (175738) от 09.10.2023
 
 VA - Oriental Deep 4 (2023) [MP3|320 Kbps] <Deep House>
@@ -430,6 +565,114 @@ magnet:?xt=urn:btih:43CBF25C072E5BB78E0C2B80881392A6A57981D2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595180   (175886) от 04.12.2022
+
+VA - Русские Хиты 6 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175886.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Zarubin - Open My Heart (5:14)
+002. Чёрный Крем, Deeper Craft - Девушка мечты (Deeper Craft Remix) (4:55)
+003. Ноггано - Эквадор (4:54)
+004. Max Wawe - Fire (4:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA8473F818FD4580D831ECE36B2C72C591306C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595208   (175992) от 04.12.2022
+
+VA - Record Super Chart 03.12.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
+02. Oliver Tree feat. Robin Schulz - Miss You (3:26)
+03. Eliza Rose feat. Interplanetary Criminal - B.O.T.A. (Baddest Of Them All) (Edit) (3:46)
+04. Markul & Тося Чайкина - Стрелы (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84C595F2F988592264057CB956BB2CCAA1FEEC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595062   (176033) от 04.12.2022
+
+Ana Popovic - Compilation (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How the Mighty Have Fallen
+02. Nothing Personal
+03. Catfish Blues
+04. Downtown(   Читать дальше...   )Жанр: RockПродолжительность: 02:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F95B0771BD518428B21A4D1FBA1763037A3646A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594323   (176510) от 03.12.2022
+
+VA - Hit Music: зима ( 2022) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bastard! - Don't Stop The Party
+002. Alma - Summer Really Hurt Us
+003. VAVAN - Субботним Вечером (Remix)
+004. Joel Corry feat. Tom Grennan - Lionheart (Fearless)(   Читать дальше...   )Жанр: PopПродолжительность: 14:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1136840B60489759589222843B6374CF422C05AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667413   (176587) от 08.10.2023
 
 VA - Record Super Chart 07.10.2023 [MP3|320 Kbps] <Pop, Dance>
@@ -452,249 +695,6 @@ VA - Record Super Chart 07.10.2023 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A253D883C4D173F33D187297CE03A4C73EF38CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667157   (177256) от 07.10.2023
-
-VA - Car Music Mix 4 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTBAT - Flame - Edit (5:27)
-02. Zven, Ghetto - S.W.A.T (2:13)
-03. Yves V & Fafaq - Bring It Back (2:51)
-04. Tony Igy x Pakito, K.Funk, M.Gold - Video Astronomia (Dj Baur Mixshow) (3:58)(   Читать дальше...   )Жанр: G-House, Bass Progressive, OtherПродолжительность: 08:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0D9A54C4FB73F159EB85575C830482C744BC4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667162   (177382) от 07.10.2023
-
-VA - Music News vol.304 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юля Паршута - Играя в Минор (02:41)
- 002. Alex Matthew feat. Silvia - Ultima Vara (02:56)
- 003. Alex Say feat. Subo - Зараза (Elvira T Remix) (02:19)
- 004. Ami - Nostalgia (03:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F145D15B67F706FD2BD2E696C6092F5BBD5416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666770   (178771) от 05.10.2023
-
-VA - Music News vol.303 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. LVLV - Sexy (02:13)
- 002. Alkonost - Оберег (04:59)
- 003. Alli Neumann - Berlin Nightlife (03:03)
- 004. Angelini - Душа (Mix) (03:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F9FFCAA5B2C599EEF355A4D0D55F85DCB15F3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666454   (178801) от 05.10.2023
-
-VA - Fleetwood Mac & friends Compilation (2023) [MP3|320 Kbps] <Rock, Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Need Your Love So Bad
-02. Peter Green - Slabo Day
-03. Rick Vito - I Loved Another Woman
-04. Rick Vito - I've Got a Secret(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 01:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADFC7A9C324408109039CED8932627058232502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666456   (178863) от 05.10.2023
-
-VA - Girls Fleetwood Mac Compilation (2023) [MP3|320 Kbps] <Rock, Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stevie Nicks - Blue Denim
-02. Stevie Nicks - Edge of Seventeen
-03. Christine McVie - One in a Million
-04. Stevie Nicks - Talk to Me(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FBDCBBCDCE8132C15CECFB390F88C0DC2F4A0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666161   (180033) от 03.10.2023
-
-VA - Blues Roots Of Music (2023) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roosevelt Sykes - Miss Ida B [04:55]
-02. Johnny Drummer - Another Rooster Is Pecking My Hen [04:14]
-03. Lucky Peterson - Pouring Money [03:49]
-04. Thorbjшrn Risager - Love Turned Cold [03:56](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA4CA36090A22D0E4DA6AADA06E4707414F32A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665643   (181196) от 01.10.2023
-
-VA - ЕвроХит Топ 40 Europa Plus 29.09.2023 [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troye Sivan - Rush (2:36)
-02. Olivia Rodrigo - Vampire (3:39)
-03. TwoColors, Safri Duo, Chris De Sarandy - Cynical (3:11)
-04. Rita Ora - Don't Think Twice (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C920CFF7D3F28FEA7199DACA190A90C226D02C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665415   (182158) от 30.09.2023
-
-VA - Music News vol.302 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. U2 - Atomic City (03:31)
- 002. 6LACK - Mean It (02:25)
- 003. 6LACK feat. Jessie Reyez - Homicide (03:02)
- 004. 1380 - Не Смотри Назад (01:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3706FCB6329686ADB3772CB186651577FC67A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665110   (182906) от 29.09.2023
-
-VA - Dance, Disco, Club (2023) [MP3|320 Kbps] <Dance, Disco, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vision - Heaven (feat. Andreya Triana) (7:37)
-02. Angelo Ferreri - Oh Honey (6:40)
-03. Mark Knight & Beverley Knight - Everything's Gonna Be Alright (Extended Mix) (6:10)
-04. Alex Preston - Love You Better (5:29)(   Читать дальше...   )Жанр: Dance, Disco, ClubПродолжительность: 04:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFB069D2D64E0C69C4640F6661D632A271D0745
 ```
 
 

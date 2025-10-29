@@ -1,3 +1,192 @@
+###  Публикация: 1663804   (186485) от 23.09.2023
+
+Vengeance - Sewer Surge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Attack from the Gutter	04:47
+2.	Vengeance...	04:28
+3.	Brain Damage	05:15
+4.	Disappointing Parking Lot Sex	03:40(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE22CAFB4374698F7F29FE144D81F08F2BD55A59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663442   (186584) от 22.09.2023
+
+CHI - I've Seen The Lizard People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jane [00:02:41]
+02. Belly Ache [00:03:14]
+03. Afterparty [00:02:16]
+04. And Just Like That [00:03:00](   Читать дальше...   )Жанр: Alternative, Pop-RockПродолжительность: 00:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB91447B0914BB0E8F06AFE406936C78C1627C79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663379   (186588) от 22.09.2023
+
+SDH (Semiotics Department of Heteronyms) - Fake Is Real (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, EBM, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balance (03:35)
+02. Denial (03:01)
+03. Talk In Dreams (03:55)
+04. Hollowed Out (04:16)(   Читать дальше...   )Жанр: Synthpop, EBM, Female VocalПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2971AC409226E97D386780EAB986EEDF9B13F9BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663360   (186591) от 22.09.2023
+
+Turn Me On Dead Man - Cassiopeia (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse Wow [00:05:52]
+02. My Vast Empire [00:05:41]
+03. Eva [00:04:41]
+04. Moonling [00:05:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722C14942E4F7A17A37F41ACF85DDCA55239DEF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663580   (186597) от 22.09.2023
+
+Dayshell - Pegasus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You Wish (00:03:39)
+02 - Not Welcome (00:03:46)
+03 - Attitude (00:03:56)
+04 - Give Me (00:03:47)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10671E3D34499FBAB2665963230FB4624E2B838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663153   (186748) от 21.09.2023
+
+Kim Petras - Problématique (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Problématique [00:03:03]
+02. Je T'Adore [00:03:05]
+03. All She Wants [00:03:52]
+04. Born Again [00:02:52](   Читать дальше...   )Жанр: PopПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE526F4ACD1352A6BD8F5E36A7C804E82967E9F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663156   (186828) от 21.09.2023
+
+Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186828.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Linked Between Two Minds (5:03)
+2. Crashing Into Tomorrow (5:02)
+3. It Never Takes Long To Say No (4:38)
+4. Shouldering (5:06)(   Читать дальше...   )Жанр: Post-Punk, Minimal WaveПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990840AA8CDCC887544F11118BBE464E27CFB3F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663324   (186830) от 21.09.2023
 
 The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell Ceremonial Theater And Chamber Music (1975) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Baroque>
@@ -503,192 +692,6 @@ A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660750   (189373) от 13.09.2023
-
-Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vienna Blood
-A2 Radetzky March
-A3 Tales From The Vienna Woods
-B1 The Blue Danube(   Читать дальше...   )Жанр: Classical, OrchestraПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660657   (189404) от 13.09.2023
-
-Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Settle Down
-A2 After The Laughter (Came Tears)
-A3 Butterfly
-A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660218   (189703) от 12.09.2023
-
-The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The Gondoliers" and "Yeomen Of The Guard" (1959) [FLAC 1.0|24/96||side-tracks|Vinyl-Rip] <Class ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Brass & Military, Opera, Brass BandПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659463   (190118) от 11.09.2023
-
-James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Electronic, Pop, Leftfield, Soul, Experemental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asking To Break (2:53)
-03. Tell Me (5:00)
-04. Fall Back (4:01)
-05. He's Been Wonderful (3:21)(   Читать дальше...   )Жанр: Electronic, Pop, Leftfield, Soul, ExperementalПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7AAD44A90FB74D507FF8B913E221D2321D3453
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659458   (190121) от 11.09.2023
-
-Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023) Sun Label Group, LLC [FLAC 24/96|WEB-DL|tracks] <Classic Rock, Rock'N'Roll>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Golly Miss Molly (Remastered 2023) [00:02:18]
-02. High Powered Woman (Alternate / Remastered 2023) [00:02:01]
-03. Be Bop A Lula (Remastered 2023) [00:02:26]
-04. C.C. Rider (Remastered 2023) [00:02:23](   Читать дальше...   )Жанр: Classic Rock, Rock'N'RollПродолжительность: 00:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52E08BCC090B639AB488A8D543FF7D8D568FEFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659530   (190165) от 11.09.2023
-
-Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management (UK) Limited [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ und Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190165.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Hello Sunshine (2023 Remaster) 03:34
-2 Liberty Belle (2023 Remaster) 02:57
-3 Golden Retriever (2023 Remaster) 02:27
-4 Sex, War & Robots (2023 Remaster) 03:49(   Читать дальше...   )Жанр: Alternativ und IndieПродолжительность: 03:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49074308C1ECEA2FD3F4790859E66D2C3837F4BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659476   (190186) от 11.09.2023
-
-Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Springtime (00:04:11)
-02 - The Returner (00:03:50)
-03 - All Without Within (00:03:12)
-04 - Demons (00:04:29)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F4CE31E2A8D735DA04F6B6EAD5405E6C5B2F53
 ```
 
 

@@ -483,6 +483,61 @@ magnet:?xt=urn:btih:D43C1811093839ABBC69D686A85EE086A91DB282
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595340   (175816) от 04.12.2022
+
+Демонстрационный диск DTS 5.1 CD-Audio #11 (2022) [DTS 5.1 CD-DA| 44.1/16|image+.cue|DVD-Audio] <Rock, Demo>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну и вдогонку одиннадцатый диск. Как бы вторая часть вчерашнего релиза. Материал - аналогичный - рок различных авторов, исполнителей и годов выпуска. На мой взгляд, помелодичнее вчерашнего получился.
+Все треки также имеют шесть полноценных каналов звука.При подготовке использовался материал, представленный ув. meloman, который, впрочем, не скрывал, что и сам нашел (   Читать дальше...   )01. Fleetwood Mac- Don't Stop
+02. Foreigner - Juke Box Hero
+03. Hootie & The Blowfish - I only wanna be with you
+04. Mark Knopfler - Sailing to Philadelphia(   Читать дальше...   )Продолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F53475C29521308E5A9B4D730B069AD716F07D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595112   (176042) от 04.12.2022
+
+Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <AOR/Hard Rock; Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Линн Тёрнер (англ. Joe Lynn Turner; настоящее имя Джозеф Артур Марк Линквито, англ. Joseph Arthur Mark Linquito; род. 2 августа 1951, Хакенсак, Нью-Джерси) — американский певец, а также автор песен, известный по выступлениям в группах Fandango, Rainbow, Deep Purple, Yngwie Malmsteen’s Rising Force, HTP, Mother's Army.1985 - Rescue You
+1995 - Nothing's Changed
+1997 - Under Cover
+1998 - Hurry Up And WaitЖанр: AOR/Hard Rock; Heavy MetalПродолжительность: 09:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BC13BAD60394CF97C74DB61C0E45A6083DCB12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667827   (176068) от 09.10.2023
 
 Vanishing Twin - Afternoon X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock, Art Pop>
@@ -532,6 +587,33 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F29B637561F3A37A30BE3E68989557934AD24E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595313   (176126) от 04.12.2022
+
+Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nuclear Assault — американская трэш-метал/кроссовер-трэш группа, основанная в 1984 году бас-гитаристом Anthrax Дэнни Лилкером.1986 - Game Over + The Plague (EP)
+1988 - Survive
+1989 - Handle With Care
+1991 - Out Of OrderЖанр: Thrash MetalПродолжительность: 04:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
 ```
 
 
@@ -611,87 +693,6 @@ Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7079EEE9BF6A350E91E924604FBEC4F3A49841E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667708   (176155) от 09.10.2023
-
-Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. With My Mind (4:40)
-02. Used To Feel Before (4:06)
-03. I'm Not The One (3:47)
-04. Fire (3:06)(   Читать дальше...   )Жанр: Psychedelic rock, progressive rock, acid rockПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667428   (176509) от 08.10.2023
-
-Мираж - Снова Вместе (Черновик) (1988-1989) hand made, remastered [FLAC|44/16|tracks|MB-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176509.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 (48:51)
-
-[4:33] 01. Млечный путь
-[4:45] 02. Где Я(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C3F8BE03473FF7EE213FBC12A9EE58910032A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667196   (177613) от 07.10.2023
-
-Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Nth
-A2 - Esp Ion Age
-A3 - Husk
-A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
 ```
 
 

@@ -1,3 +1,189 @@
+###  Публикация: 1660750   (189373) от 13.09.2023
+
+Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vienna Blood
+A2 Radetzky March
+A3 Tales From The Vienna Woods
+B1 The Blue Danube(   Читать дальше...   )Жанр: Classical, OrchestraПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660657   (189404) от 13.09.2023
+
+Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Settle Down
+A2 After The Laughter (Came Tears)
+A3 Butterfly
+A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660218   (189703) от 12.09.2023
+
+The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The Gondoliers" and "Yeomen Of The Guard" (1959) [FLAC 1.0|24/96||side-tracks|Vinyl-Rip] <Class ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Brass & Military, Opera, Brass BandПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659463   (190118) от 11.09.2023
+
+James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Electronic, Pop, Leftfield, Soul, Experemental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asking To Break (2:53)
+03. Tell Me (5:00)
+04. Fall Back (4:01)
+05. He's Been Wonderful (3:21)(   Читать дальше...   )Жанр: Electronic, Pop, Leftfield, Soul, ExperementalПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7AAD44A90FB74D507FF8B913E221D2321D3453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659458   (190121) от 11.09.2023
+
+Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023) Sun Label Group, LLC [FLAC 24/96|WEB-DL|tracks] <Classic Rock, Rock'N'Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Golly Miss Molly (Remastered 2023) [00:02:18]
+02. High Powered Woman (Alternate / Remastered 2023) [00:02:01]
+03. Be Bop A Lula (Remastered 2023) [00:02:26]
+04. C.C. Rider (Remastered 2023) [00:02:23](   Читать дальше...   )Жанр: Classic Rock, Rock'N'RollПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52E08BCC090B639AB488A8D543FF7D8D568FEFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659530   (190165) от 11.09.2023
+
+Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management (UK) Limited [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ und Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190165.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Hello Sunshine (2023 Remaster) 03:34
+2 Liberty Belle (2023 Remaster) 02:57
+3 Golden Retriever (2023 Remaster) 02:27
+4 Sex, War & Robots (2023 Remaster) 03:49(   Читать дальше...   )Жанр: Alternativ und IndieПродолжительность: 03:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49074308C1ECEA2FD3F4790859E66D2C3837F4BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659476   (190186) от 11.09.2023
+
+Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Springtime (00:04:11)
+02 - The Returner (00:03:50)
+03 - All Without Within (00:03:12)
+04 - Demons (00:04:29)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F4CE31E2A8D735DA04F6B6EAD5405E6C5B2F53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659500   (190207) от 11.09.2023
 
 Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, Stadium Rock and Metal>
@@ -506,195 +692,6 @@ A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, Funk�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657185   (193142) от 02.09.2023
-
-Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193142.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Battlefield
-A2 South Cross Union
-A3 Prayers Of Steel
-A4 Halloween(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9BCB9705C2EA1CE1E134C8A498F471C00136D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828332   (193427) от 24.10.2025
-
-Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garmarna — шведская фолк-рок-группа, основанная в 1990 году.1993 - Garmarna
-1994 - Vittrad
-1996 - Guds speleman
-1999 - VedergallningenЖанр: Folk RockПродолжительность: 05:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3339C8A594217714A1D05338E25254EFEA462313
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654833   (194016) от 22.08.2023
-
-Steely Dan - Can't Buy A Thrill (1972) SACD, Reissue, Remastered, 2023, Analogue Productions [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do It Again 5:56
-Soloist - Denny Dias, Donald Fagen / Vocals - Donald Fagen
-02 - Dirty Work 3:08
-Soloist, Saxophone - Jerome Richardson / Vocals - David Palmer(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA5B3A63F2CB9C30A64430FD3017FC38B2EE676
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649632   (194449) от 12.08.2023
-
-Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 72 Seasons
-02. Shadows Follow
-03. Screaming Suicide
-04. Sleepwalk My Life Away(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4702DBA6FEF8CFC85A9CF4F0B95C5943E0D26A06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646009   (195864) от 12.07.2023
-
-Юрий Шевчук, Дмитрий Емельянов - Волки в тире (2023) [FLAC|24/96|tracks|WEB-DL] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Родина, вернись домой
-02. Волки в тире
-03. Танцы
-04. Надежда(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FDB4FD68939982CF7201ABE5E62ECA8B7D0D1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643972   (196226) от 04.07.2023
-
-Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180g Electric-Blue And Orange Vinyl [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electro, Synth-pop,  ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196226.jpg" />
-</div>
-
-
-###  Подробнее
-
-00:38:54
-
-A1 Atomic
-(A. Maratrat, G. L'Her)(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 03:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638543   (197349) от 09.06.2023
-
-Rammstein - Sehnsucht (1997) Anniversary Edition, 2023, Remastered, Universal Music GmbH [FLAC 2.0|44/24|WEB-DL|tracks] <Neue-Deutsche-Härte, Industrial-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sehnsucht (4:04)
-02. Engel (4:25)
-03. Tier (3:48)
-04. Bestrafe mich (3:39)(   Читать дальше...   )Жанр: Neue-Deutsche-Härte, Industrial-MetalПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E568874E25B8166039832F9E7AA20CBF1F1889D1
 ```
 
 

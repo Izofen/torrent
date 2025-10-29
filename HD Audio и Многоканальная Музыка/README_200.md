@@ -1,3 +1,165 @@
+###  Публикация: 1666478   (179676) от 04.10.2023
+
+Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Power Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jerusalem D.C.
+A2 In Eternum
+A3 El Amor Brujo
+B1 Tu Funeral(   Читать дальше...   )Жанр: Celtic, Folk, Power Metal, Hard RockПродолжительность: 01:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A6F5D2E60D625DE094F7B18F2E46DB02F28095
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666440   (179695) от 04.10.2023
+
+October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 At The Edge Of An Empty Horizon
+A2 Bloodlines
+A3 The Verge Of Oblivion
+B1 Snakes Of The Old World(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D765D4C105AB58FD8FF557E03D6CE5AD277A4F09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666172   (180013) от 03.10.2023
+
+Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (3:04)
+02. Don't Start Now (3:03)
+03. Cool (3:29)
+04. Physical (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36D88635320CD5AD68676CE4356BFD73B4B6FF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666080   (180116) от 03.10.2023
+
+Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam (2:46)
+02. Hold On To Now (3:58)
+03. Things We Do For Love (3:10)
+04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050ECBFE7C7D63B3138ABA625EB15FBF32DBA005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666004   (180178) от 03.10.2023
+
+Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance-pop, electropop, synthpop, disco, house, EDM>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam (2:46)
+02. Hold On To Now (3:58)
+03. Things We Do For Love (3:10)
+04. Tension (3:36)(   Читать дальше...   )Жанр: Dance-pop, electropop, synthpop, disco, house, EDMПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7CF7824EC10993AE0235718685190B66E1BDE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666223   (180228) от 03.10.2023
+
+Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] [FLAC|Lossless|tracks] <House>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hit My Heart (Radio Edit) [3:13]
+2. Hit My Heart (Sfaction Mix) [5:21]
+3. Hit My Heart (Original LP Version) [5:06]
+4. Hit My Heart (Vision Mix) [6:09](   Читать дальше...   )Жанр: HouseПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78423F6EC0FD903007BE53D4D051B181D1C601CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666297   (180248) от 03.10.2023
 
 Wolf - Studio Albums (9 releases) (2000-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
@@ -73,6 +235,33 @@ YqpY - Near (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD93CD5633F0EEDD62B57ECE5F536BB089227816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593635   (180353) от 27.11.2022
+
+SHeDaisy - Whole SHebang (2003) [DTS-ES Discrete 6.1 CD-DA|44.1/16|image+.cue|DVD-Audio] <Folk, World, & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180353.jpg" />
+</div>
+
+
+###  Подробнее
+
+SHeDAISY — одна из тех современных кантри-групп, которые кантри только по названию. Три сестры Осборн — Кристин, Келси и Кэссиди — создали коллекцию современной кантри-поп, которая звучит во многом как современная поп-музыка лишь с элементами кантри. Ключом к успеху альбома является не только гармония сестер, которая очень хороша, но и прекрасные песни, написанные (   Читать дальше...   )01. Little Good-Byes 03:20
+02. I Will...But 03:40
+03. This Woman Needs 03:20
+04. Before You and Me 03:09(   Читать дальше...   )Жанр: CountryПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD88E73A3F3508433F4B6C9941BBCFF520EED56E
 ```
 
 
@@ -504,192 +693,6 @@ The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC273EB87600ACAF799EA0990CD35F1EF0A8AEEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665532   (181570) от 01.10.2023
-
-Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shape of a Ghost [00:05:36]
-02. River Runs Red [00:04:40]
-03. Kiova [00:03:48]
-04. Interstellar [00:03:38](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDBB48E176FCC3994EE047554737A7A39F6873D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665657   (181583) от 01.10.2023
-
-Surrender The Crown - IV - The Healing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The World Adjust [00:03:51]
-02. Bad Light [00:03:51]
-03. Shatter Me [00:04:07]
-04. Armor Down [00:04:01](   Читать дальше...   )Жанр: Alt.Metal, Modern Hard RockПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5477FAD9654CCEC1C0733B83C706387383B3E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665667   (181585) от 01.10.2023
-
-Sleeping With Sirens - Complete Collapse (2022) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyrants [00:03:25]
-02. Complete Collapse [00:03:12]
-03. Crosses [00:03:29]
-04. Family Tree [00:04:13](   Читать дальше...   )Жанр: Post-Hardcore, Alt.RockПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26626CD8EA73B89A54FCD6F37CA7ED6A50614F9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665820   (181600) от 01.10.2023
-
-Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Sleep (5:24)
-02. Man Made God (4:00)
-03. Once I Had A Heart (5:29)
-04. Oathkeeper (4:33)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE78EBC993EB0397F64D9E698F5FA2D66F7E40CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665572   (181613) от 01.10.2023
-
-October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Quiet Shores
-A2 Usher
-A3 Tuoni
-A4 Harvest(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665698   (181626) от 01.10.2023
-
-Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultra Ultimate Opus Power [00:02:35]
-02. Hard Day [00:03:29]
-03. Bargain [00:03:29]
-04. Subway Anthem [00:04:04](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50267A417E405875D734BE0AABC4BEA48D428420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665286   (182129) от 30.09.2023
-
-Green Day - Dookie (1994) 30th Anniversary Deluxe Edition, 2023, Reprise [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock, Punk, alternative-rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Punk, alternative-rockПродолжительность: 5CD, 03:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875BEF69C6A17BB82E6323F296C0E105B6BEA922
 ```
 
 

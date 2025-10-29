@@ -1,683 +1,668 @@
-###  Публикация: 1665578   (181566) от 01.10.2023
+###  Публикация: 1594498   (178134) от 01.12.2022
 
-The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore, Progressive Metal>
+Mutter Slater Band - The Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Agora [00:03:35]
-02. Otus [00:09:38]
-03. 2054 [00:07:23]
-04. Urian [00:07:28](   Читать дальше...   )Жанр: Mathcore, Progressive MetalПродолжительность: 00:52:11
+01. The Party (4:06)
+02. Let's Call It a Draw (4:15)
+03. Treason (4:13)
+04. Show Me You Care (7:01)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:42:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC273EB87600ACAF799EA0990CD35F1EF0A8AEEF
+magnet:?xt=urn:btih:77757A98F05E3DD965D5E20041BD4CE5C256023E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665532   (181570) от 01.10.2023
+###  Публикация: 1666884   (178135) от 06.10.2023
 
-Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+Б.П. Левитт (ред.) | Физическая химия быстрых реакций (1976) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shape of a Ghost [00:05:36]
-02. River Runs Red [00:04:40]
-03. Kiova [00:03:48]
-04. Interstellar [00:03:38](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:35
+Перевод книги Physical Chemistry of Fast Reactions Volume 1: Gas Phase Reactions of Small Molecules выполненный издательством "Мир".
+Книга посвящена исследованию элементарных стадий быстрых реакций.Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEDBB48E176FCC3994EE047554737A7A39F6873D
+magnet:?xt=urn:btih:DF4B48062F99D77694B85356147EB9F4C407BFCE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665619   (181574) от 01.10.2023
+###  Публикация: 1666812   (178137) от 06.10.2023
 
-Kaoru Nakasone - Fragrance (2000) M&I [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Soft Organizer Pro 9.41 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soft Organizer - утилита для полного удаления ненужных программ из системы.
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0736B6ED0E075FE1F2DF1ED2185DD1D0CF1EE5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594576   (178139) от 01.12.2022
+
+The Wicked Lo-Down - We Hot (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Hot (3:24)
+02. Lena (3:43)
+03. Mind Your Mind (5:01)
+04. Let Me In (2:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1A9A5D4911CFC379814C1DCB0AD94A27F94BA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666824   (178142) от 06.10.2023
+
+EssentialPIM Pro 11.7.1 RePack (& portable) by elchupacabra[Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и функциональный почтовый клиент и органайзер, который предлагает интеграцию со всеми основными онлайн-сервисами.
+EssentialPIM - это отмеченное различными наградами решение для всех ваших потребностей в производительности. Поддерживаемая большим сообществом пользователей, приложение получило широкое признание как самый мощный, интуитивно понятный и персонализируемый (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746341031C2FF846B9DB3203655CEAB70CA5BF32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666973   (178145) от 06.10.2023
+
+Macrorit Partition Expert 8.0.0 Unlimited Edition RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D59E1575D0FB306C6FD8A82E5A02B64BA616325
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666972   (178147) от 06.10.2023
+
+DesktopDigitalClock 5.05 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178147.jpg" />
+</div>
+
+
+###  Подробнее
+
+DesktopDigitalClock - простые и красивые цифровые часы для рабочего стола с различными темами оформления и настройками отображения на любой вкус.
+Присутствуют сменные темы оформления, возможность вручную устанавливать прозрачность, шрифт, цвет и расположение на рабочем столе (также имеется возможность зафиксировать часы в центре экрана). Приложение практически не (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398274222FFA6A3505E91E85D44A83E8C1B2323D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666975   (178150) от 06.10.2023
+
+Halloween Stories 7: Written in Blood (2023) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии страшилок Halloween Stories. Жизнь исследователей паранормальных явлений никогда не бывает скучной! Очередное расследование привело их в музей. Проблема, похоже, связана с появлением таинственной черной книги, которую музей намеревался показать на специальной выставке, посвященной ужасам. Однако с самого начала все пошло не так, как (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5B615FEE8A90EE6D06BDE10CDB9B8444DFA48D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667036   (178154) от 06.10.2023
+
+Арнальд Индридасон | Детектив Конрауд (Книга 2). Девочка у моста (2023) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конрауд, полицейский в отставке, невольно оказывается втянутым в старые нераскрытые дела об убийствах, когда с ним связывается пожилая пара по поводу исчезновения внучки Данни.
+Тем временем Конрауд расследует дело своего отца, убитого при загадочных обстоятельствах. Он вступает в контакт с дочерью близкого друга отца, Эйглоу, которая оказывается медиумом. Ее преследуют (   Читать дальше...   )Жанр: Детективы, триллерыИздательство: Аудиокнига (АСТ)Продолжительность: 11:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489FEBE44B3E327148594703B83E1D0D26420DE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594508   (178156) от 01.12.2022
+
+White Wizzard - Infernal Overdrive (2018) Japan [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infernal Overdrive 04:53
+02. Storm the Shores 04:30
+03. Pretty May 03:18
+04. Chasing Dragons 08:15(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31AA48E35350E0DA4E199C2F94C3F3B9C8A236C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594068   (178157) от 01.12.2022
+
+Каширский Кот - 2 Albums (2019-2022) [MP3|320 Kbps] <Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эмиграция-твист (Alternative) [00:04:03]
+02. Зараза [00:03:45]
+03. Мистер вверх дном [00:04:19]
+04. Таракан [00:03:02](   Читать дальше...   )Жанр: Garage RockПродолжительность: 2 CD, 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B612C715C2CCD136A01597F5958E0EF6BB967C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594482   (178159) от 01.12.2022
+
+Sara Bae - Deep South (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep South (3:16)
+02. King of love (3:21)
+03. Moon and sun (3:21)
+04. Mama bear (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1B16011F1E3D8944763D22AE11D52725D4EA3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594510   (178161) от 01.12.2022
+
+Nidaros Blueskompani - Live in Nidaros studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's allright, it's all good. (Live) (3:11)
+02. Stick with me baby. (Live) (4:25)
+03. Cool rockin' grandpa. (Live) (4:20)
+04. Tuff little cookie. (Live) (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6571544986F61591845E6D74C24219F8E56A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594494   (178163) от 01.12.2022
+
+Karma Jack - Lights Out Ep. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm On Fire (3:56)
+02. Fallen Man (3:41)
+03. Lights Out (4:13)
+04. Days of Old (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679F38B8D5308A3C297689C440FA9087BC5D8731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666904   (178166) от 06.10.2023
+
+Wise Auto Shutdown 2.0.4.105 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Auto Shutdown позволяет Вам отключать компьютер, перезагружать его, отключать питание, выходить из системы, переходить в спящий режим или в режим гибернации на регулярной основе или определенное время. Это значительно упрощает управление питанием. Работает в фоновом режиме и показывает напоминание за 5 минут перед выполнением, если стоит соответствующая галочка.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F657F11D543C93EB46257AD1B23CD449C554605
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594438   (178167) от 01.12.2022
+
+The Blum'S - 2 Albums, 1 EP, 1 Single (2020-2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2020 - Только не бойся (EP)
+2022 - Завтра убьют
+2022 - Неизданное(   Читать дальше...   )Жанр: RockПродолжительность: 4 CD, 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549D2EB366B54BE7EBE02F1AB889896F4D4EAA3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594416   (178169) от 01.12.2022
+
+Jukkis Uotila & The Stockholm Jazz Orchestra - The Music Of Jukkis Uotila (2012) KSJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Daddy [5:20]
-02. I Didn't Know What Time It Was [3:51]
-03. Fever [5:04]
-04. Love Is Like That [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:47
+01. Avenida [12:56]
+02. Wayne [10:21]
+03. Isla de Angeles [8:53]
+04. Loopy Loop [9:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 01:16:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C100BB8A4DDB67AB5D8D8FBA6608AE98BAC8BEF1
+magnet:?xt=urn:btih:0AB6D1FDE6A5A00D70BA7B947DA0590961A96174
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665720   (181579) от 01.10.2023
+###  Публикация: 1666968   (178170) от 06.10.2023
 
-Velocidad 22 - Alcohol y gasolina (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hijos del caos 03:18
-02. El heavy es violencia 03:47
-03. Alcohol y gasolina 03:30
-04. Ellos viven 03:25(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC79DA38E741D82767B15635A85AF5C5DF752ECA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665657   (181583) от 01.10.2023
-
-Surrender The Crown - IV - The Healing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The World Adjust [00:03:51]
-02. Bad Light [00:03:51]
-03. Shatter Me [00:04:07]
-04. Armor Down [00:04:01](   Читать дальше...   )Жанр: Alt.Metal, Modern Hard RockПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5477FAD9654CCEC1C0733B83C706387383B3E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665667   (181585) от 01.10.2023
-
-Sleeping With Sirens - Complete Collapse (2022) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyrants [00:03:25]
-02. Complete Collapse [00:03:12]
-03. Crosses [00:03:29]
-04. Family Tree [00:04:13](   Читать дальше...   )Жанр: Post-Hardcore, Alt.RockПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26626CD8EA73B89A54FCD6F37CA7ED6A50614F9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665616   (181588) от 01.10.2023
-
-The Thelonious Monk Quartet - Monk's Dream (1962) 2014, Original Recordings Group [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monk's Dream [5:44]
-02. Body and Soul [4:34]
-03. Bright Mississippi [7:59]
-04. Five Spot Blues [3:21](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9816086175E6C1999A59572D710957123E3F7459
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665505   (181591) от 01.10.2023
-
-Coal and Steel - Miners for Real (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Miners for Real (03:07)
-02 - Loverboy (04:06)
-03 - Warriors Call (03:04)
-04 - Coal in the Blood (04:33)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4197AF9DC848109EC03FB9681C46AF2B537A1E69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665818   (181595) от 01.10.2023
-
-Dyecrest - Once I Had A Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Sleep (5:24)
-02. Man Made God (4:00)
-03. Once I Had A Heart (5:29)
-04. Oathkeeper (4:33)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53DDFD907B798ED872ECF3A066C62EC8EDB2DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665712   (181597) от 01.10.2023
-
-Destabilizer - Violence Is The Answer! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Violence Is The Answer! (04:26)
-02 - Iconoclast (05:21)
-03 - The Road To Hell (04:03)
-04 - Progress (03:00)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A89FC56061066C5E805A2FB75EB3C42385A9672
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665820   (181600) от 01.10.2023
-
-Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Sleep (5:24)
-02. Man Made God (4:00)
-03. Once I Had A Heart (5:29)
-04. Oathkeeper (4:33)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE78EBC993EB0397F64D9E698F5FA2D66F7E40CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665489   (181606) от 01.10.2023
-
-Ataraxie - Slow Transcending Agony (2005) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Step into the Gloom (06:14)
-02. Funeral Hymn (10:07)
-03. L'Ataraxie (11:44)
-04. Slow Transcending Agony (11:43)(   Читать дальше...   )Жанр: Funeral Doom, Death MetalПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492D61420E53EFFC80D813E919F26F8AF7F853BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665773   (181610) от 01.10.2023
-
-Его дочь / His Daughter (1911) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уильям обещает жениться на своей возлюбленной Мэри после окончания медицинской школы. Отец Уильяма скопил достаточно денег, чтобы открыть ему медицинскую практику. Однако отец-алкоголик Мэри, из-за своих пьянок позабывший, что такое честь и совесть, задумал украсть эти сбережения. А ведь это может разрушить будущее его дочери! Чем же закончится эта драматическая (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: короткометражный, драма, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Эдвин Аугуст, Флоренс Баркер, В. Кристи Миллер, Джордж Николс, Глэдис Иган, Кейт Брюс, Линда Арвидсон, Уилфред Лукас, Мак Сеннет, Бланш СвитПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126525465AB76782C7D9DB955E88A5DCDF8AAB7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665572   (181613) от 01.10.2023
-
-October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Quiet Shores
-A2 Usher
-A3 Tuoni
-A4 Harvest(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665698   (181626) от 01.10.2023
-
-Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultra Ultimate Opus Power [00:02:35]
-02. Hard Day [00:03:29]
-03. Bargain [00:03:29]
-04. Subway Anthem [00:04:04](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50267A417E405875D734BE0AABC4BEA48D428420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665785   (181631) от 01.10.2023
-
-Create Illusions - Illusion I (2023) [FLAC|Lossless|WEB-DL|tracks] <Italy Progressive, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorpions On Fire [00:04:44]
-02. Crumbs Of Life [00:04:22]
-03. I Will Follow You [00:03:51]
-04. I'ts Only a Matter of Time [00:04:19](   Читать дальше...   )Жанр: Italy Progressive, Heavy MetalПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860FE9D2E1B3C3ECB00EB872B8285E21145EDF55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665711   (181633) от 01.10.2023
-
-Sacrifix - Killing Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181633.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Age of Doom Killing Machine 05:52
-2.Guided By God 04:31
-3.Reality Is Lost 04:44
-4.March To Kill 04:05(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475F59BB414826DB7619EB0738D9917ED40E5371
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665709   (181637) от 01.10.2023
-
-Bear - Vanta (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Groove Metal, Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atone [00:04:13]
-02. Cisplatin [00:03:48]
-03. Defeatist [00:05:22]
-04. Repose Beyond Fate [00:03:53](   Читать дальше...   )Жанр: Progressive, Groove Metal, Math MetalПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AABF64F0613293EBC48AA92A019FC076A265AE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665623   (181640) от 01.10.2023
-
-Michael Wolff - Impure Thoughts (2000) Indianola Music Group [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eritrea [7:54]
-02. Papa Was a Rolling Stone [6:34]
-03. Euphoria [5:15]
-04. Bengal [6:43](   Читать дальше...   )Жанр: Post-Bop, Jazz Fusion, Piano JazzПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855DB1E13C44395779FFCD20F558D565C41693D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665751   (181643) от 01.10.2023
-
-Endseeker - Corrosive Revelation (2015) EP [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corrosive Revelation
-02. Attention War
-03. Consumed By Desire
-04. Deployment Of The Aroused(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7679497003FB2671FD5B10D1CE6CC129C4A2291A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665615   (181645) от 01.10.2023
-
-Hank Mobley - Hank Mobley (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mighty Moe & Joe [6:53]
-02. Falling in Love with Love [5:29]
-03. Bags' Groove [6:01]
-04. Double Exposure [7:48](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC608462E74DEEAC0EDFA48A44FDCB5A34E845D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664662   (181659) от 30.09.2023
-
-Гран туризмо / Gran Turismo (2023) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напряжённая спортивная драма, вдохновлённая одноимённой видеоигрой и основанная на реальной истории талантливого подростка-геймера Яна Марденборо, с детства увлекающегося автомобилями и видеоигрой «Gran Turismo», в которой он добился большого успеха. Наконец, Ян становится настоящим профессиональным автогонщиком после победы в серии соревнований Nissan благодаря (   Читать дальше...   )Производство: США, Япония, 2.0 Entertainment, Epic Films, Michael De Luca Productions, PlayStation Productions, Sony Pictures Entertainment, Trigger Street ProductionsЖанр: боевик, драма, приключения, спортРежиссер: Нил БломкампАктеры: Арчи Мадекве, Орландо Блум, Дэвид Харбор, Никхил Пармар, Мэйв Куртье-Лилли, Дэниэл Пуиг, Джимон Хонсу, Джери Халлиуэлл, Даррен Барнет, Джоша СтрадовскиПеревод: Дублированный (Лицензия)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Украинские (Forced, Full), Английские (Forced, Full)Продолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A030331B2C9855271079E1D4F54F1C1DE7CBD2BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657208   (181678) от 30.09.2023
-
-Разочарование / Disenchantment (2023) WEB-DL [H.264/1080p] (сезон 5, серии 1-10 из 10) AlexFilm, TVShows, HDRezka Studio
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие мультсериала происходит в фэнтезийном мире и берет своё начало в королевстве Дримленд. В центре сюжета оказывается принцесса Тиабиния, которой уже порядком надоела скучная и унылая жизнь во дворце. К тому же в ближайшее время состоится её свадьба, вот только перспектива выйти замуж непонятно за кого девушку совершенно не радует, ведь она мечтает о настоящей (   Читать дальше...   )Производство: США, Netflix, The Curiosity Company, The ULULU CompanyЖанр: мультфильм для взрослых, фэнтези, комедия, приключенияРежиссер: Дуэйн Кэри-Хилл, Питер Аванзино, Ира ШеракАктеры: Эбби Джейкобсон, Нат Факсон, Эрик Андре, Джон Ди Маджио, Тресс МакНилл, Шэрон Хорган, Дэвид Херман, Морис ЛаМарш, Билли Уэст, Рич ФулчерПеревод: Многоголосый профессиональный (AlexFilm, TVShows, HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH), украинскиеПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861302D8E7FD771A4613F3F3817097FA9BA40335
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665312   (181704) от 30.09.2023
-
-57 секунд / 57 Seconds (2023) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техноблогер Франклин случайно предотвращает покушение на известного визионера и инновационного гуру, достигшего невероятных успехов в сфере медицины. Подобрав оброненное им кольцо, молодой человек обнаруживает, что оно дает своему носителю возможность переноситься в прошлое на 57 секунд. Франклин решает воспользоваться находкой и с помощью чудо-кольца отомстить тем, (   Читать дальше...   )Производство: США / Ashland Hill Media Finance, Curmudgeon FilmsЖанр: фантастика, триллерРежиссер: Расти КандиффАктеры: Морган Фриман, Джош Хатчерсон, Грег Джерманн, Лови Симон, Бевин Брю, Грифф Ферст, Сэмми Ротиби, Аарон Хэнсон,Маркус Браун, Дэвид КаллауэйПеревод: Дублированный (Pride Production)Язык озвучки: русский, английскийСубтитры: русские (forced, full)Продолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DBFD79E896A92ED71044404E6BF76A47D05942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664881   (181709) от 30.09.2023
-
-Российские ИТ-шники доигрались. Крупный бизнес спешит заменить их искусственным интеллектом в ближайшие годы
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181709.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ростелеком» намерен решить проблему нехватки ИТ-кадров внедрением искусственного интеллекта. Оператор запускает собственную ИИ-платформу по разработке программного обеспечения «Лукоморье», лицензию на использование которой в дальнейшем смогут приобрести сторонние компании, столкнувшиеся с дефицитом программистов.Современные проблемы требуют современных решений
-Российский (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642641   (181712) от 30.09.2023
-
-Захваченный рейс / Hijack (2023) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 1, серии 1-7 из 7) Невафильм, HDRezka
+Дом через дорогу / The House Across the Street (2022) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
 
 >>Зарубежные сериалы
->>
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семичасовой рейс KA29, следующий из Дубая в Лондон, захватывают неизвестные. Сэм Нельсон, опытный корпоративный переговорщик, решает применить свои профессиональные навыки, чтобы спасти всех на борту.Производство: США, 60Forty Films, Green Door Pictures, Idiotlamp ProductionsЖанр: триллер, драмаРежиссер: Джим Филд Смит, Мо АлиАктеры: Идрис Эльба, Арчи Панджаби, Макс Бисли, Нил Мэскелл, Бен Майлз, Каиса Хаммарлунд, Зора Бишоп, Джереми Энг Джонс, Кейт Филлипс, Джаспер БриттонПеревод: Дублированный (Невафильм), многоголосый профессиональный (HDRezka Studio)Язык озвучки: русский, украинский, английскийСубтитры: русские (forced, full, SDH), английские (forced, full, SDH), украинскиеПродолжительность: ~00:45:00 серия
+Клаудия, одинокая мать-одиночка и школьная медсестра, жаждет общения. Ее возможность стать героем появляется, когда маленький ребенок её соседей, Эмили Винтер, пропадает без вести. Клаудия оказывается втянутой в это дело и зацикливается на раскрытии правды. Однако ее увлечение быстро начинает превращаться в одержимость не только тем, что случилось с Эмили, но и семьей (   Читать дальше...   )Производство: Великобритания / Channel 5 Productions, Clapperboard Studios, MK1 ProductionsЖанр: триллер, драмаРежиссер: Доминик ЛеклеркАктеры: Иэн Ллойд Андерсон, Ширли Хендерсон, Крэйг Паркинсон, Лиза Хогг, Сара Пауэлл, Caleb Wilson, Calum Jess, Ронан Лихи, Люк Гриффин, Eddie BrettПеревод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:690DD64E54AE9B9C804038D100617EE734A3989C
+magnet:?xt=urn:btih:65FAF481DA67C2DD85CCCFD027F825C8B4A3D2B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594366   (178172) от 01.12.2022
+
+Syar - Death Before Dishonour (1984) [WavPack|Lossless|image + .cue] <NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 On The Streets
+02 Speeder
+03 Find The Angel
+04 I'm Taking Off(   Читать дальше...   )Жанр: NWOBHMПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6DD47D39962238ACF2296564450778061C0F44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666906   (178173) от 06.10.2023
+
+ChrisPC Win Experience Index 7.22.06 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178173.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChrisPC Win Experience Index - бесплатная утилита, с помощью которой можно самостоятельно измерить системный индекс производительности в Windows (в последних версиях Windows разработчики отказались от графической формы этого инструмента).
+Значительно расширяет возможности стандартного индекса. Обладает простым понятным интерфейсом, быстро устанавливается и не требует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7F0112B7F8F44093C041234795DFA09240A4B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594446   (178175) от 01.12.2022
+
+Vikram - Behind The Mask I (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taar
+02. The Mortal Dance Of Kali
+03. Réquiem For Salem
+04. Burn In Hell(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6ECD6332B53DE84F7363F354591C91C7DE67D3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666991   (178176) от 06.10.2023
+
+Wondershare PDFelement 10.0.7.2464 RePack by elchupacabra + OCR Plugin [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229EED82E8DF67CB291C0FA248F4F38E5EDD84F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667006   (178178) от 06.10.2023
+
+Sandboxie plus 1.11.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3222919A47CB42DE6D9A8164B6DAD25D827C6297
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594124   (178179) от 01.12.2022
+
+Sobernot - Destroy (2022) [MP3|320 Kbps] <Thrash, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178179.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	No Mercy	04:07
+2.	Smoke Masters (Gimme My Money Back)	04:59
+3.	Death by Cunnilingus	04:24
+4.	Tyrant Machine	04:23(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9A3EC3C8E87CD6E4DF00C9409CE111598F7D182
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666823   (178182) от 06.10.2023
+
+XYplorer 25.00.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178182.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer - продвинутый файловый менеджер, который внешне напоминает стандартный Проводник Windows, но имеет множество дополнительных функций и инструментов для удобной работы с файлами. Особенностью этого менеджера является поддержка мультивкладок - откройте столько окошек, сколько Вам нужно, и быстро переключайтесь между ними.
+Приложение имеет гибкие настройки и (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F54C1D8CE19D02EC99E678B3D7D60A0EBB9CAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594477   (178183) от 01.12.2022
+
+VA - Doom or be Doomed (2022) [FLAC|Lossless|image + .cue] <Doom Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candlemass - Sweet Evil Sun 03:42
+02. Candlemass - Scandinavian Gods 04:39
+03. Candlemass - Flowers of Deception 06:13
+04. Ahab - Time's Like Molten Lead 11:04(   Читать дальше...   )Жанр: Doom Metal, Stoner RockПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89755A0907105A8DC907F7EFAE2539583C58C40F
 ```
 
 

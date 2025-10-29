@@ -371,6 +371,60 @@ magnet:?xt=urn:btih:34AAA72DB8E8085B95AF966E6733A610E517CBDE
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595112   (176042) от 04.12.2022
+
+Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <AOR/Hard Rock; Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Линн Тёрнер (англ. Joe Lynn Turner; настоящее имя Джозеф Артур Марк Линквито, англ. Joseph Arthur Mark Linquito; род. 2 августа 1951, Хакенсак, Нью-Джерси) — американский певец, а также автор песен, известный по выступлениям в группах Fandango, Rainbow, Deep Purple, Yngwie Malmsteen’s Rising Force, HTP, Mother's Army.1985 - Rescue You
+1995 - Nothing's Changed
+1997 - Under Cover
+1998 - Hurry Up And WaitЖанр: AOR/Hard Rock; Heavy MetalПродолжительность: 09:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BC13BAD60394CF97C74DB61C0E45A6083DCB12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595313   (176126) от 04.12.2022
+
+Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nuclear Assault — американская трэш-метал/кроссовер-трэш группа, основанная в 1984 году бас-гитаристом Anthrax Дэнни Лилкером.1986 - Game Over + The Plague (EP)
+1988 - Survive
+1989 - Handle With Care
+1991 - Out Of OrderЖанр: Thrash MetalПродолжительность: 04:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667818   (176139) от 09.10.2023
 
 Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, Progressive Death Metal>
@@ -445,6 +499,35 @@ A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594487   (177838) от 01.12.2022
+
+Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pretty Maids — датская рок-группа, основанная в 1981 году в Хорсенсе, Дания.
+Стиль группы можно определить как достаточно мелодичный, с использованием клавишных, хэви-метал и пауэр-метал, несколько более мягкий, нежели у Running Wild или Helloween, но более жёсткий, чем у Europe.
+Группа была создана гитаристом Кеном Хаммером и вокалистом Ронни Аткинсом в 1981 году (   Читать дальше...   )1983 - Pretty Maids (EP)
+1984 - Red, Hot And Heavy
+1987 - Future World
+1990 - Jump The GunЖанр: Melodic Heavy MetalПродолжительность: 13:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
 ```
 
 
@@ -606,87 +689,6 @@ A4 Hardbreaks(   Читать дальше...   )Жанр: Heavy MetalПродо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D5BDD0DA815AC715F26E84E79DD415E55EFE73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666697   (179068) от 05.10.2023
-
-Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179068.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Chain Gang
-A2 Money Doesn't Count
-A3 Danger Comeback
-A4 Icecold(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666478   (179676) от 04.10.2023
-
-Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Power Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Jerusalem D.C.
-A2 In Eternum
-A3 El Amor Brujo
-B1 Tu Funeral(   Читать дальше...   )Жанр: Celtic, Folk, Power Metal, Hard RockПродолжительность: 01:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A6F5D2E60D625DE094F7B18F2E46DB02F28095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666440   (179695) от 04.10.2023
-
-October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 At The Edge Of An Empty Horizon
-A2 Bloodlines
-A3 The Verge Of Oblivion
-B1 Snakes Of The Old World(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D765D4C105AB58FD8FF557E03D6CE5AD277A4F09
 ```
 
 

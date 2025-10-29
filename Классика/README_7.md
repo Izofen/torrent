@@ -559,6 +559,33 @@ magnet:?xt=urn:btih:06DD651DE0FEAF4F20CC2D1478EFE380DF0DEF6C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595899   (174467) от 07.12.2022
+
+Igor Ruhadze, Alexandra Nepomnyashchaya - Geminiani: Violin Sonatas, op.1 (2022) 2xCD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174467.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+1 - Violin Sonata No. 1 in A Major, H.13: I. Adagio - Presto - Adagio - Presto - Adagio - Presto – Adagio
+2 - Violin Sonata No. 1 in A Major, H.13: II. Allegro
+3 - Violin Sonata No. 1 in A Major, H.13: III. Grave(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB09C8E56718A081BD155E7C5CFC3C48453E8CC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666300   (175804) от 09.10.2023
 
 Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL|tracks] <neoclassical/crossover/art-rock/ethno/progressive>
@@ -586,6 +613,60 @@ magnet:?xt=urn:btih:11EC3FF8201809C9F5768C52F6297A600822742E
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594318   (176580) от 03.12.2022
+
+VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Vyacheslav Gryaznov, Katya Kramer-Lapin - Peer Gynt Suite No. 1, Op. 46 I. Morning Mood (Arr. for 2 Pianos) (3:39)
+04. Maria Nemtsova - The Nutcracker Suite, Op. 71a I. March (Arr. for Piano) (2:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F746852BF458B6AEDDBF6799DBA95160B52F464A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594164   (177921) от 01.12.2022
+
+Yevgeny Kissin, Berg, Chopin, Gershwin, Khrennikov - The Salzburg Recital (2022) 2×CD [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177921.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ Alban Berg
+01. Piano Sonata, Op.1
+(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664196   (185935) от 25.09.2023
 
 Raphael Feuillatre - Visages Baroques (2023) [FLAC|Lossless|image + .cue] <Classical, guitar>
@@ -608,87 +689,6 @@ Joseph-Nicolas-Pancrace Royer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:061BD3D5E9319B6405B280E44BC833F0F2C5281C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655323   (193811) от 26.08.2023
-
-André Rieu - Voila! The Music of André Rieu (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voilà (5:10)
-02. Con te partirò (4:18)
-03. Memory (Live) (3:50)
-04. The Second Waltz, Op. 99a (3:42)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 01:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECBAB9316B1DDC665DCCF53CCE9E3DDBCED46E84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655108   (193917) от 24.08.2023
-
-Kozeluch, Marius Bartoccini & Ilario Gregoletto - Complete Music For Piano 4-Hands (2022) 2 x CD [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193917.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Sonata for keyboard 4-hands Op.4 in F
-1. I. Allegro molto
-2. II. Adagio(   Читать дальше...   )Жанр: Classical, FortepianoПродолжительность: 01:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5463252875C3D8EA62F7C0721E7052CC7A9DA15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649317   (195092) от 27.07.2023
-
-Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 5 in D minor, Op. 47
-1. I. Moderato, Allegro non troppo, Moderato (13:38)
-2. II. Allegretto (5:17)
-3. III. Largo (12:09)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C94E9B0E138D068B7EA9C76C1C27A12AEACC844
 ```
 
 

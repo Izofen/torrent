@@ -403,6 +403,60 @@ magnet:?xt=urn:btih:87E14432C16D28A8C25636C23EAB8778B99DC573
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594323   (176510) от 03.12.2022
+
+VA - Hit Music: зима ( 2022) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bastard! - Don't Stop The Party
+002. Alma - Summer Really Hurt Us
+003. VAVAN - Субботним Вечером (Remix)
+004. Joel Corry feat. Tom Grennan - Lionheart (Fearless)(   Читать дальше...   )Жанр: PopПродолжительность: 14:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1136840B60489759589222843B6374CF422C05AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593443   (180964) от 26.11.2022
+
+VA - German Top 100 Single Charts 25.11.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180964.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peter Fox - Zukunft Pink (feat. Inez) (3:50)
+002. Sam Smith & Kim Petras - Unholy (2:36)
+003. Nina Chuba - Wildberry Lillet (2:11)
+004. David Guetta & Bebe Rexha - I'm Good (Blue) (2:55)(   Читать дальше...   )Жанр: PopПродолжительность: 05:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28675983527B47EDE2377E60DD84ACD304BB3AE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827248   (185749) от 20.10.2025
 
 Amadeus Angelus - Collection (2021) [MP3|320 Kbps] <Euro-Disco>
@@ -641,60 +695,6 @@ VA - Pop 3 Remix NNM (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADEBE046AC365B1329D7A38382E5D614B14EC969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640460   (196897) от 19.06.2023
-
-VA - Музыка для машины Vol.27 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Саша Санта - Время-Жить (03:04)
-02. Jake Shears Feat. & Kylie Minogue - Voices (04:27)
-03. Kalifarniya - Puerto-Rico (03:53)
-04. Андрей Картавцев - Налей Огня (03:49)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF8ADC8333F56A8F98AEBD60637CFDD49E268C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829678   (201786) от 
-
-Sofia Bellini - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Your Smile, My Sunshine
- 02 - Amore Mio
- 03 - Come Stai, Tesoro? (Version 1)
- 04 - È Una Meraviglia!(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7D8E25852555CACAED546E2096AA692382ABB1
 ```
 
 

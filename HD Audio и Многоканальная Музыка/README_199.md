@@ -1,3 +1,141 @@
+###  Публикация: 1667708   (176155) от 09.10.2023
+
+Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With My Mind (4:40)
+02. Used To Feel Before (4:06)
+03. I'm Not The One (3:47)
+04. Fire (3:06)(   Читать дальше...   )Жанр: Psychedelic rock, progressive rock, acid rockПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595115   (176404) от 03.12.2022
+
+Демонстрационный диск DTS 5.1 CD-Audio #10 (2022) [DTS 5.1 CD-DA| 44.1/16|image+.cue|DVD-Audio] <Rock, Demo>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176404.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вот, наконец, и мой десятый, юбилейный диск, являющийся продолжением предыдущих раздач этой серии. Материал в нем - в основном - рок различных авторов, исполнителей и годов выпуска.
+Все треки имеют шесть полноценных каналов звука.При подготовке использовался материал, представленный ув. meloman, который, впрочем, не скрывал, что и сам нашел его на просторах Сети (   Читать дальше...   )01. America - Ventura Highway
+02. Chicago - 25 or 6 to 4
+03. The Corrs - Breathless
+04. Crowded House - Don't Dream It's Over(   Читать дальше...   )Продолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D01822FF13DE433B4100F1E1E46B6215FB5735A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667428   (176509) от 08.10.2023
+
+Мираж - Снова Вместе (Черновик) (1988-1989) hand made, remastered [FLAC|44/16|tracks|MB-Rip] <Pop, Dance, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176509.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1 (48:51)
+
+[4:33] 01. Млечный путь
+[4:45] 02. Где Я(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C3F8BE03473FF7EE213FBC12A9EE58910032A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667196   (177613) от 07.10.2023
+
+Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177613.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Nth
+A2 - Esp Ion Age
+A3 - Husk
+A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594487   (177838) от 01.12.2022
+
+Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pretty Maids — датская рок-группа, основанная в 1981 году в Хорсенсе, Дания.
+Стиль группы можно определить как достаточно мелодичный, с использованием клавишных, хэви-метал и пауэр-метал, несколько более мягкий, нежели у Running Wild или Helloween, но более жёсткий, чем у Europe.
+Группа была создана гитаристом Кеном Хаммером и вокалистом Ронни Аткинсом в 1981 году (   Читать дальше...   )1983 - Pretty Maids (EP)
+1984 - Red, Hot And Heavy
+1987 - Future World
+1990 - Jump The GunЖанр: Melodic Heavy MetalПродолжительность: 13:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663991   (177947) от 06.10.2023
 
 Владимир Кузьмин - Три Альбома (1987-1989) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
@@ -537,163 +675,28 @@ magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666478   (179676) от 04.10.2023
+###  Публикация: 1593733   (179548) от 28.11.2022
 
-Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Power Metal, Hard Rock>
+VA - Superior Audiophile (2022) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop, Jazz, Vocal Jazz>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Jerusalem D.C.
-A2 In Eternum
-A3 El Amor Brujo
-B1 Tu Funeral(   Читать дальше...   )Жанр: Celtic, Folk, Power Metal, Hard RockПродолжительность: 01:36:19
+01. Elisabeth Karsten - Pardon, Goddess of the Night 6:32
+02. Oslo Gospel Choir - Å Hvor Salig Å Få Vandre 4:40
+03. Kari Brenmes - Coastal Ship 4:26
+04. Ketil Bjørnstad - Molo 5:30(   Читать дальше...   )Жанр: Pop, Jazz, Vocal JazzПродолжительность: 01:18:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5A6F5D2E60D625DE094F7B18F2E46DB02F28095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666440   (179695) от 04.10.2023
-
-October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 At The Edge Of An Empty Horizon
-A2 Bloodlines
-A3 The Verge Of Oblivion
-B1 Snakes Of The Old World(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D765D4C105AB58FD8FF557E03D6CE5AD277A4F09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666172   (180013) от 03.10.2023
-
-Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (3:04)
-02. Don't Start Now (3:03)
-03. Cool (3:29)
-04. Physical (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36D88635320CD5AD68676CE4356BFD73B4B6FF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666080   (180116) от 03.10.2023
-
-Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Padam Padam (2:46)
-02. Hold On To Now (3:58)
-03. Things We Do For Love (3:10)
-04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050ECBFE7C7D63B3138ABA625EB15FBF32DBA005
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666004   (180178) от 03.10.2023
-
-Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance-pop, electropop, synthpop, disco, house, EDM>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Padam Padam (2:46)
-02. Hold On To Now (3:58)
-03. Things We Do For Love (3:10)
-04. Tension (3:36)(   Читать дальше...   )Жанр: Dance-pop, electropop, synthpop, disco, house, EDMПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7CF7824EC10993AE0235718685190B66E1BDE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666223   (180228) от 03.10.2023
-
-Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] [FLAC|Lossless|tracks] <House>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hit My Heart (Radio Edit) [3:13]
-2. Hit My Heart (Sfaction Mix) [5:21]
-3. Hit My Heart (Original LP Version) [5:06]
-4. Hit My Heart (Vision Mix) [6:09](   Читать дальше...   )Жанр: HouseПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78423F6EC0FD903007BE53D4D051B181D1C601CF
+magnet:?xt=urn:btih:E8FD09FC4F479C286B468B51C3B77CDE17F8EC98
 ```
 
 

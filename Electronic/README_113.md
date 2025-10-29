@@ -401,6 +401,33 @@ magnet:?xt=urn:btih:6ECCCED2F8B46CB5B1173B7BCB4A10EB0B558182
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596145   (173982) от 08.12.2022
+
+VA - Meditative State: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow World - Undiscovered World (Original Mix) (3:43)
+02. Dellasollounge - Fantasy (Original Mix) (5:23)
+03. Matt Sour - Who Is Lore (5:01)
+04. La Estación Del Mar - Cantos Rodados (4:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFA82E5C598991A66218E77D33F8C654BB18627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667746   (173992) от 12.10.2023
 
 ['ramp] - no sleep 'til wilmersdorf (2018) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Doombient, Berlin School>
@@ -477,6 +504,60 @@ VA - Top 8 September 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:371DFBBE51ED878C0C54D907301365CA7266172E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595865   (174498) от 07.12.2022
+
+VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chantola, J-Junior -  Don't You Know (Hector Sawiak Remix)  (8:08)
+02.  Thorin -  Ancient Times (Chris M Progressive Mix)  (10:14)
+03.  21Street -  Mind Bender (Phony Orphants Remix)  (7:00)
+04.  Zas, Sanze, Mindgamers -  Soul To Soul (Fab Code Remix)  (7:24)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C1E855224D65601E2AAA84D2143D60B38BBEF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595632   (175051) от 06.12.2022
+
+Any Second - Enemies (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scalpel [00:04:19]
+02. I Shout [00:04:19]
+03. Dreamer [00:04:28]
+04. Me And My Enemy [00:04:48](   Читать дальше...   )Жанр: Dark Electro, EBM, FuturepopПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9924EF3811F6A2A2B879AD3FB531B5A9E92D184D
 ```
 
 
@@ -590,109 +671,28 @@ magnet:?xt=urn:btih:2D702B25EAB7433B6DD58682E1F241FE09A3FF68
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667221   (177218) от 07.10.2023
+###  Публикация: 1595523   (175515) от 05.12.2022
 
-Depeche Mode - Delta Machine | The 12" Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, International Pop>
+2DCAT - Fantastic Voyage (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 
 >>Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heaven (Blawan Dub) [00:07:12]
-02. Heaven (OWLLE Remix) [00:04:46]
-03. Heaven (steps to heaven voxdub) [00:06:09]
-04. Heaven (Matthew Dear vs. Audion Instrumental Mix) [00:06:08](   Читать дальше...   )Жанр: Electronic, Synthpop, International PopПродолжительность: 02:45:50
+01. Star (Vinyl Version) [00:03:48]
+02. Come Back To Me (Vinyl Version) [00:03:34]
+03. Give Up (Vinyl Version) [00:03:18]
+04. Stay With Me (Vinyl Version) [00:03:12](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:39:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B630B6D338722903AE9AC0831A92F9C703D9695
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594857   (177311) от 02.12.2022
-
-ZHU - Musical Chairs Mixtape (Vol. 1) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Bassline, Dance-pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fall (5:49)
- 02. I Wonder (4:02)
- 03. Psycho (4:50)
- 04. Unbothered (ft. Elderbrook) (4:49)(   Читать дальше...   )Жанр: Progressive House, Bassline, Dance-popПродолжительность: 00:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33544E5368BBAA8FF1C548AF699B5B9AFC794C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667113   (177352) от 07.10.2023
-
-VA - The Orient Collective - Collection (2023) 8 Relise [MP3|320 Kbps] <Electronic, Lounge, World, Ethnic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ali Termos - La Serenissima (MI.LA Remix) [05:55]
-02. Wadd - Back [06:20]
-03. Marga Sol - Mirage [06:14]
-04. Yassine H - Pyramid Vibes [05:39](   Читать дальше...   )Жанр: Electronic, Lounge, World, EthnicПродолжительность: 09:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F619A6313234779EABFD2EAF97D67A10F98998D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666218   (177438) от 07.10.2023
-
-Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - TELEX EP1
-2022 - TELEX EP2
-2023 - TELEX EP3Жанр: Disco, Synth-pop, House, TechnoПродолжительность: 3 CD, 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66296CC0947E27760868E89205615DC62D3C2B6
+magnet:?xt=urn:btih:8C362F1F4363E236CBEF873E0D9ECD08DB5D368C
 ```
 
 

@@ -339,6 +339,32 @@ magnet:?xt=urn:btih:3491C6D60C43E34784FFD6DCC104F2DB0B39DA84
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595334   (174726) от 06.12.2022
+
+Sebastian Raschka etc.| Machine Learning With PyTorch and Scikit-Learn [+code] [2022] [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Machine Learning with PyTorch and Scikit-Learn is a comprehensive guide to machine learning and deep learning with PyTorch. It acts as both a step-by-step tutorial and a reference you'll keep coming back to as you build your machine learning systems.
+
+Packed with clear explanations, visualizations, and examples, the book covers all the essential machine learning (   Читать дальше...   )Жанр: программирование, машинное обучение, PyTorch, Scikit-LearnЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7652112F8FB0C6C25A7BD9098ECA0F3FAA04C5F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667486   (176323) от 08.10.2023
 
 Герберт Шилдт | С++ Базовый курс 3-е изд. (2010) [PDF]
@@ -382,6 +408,55 @@ magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D91100773C4417C220D6DB7078AEF0D645E2407
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594662   (176461) от 03.12.2022
+
+John Thomas | Data Structure and Algorithms With Python: The Ultimate Guide Towards Coding (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Computers store and process data with an extra ordinary speed and accuracy. So, it is highly essential that the data is stored efficiently and can be accessed fast. Also, the processing of data should happen in the smallest possible time, but without losing the accuracy.
+Data structures deal with how the data is organised and held in the memory, when a program processes (   Читать дальше...   )Жанр: программированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595032   (176465) от 03.12.2022
+
+Тимур Машнин | Создание чат-ботов с Dialogflow, Watson, ChatterBot и Rasa (2022) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176465.jpg" />
+</div>
+
+
+###  Подробнее
+
+С этой книгой Вы познакомитесь с чат-ботами и поймете как создавать чат-ботов без программирования с использованием таких облачных служб как Google Dialogflow и IBM Watson. Также Вы узнаете как реализовать для чат-бота Webhook - механизм получения уведомлений об определённых событиях, чтобы выполнять внешнюю бизнес-логику. Вы узнаете как можно интегрировать вашего (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FAB423C48F0093D1F6821B9190BC50EBB6B537
 ```
 
 
@@ -551,78 +626,6 @@ magnet:?xt=urn:btih:E13BCA46FB5405E144408F47494740EC1C07B0CB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:227F2BA62D936ACDA896E09D2D34E6313CC9B30B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666471   (179299) от 04.10.2023
-
-Кристофер Прешерн | Язык С. Мастерство программирования (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторитетные рекомендации по программированию на C найти трудно. Для объектно-ориентированных языков в них нет недостатка, но для C их на удивление мало. В этой книге начинающие и опытные программисты на C найдут наставления по принятию проектных решений, включая пошаговое применение паттернов к сквозным примерам. Кристофер Прешерн, один из ведущих членов сообщества (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51CEDF5B4E011D74C6D371B1EC59ED51410376B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666138   (179773) от 03.10.2023
-
-П. Бейкер | ChatGPT для чайников (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179773.jpg" />
-</div>
-
-
-###  Подробнее
-
-ChatGPT для чайников представляет собой первое знакомство для всех интересующихся аспектами применения искусственного интеллекта (ИИ), который может отвечать на вопросы, писать эссе и генерировать практически любой текст. Из этой книги вы узнаете, как функционирует ChatGPT и как с ним работать, чтобы получать нужные результаты. Вы также изучите этику использования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0630B4C1B45CE2C93D62C5D1A319E219CD55AC74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666156   (179885) от 03.10.2023
-
-Otavio Santana, Karina Varela | Persistence Best Practices for Java Applications (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179885.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге представлены устоявшиеся паттерны и стандарты, которые могут быть использованы в Java-решениях, а также ценные сведения о плюсах и минусах модных технологий и фреймворков, используемых в облачных нативных микросервисах, наряду с хорошей практикой кодирования на Java. Вы столкнетесь с проблемами внедрения облачных технологий, особенно с теми, которые (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4140E3B9A27C0F11D9EE2EA92243F1AB7E85B8C
 ```
 
 

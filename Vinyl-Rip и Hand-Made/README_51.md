@@ -1,3 +1,84 @@
+###  Публикация: 1663746   (186451) от 23.09.2023
+
+The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia · Karelia Suite · Valse Triste, etc. (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Symphonic Poem ''Finlandia'', Op. 26
+''Karelia'' Suite, Op. 11
+A2 Intermezzo
+A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663324   (186830) от 21.09.2023
+
+The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell Ceremonial Theater And Chamber Music (1975) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186830.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Trumpet Overture From «The Indian Queen»
+Suite From Abdelazer
+A2 (a) Overture - Allegro
+A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662977   (187193) от 20.09.2023
+
+Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heavenly — пауэр-метал-группа из Франции, основанная в 1994 году вокалистом Бенжамином Сотто и барабанщиком Максом Пило.2000 - Coming From The Sky
+2001 - Sign Of The Winner
+2004 - Dust To Dust
+2006 - VirusЖанр: Power MetalПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663183   (187201) от 20.09.2023
 
 Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Brass & Military, Marches>
@@ -608,87 +689,6 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657365   (192771) от 03.09.2023
-
-Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Love [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192771.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 With A Song In My Heart
-A2 MacNamara's Band
-A3 Keep Right On To The End Of The Road
-A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657298   (193101) от 02.09.2023
-
-Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
-2002 - Dreamtower
-2004 - Lapse Of Reality
-2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657087   (193139) от 02.09.2023
-
-Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193139.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A-me-ri-ca
-A2 If I Had A Hammer
-A3 Bye Bye Blackbird
-A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
 ```
 
 
