@@ -295,6 +295,87 @@ magnet:?xt=urn:btih:4AA4CA36090A22D0E4DA6AADA06E4707414F32A8
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593358   (180810) от 26.11.2022
+
+VA - ЕвроХит Топ 40 Europa Plus 25.11.2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KDDK - Heartbreaker (2:40)
+02. TwoColors - Heavy Metal Love (2:28)
+03. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
+04. Ava Max - Million Dollar Baby (3:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996C3EFB5D9BC1CB06595FC93A1043FE88D7C868
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593227   (180847) от 26.11.2022
+
+VA - В машине с музыкой Vol.321 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pierre Leck & Ome Feat. & Hanna Michalowicz - From Me (03:19) 2022
+02. Win & Woo & Luxtides - Dive (03:14) 2022
+03. Staffорд63 Feat. & Диана Теркулова - Ностальжи (03:06) 2022
+04. Mango  - Закружила (02:10) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590A303DCE81453A5EFC400D45E17590CD4EA11B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593414   (180868) от 26.11.2022
+
+VA - Disco Coco Bongo Compilation (2022) [MP3|320 Kbps] <Italo Dance, Club, Euro House, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EDM Power - Italo Loop (Original Mix)
+02. Demaklenco - Dancing the 30's (Extended Version)
+03. EDM Power - China Girl (Extended Mix)
+04. BEATCOIN - Amnesia (Extended Version)(   Читать дальше...   )Жанр: Italo Dance, Club, Euro House, TechnoПродолжительность: 01:23:16 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2ECF61D235D89463DBC4D3CBA25DDA49BAAD97B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593443   (180964) от 26.11.2022
 
 VA - German Top 100 Single Charts 25.11.2022 [MP3|320 Kbps] <Pop>
@@ -344,6 +425,60 @@ VA - ЕвроХит Топ 40 Europa Plus 29.09.2023 [MP3|256-320 Kbps] <Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C920CFF7D3F28FEA7199DACA190A90C226D02C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592706   (181464) от 25.11.2022
+
+VA - Крутые пушки Осень 2022 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travis Scott & HVME - Goosebumps (DZYZ Remix) (3:09)
+02. Moby - Lift Me Up (DeepDelic & Zigrov Remix) (5:05)
+03. Bob Sinclar x Nexboy, EMDI, Mikis - Knas Party 22 (DJ Baur Mixshow) (3:27)
+04. Deep Purple & Inndrive & XM & Holsten - Smoke On The Water (DJ Baur 22 Reboot) (3:50)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980A8CB942EDB07D050EF547B9CC751987C13AA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592687   (181634) от 25.11.2022
+
+Yakuro - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conflicting Emotions
+02. Jump to Hyperspace
+03. Hymn to the Wind
+04. Flying Over Waves(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 05:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AF839CBE09EC84C24A97B9655307A6502E0F5C
 ```
 
 
@@ -484,6 +619,60 @@ magnet:?xt=urn:btih:5110A0438D45BDAD2680E1A4F4AE42D00D3E2320
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592371   (183638) от 22.11.2022
+
+VA - Workout Music 2022 [MP3|320 Kbps] <Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183638.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BEATSMASH - Ymir (4:15)
+002. Tom & Jame - Click Clack (4:07)
+003. Jordan Schor - Want It All (4:01)
+004. CryJaxx - The Time Is Now (4:00)(   Читать дальше...   )Жанр: TrapПродолжительность: 05:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6EC4F9D0E47870A813EBB309D9F24A450CCE86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592292   (184298) от 21.11.2022
+
+VA - Bluesy Christmas - Jingle Bell Blues (2022) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Otis Rush - I Can't Quit You Baby [03:07]
+02. Sharon Jones & The Dap-Kings - Silent Night [04:16]
+03. Eric Clapton - White Christmas [02:58]
+04. Nina Simone - Chilly Winds Don't Blow (Live In New York/1964) [04:01](   Читать дальше...   )Жанр: BluesПродолжительность: 03:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569AE7A8EF4D5A8A67F02E6BE17D8A4FA31273FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664668   (184569) от 27.09.2023
 
 VA - Music News vol.301 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -506,195 +695,6 @@ VA - Music News vol.301 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED1EF8EEF4C0DC54883FF3136906F30DCA4A9380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664275   (184638) от 27.09.2023
-
-VA - Surf Rock Compilation Part 34 (2023) [MP3|320 Kbps] <Surf Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chantays - Riders in the Sky
-02. Chantays - Banzai
-03. Dale, Dick & His Del-Tones - Shake 'n' Stomp
-04. Dale, Dick & His Del-Tones - Misirlou(   Читать дальше...   )Жанр: Surf RockПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E9E1141988A45A54F719AC6BB43E79B99C4EA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663084   (184642) от 27.09.2023
-
-VA - Ambient Ethereal Dreams (2023) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Days - Close The Windows [03:13]
-02. Hollie Kenniff - Carve The Ruins [03:49]
-03. Kjaerleik - Forgotten Youth [02:29]
-04. Helen Money - Abandon [02:42](   Читать дальше...   )Жанр: Ambient, Downtempo, RelaxПродолжительность: 05:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11876EDF5AA56B9740E9526D2FE240C3463C7C7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827248   (185749) от 20.10.2025
-
-Amadeus Angelus - Collection (2021) [MP3|320 Kbps] <Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (Radio Version) (3:12)
-02. Dreams (Instrumental Version) (4:18)
-03. One Step From Heaven (Special Version) (4:03)
-04. Dreams (Original Version) (4:18)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E011232BD847D4EECFCCC330A044A1C7F0B8C992
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827357   (186355) от 21.10.2025
-
-Dark Blues Society - To Walk Like a Gangster (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Streets Warm Blood [03:25]
-02. Gangster Monologue [04:03]
-03. Sharp Silence [02:14]
-04. Built in the Dark [04:00](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09109DE23D2FA0ED18206E40A147C9AE10CE25F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663762   (186382) от 23.09.2023
-
-VA - Music News vol.300 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gerda - О Тех, Кем Не Стали (Alternative Version) (02:42)
- 002. 4ETVERGOV feat. Dyadya Dasiaga - Токен (02:26)
- 003. 070 Shake - Black Dress (03:57)
- 004. A7S - Dumb (VIP Remix) (04:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A66DC0997F59CC2982C31B90FB34E9AF7A81205
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663708   (186399) от 23.09.2023
-
-VA - Music News vol.299 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186399.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alina Baraz - Keep Me In Love (02:36)
- 002. Adil - Госпожа (Speed Up) (02:19)
- 003. Alan Walker - The Spectre (Slowed Remix) (03:35)
- 004. Alena Letova - Без Тебя (Glazur & XM Remix) (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84843D2AE7A4BF49E8DA7F3ACFA1410E72260C1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662612   (187013) от 20.09.2023
-
-Gorky Park - Collection (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парк Горького, это единственные отечественные музыканты, создававшие творчество на английском языке, которых можно и приятно слушать. Эту команду впервые я услышал ещё до увлечения роком, в далёком 1990 году. По тв в какой то передаче показали клип Bang. И помню как мы с пацанами во дворе обсуждали дружбу с Америкой и думали ну теперь то мы заживём. Занавес железный (   Читать дальше...   )01. Moscow Calling
-02. All Roads
-03. Politics Of Love
-04. Tomorrow(   Читать дальше...   )Жанр: RockПродолжительность: 03:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9576F746B0E6DF3E3884E446FF00B8856444AB2B
 ```
 
 

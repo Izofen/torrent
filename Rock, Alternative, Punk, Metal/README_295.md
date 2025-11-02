@@ -1,3 +1,30 @@
+###  Публикация: 1668028   (175440) от 10.10.2023
+
+Resistance - Skulls Of My Enemy (2022) [FLAC|Lossless|image + .cue] <Power, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call To Arms (Intro)
+02. Valhalla Has Locked It's Doors
+03. On Dragon Wings
+04. Earthshaker(   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B756C8D88070206765803329BF7628414463EF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668068   (175446) от 10.10.2023
 
 Ofyr - Disconnected (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Rock>
@@ -668,33 +695,6 @@ Outland - Where Do We Go From Here? (2022) [FLAC|Lossless|image + .cue] <Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FD214DB120EAD6821841CD48215D5356C3903AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595317   (176026) от 04.12.2022
-
-Владимир Кузьмин - Дух в моей гитаре (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176026.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я из Эдгаров По
-2. Мы открыты всю ночь
-3. Миклухо-Маклай
-4. Улица(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06B862ACCA1F7F7101A43CF31DC53DB83732058
 ```
 
 

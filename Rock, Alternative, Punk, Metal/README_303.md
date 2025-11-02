@@ -1,3 +1,30 @@
+###  Публикация: 1666579   (179024) от 05.10.2023
+
+Hanged Ghost - The Attraction of Oblivion (2013) [FLAC|Lossless|image + .cue] <Funeral Doom Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conceived In Pestilent Womb
+02. Death Extraction Methodology
+03. Disastrous Lithomancy
+04. S.I.D.A.Жанр: Funeral Doom Metal, Death MetalПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B542A8CAB9B1A3B542AAC289F5B3FA660546137D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666646   (179039) от 05.10.2023
 
 Mob Rules - Cannibal Nation (2012) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
@@ -665,33 +692,6 @@ Khymera – один из многочисленных мелодик-роков
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC9522B0274B30E6053275E8C29C6FEB690120BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666424   (179544) от 04.10.2023
-
-The Hatters - По ходу люблю (Полная версия) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты так боишься любви [00:03:25]
-02. По ходу люблю [00:03:49]
-03. Просто проваливай [00:03:15]
-04. У-ля-ля [00:03:41](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CDACEAE0F10E51410E69CC6CB5DC4E9DA8B2AE
 ```
 
 

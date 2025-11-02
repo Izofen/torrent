@@ -1,3 +1,30 @@
+###  Публикация: 1596140   (174036) от 08.12.2022
+
+Boppin' B - Saxbomb (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock, Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boppin' B [00:03:52]
+02. Untamed Love [00:03:04]
+03. Hot Rod Girl [00:03:32]
+04. Chicken and the Hawk [00:03:19](   Читать дальше...   )Жанр: Rock, Rock & Roll, RockabillyПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC190AED78F0A0AB3DBD58ED4DA0EF8F7B610360
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668544   (174049) от 12.10.2023
 
 Ronnie Atkins - Trinity (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:6287131303E40595B1B102C51E80E43590DFE1C5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2966AF7E9F3909DACC10BCB22BD88B7D830BB506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595863   (174446) от 07.12.2022
-
-Чёрный кофе - Слёзы дождя (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Матерь София
-02. Вера
-03. Надежда
-04. Любовь(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A757763356FD2CF5243B579680A9E956566DE93
 ```
 
 

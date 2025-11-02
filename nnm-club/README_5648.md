@@ -1,3 +1,27 @@
+###  Публикация: 1827215   (174125) от 20.10.2025
+
+Оверлеи - Pixelbuddha - Retro Film Photo Effect - 6057 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффект превращает ваши работы в выразительные снимки с насыщенными тонами, зернистостью плёнки и мягким контрастом. Разработанный с использованием смарт-объектов для быстрой настройки, он воссоздаёт ностальгический вид аналоговой фотографии. Идеально подходит для трэвел-снимков, редакционных макетов, лайфстайл-изображений или брендинговых материалов.Формат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1F7204EE70F9B35A093B2556DB45D6DCA670E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596006   (174128) от 08.12.2022
 
 Randy Waldman - UnReel (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -640,33 +664,6 @@ Acutor - Dios ha muerto (1998) Reissue 2015, Mort Discos [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C81E2BE3B6DD96188FAD415EFDB27AA8D0A965B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596101   (174171) от 08.12.2022
-
-Highlord - Instant Madness (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jester's Mask
-02. Orion And Ocean
-03. The Sweetest Drug
-04. Got A Price?(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28ED2038616ABA4F8EBACB49B1B5D7182AD55386
 ```
 
 

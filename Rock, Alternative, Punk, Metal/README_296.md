@@ -1,3 +1,30 @@
+###  Публикация: 1595317   (176026) от 04.12.2022
+
+Владимир Кузьмин - Дух в моей гитаре (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176026.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я из Эдгаров По
+2. Мы открыты всю ночь
+3. Миклухо-Маклай
+4. Улица(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06B862ACCA1F7F7101A43CF31DC53DB83732058
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667695   (176088) от 09.10.2023
 
 Luca Turilli - King Of The Nordic Twilight / The Forest Of Elves (1999) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
@@ -668,33 +695,6 @@ Diablo - When All The Rivers Are Silent (2022) [FLAC|Lossless|image + .cue] <Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07E16BEFC24812DC47C17259867A425733EE1F56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595134   (176231) от 04.12.2022
-
-Richard Marx - Rush Street (1991) [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Playing With Fire
-02. Love Unemotional
-03. Keep Coming Back
-04. Take This Heart(   Читать дальше...   )Жанр: Rock, Soft Rock, PopПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD06DF93BFF1241002C67442E1B9CCD20DB350BC
 ```
 
 

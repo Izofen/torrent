@@ -1,3 +1,191 @@
+###  Публикация: 1661987   (188279) от 16.09.2023
+
+Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vindictiv - прогрессив-метал группа из Стокгольма, Швеция, основанная в 2004 году.2008 - Vindictiv
+2009 - Ground Zero
+2013 - Cage of Infinity
+2015 - World of FearЖанр: Progressive MetalПродолжительность: 03:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661630   (188544) от 15.09.2023
+
+Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave You Or Forsake You
+02. Reason To Rock
+03. It's Not Late For Love
+04. Somebody's Watching You(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661762   (188563) от 15.09.2023
+
+Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Demons & Wizards - сайд-проект вокалиста Ханси Кюрша (Blind Guardian) и гитариста Джона Шаффера (Iced Earth) в жанре пауэр-метал.2000 - Demons & Wizards
+2005 - Touched by the Crimson King
+2020 - IIIЖанр: Power MetalПродолжительность: 03:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590517   (188658) от 14.11.2022
+
+Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Moon Rising (2:19)
+ 02. Midnight Hour (2:26)
+ 03. I Feel The Earth Move (2:54)
+ 04. Walking The Dog (2:35)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661107   (188800) от 14.09.2023
+
+Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral (1977) A New Recording from the Berlin Philarmonic Hall [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classica ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ludvig Van Beethoven (1770 - 1817)
+Symphony No.6 In F Major, Op. 68 "Pastoral"
+A New Recording from the Berlin Philarmonic Hall
+A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590282   (189034) от 13.11.2022
+
+Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Opera, Art Rock, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сторона 1 • «Юнона» И «Авось» • Опера
+02. Сторона 2 • «Юнона» И «Авось» • Опера (Продолжение 1)
+03. Сторона 3 • «Юнона» И «Авось» • Опера (Продолжение 2)
+04. Сторона 4 • «Юнона» И «Авось» • Опера (Окончание)(   Читать дальше...   )Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590260   (189035) от 13.11.2022
+
+Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 48 Crash (3:57)
+ 02. Glycerine Queen (3:52)
+ 03. Shine My Machine (3:54)
+ 04. Official Suburbian Superman (3:10)(   Читать дальше...   )Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660750   (189373) от 13.09.2023
 
 Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
@@ -47,6 +235,33 @@ A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, Country
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589844   (189666) от 11.11.2022
+
+Рыбников Алексей - Звезда и смерть Хоакина Мурьеты (1978) 1981 [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Country Rock, Musical, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сторона 1(4)  • Звезда И Смерть Хоакина Мурьеты
+02. Сторона 2(4)  • Звезда И Смерть Хоакина Мурьеты (Продолжение)
+03. Сторона 3(4)  • Звезда И Смерть Хоакина Мурьеты (Продолжение)
+04. Сторона 4(4)  • Звезда И Смерть Хоакина Мурьеты (Окончание)(   Читать дальше...   )Жанр: Country Rock, Musical, Symphonic RockПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF14060D125CA94EFADCD263421BBBF3DCDFB9C
 ```
 
 
@@ -476,222 +691,6 @@ Sylosis - A Sign of Things to Come (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F40DB2D234DDFE877038FD88B47979941FC58EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657941   (191913) от 06.09.2023
-
-Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Emo, Indie Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunny Day Real Estate (или SDRE) — американская музыкальная группа из Сиэтла, штат Вашингтон.1994 - Diary
-1995 - LP2
-1998 - How It Feels To Be Something On
-2000 - The Rising TideЖанр: Emo, Indie Rock, Post-grungeПродолжительность: 03:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62F6BCFE37E7191B872B26D0435470DB105EF7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657722   (192270) от 05.09.2023
-
-Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лицензия от Virgin Records Ltd [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192270.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Валотт • Valotte
-A2 С Тобой Все В Порядке • O.K. For You
-A3 По Телефону • On The Phone
-A4 Космос • Space(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657623   (192302) от 05.09.2023
-
-Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Alchemist [00:08:38]
-02. Awaken [00:04:34]
-03. Vows of Lies [00:04:03]
-04. Through the Mirror [00:04:33](   Читать дальше...   )Жанр: Symphonic Progressive MetalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E54D6E8E0F85587C4399E2CF767A6458D2FB77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657591   (192447) от 04.09.2023
-
-Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Glam, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192447.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Will Follow
-A2 Tell Me A Story
-A3 Talking 'Bout A Feeling
-A4 Knee Deep In Sky High(   Читать дальше...   )Жанр: Glam, Classic RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE16C61CBB84414735DA1FBAC1927212DAE29EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657320   (192745) от 03.09.2023
-
-Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cleansed By Fire (10:37)
-02 - Scapegoat (07:11)
-03 - The Devil's Bride (06:08)
-04 - Lament (06:22)(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657365   (192771) от 03.09.2023
-
-Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Love [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192771.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 With A Song In My Heart
-A2 MacNamara's Band
-A3 Keep Right On To The End Of The Road
-A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657298   (193101) от 02.09.2023
-
-Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
-2002 - Dreamtower
-2004 - Lapse Of Reality
-2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657087   (193139) от 02.09.2023
-
-Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193139.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A-me-ri-ca
-A2 If I Had A Hammer
-A3 Bye Bye Blackbird
-A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1595134   (176231) от 04.12.2022
+
+Richard Marx - Rush Street (1991) [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playing With Fire
+02. Love Unemotional
+03. Keep Coming Back
+04. Take This Heart(   Читать дальше...   )Жанр: Rock, Soft Rock, PopПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD06DF93BFF1241002C67442E1B9CCD20DB350BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595184   (176236) от 04.12.2022
 
 Thundermother - Black And Gold (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:67C0B45B61EEA5E6DC27068F28EB34717EAEFB90
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36B11E0AA8EBDCDB296FEBA28E65206DECB4F3FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594806   (177199) от 02.12.2022
-
-Алиса - Легенды русского рока (1996) Remastered, 2022, Moroz Records [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177199.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вот так
-2. Трасса Е-95
-3. Апрель
-4. Веретено(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4E570F61F77A90DEC608A2D5B6F107E32635BE
 ```
 
 

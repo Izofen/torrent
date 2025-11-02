@@ -1,3 +1,30 @@
+###  Публикация: 1594806   (177199) от 02.12.2022
+
+Алиса - Легенды русского рока (1996) Remastered, 2022, Moroz Records [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177199.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вот так
+2. Трасса Е-95
+3. Апрель
+4. Веретено(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4E570F61F77A90DEC608A2D5B6F107E32635BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594739   (177226) от 02.12.2022
 
 Disturbed - Divisive (2022) [FLAC|Lossless|image + .cue] <Groove Metal, Nu Metal>
@@ -668,33 +695,6 @@ Stonemiller Inc. - Welcome To The Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A74272D7EDD4E0A2E6189E1BBF45826B2354DB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667246   (177607) от 07.10.2023
-
-Marcel Verand - Memorias De Un Despertar - Reclama Tu Libertad (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soy Tu Creación
-02. Enciende Tu Luz
-03. Vuelve Tus Sueños Realidad
-04. Yo Soy(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B163FB42C1F2CBCF6D34FBE6D03A456AE9F661
 ```
 
 

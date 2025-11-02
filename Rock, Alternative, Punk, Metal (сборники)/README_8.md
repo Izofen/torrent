@@ -457,3 +457,246 @@ magnet:?xt=urn:btih:3C986A864B18D633E75FF036F1D240EB6A82E1C9
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650842   (207225) от 03.08.2023
+
+VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlanta Rhythm Section - So Into You (6:55)
+02. Al Stewart - Time Passages (6:43)
+03. Fleetwood Mac - Everywhere - 2017 Remaster (5:49)
+04. TOTO - Rosanna (5:31)(   Читать дальше...   )Жанр: RockПродолжительность: 04:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E208381CC1DE2951280044BA2F778CD50CED97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645907   (209168) от 12.07.2023
+
+Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Eighteen (Guitar Riff) [00:28]
+02. Layla (Guitar Riff) [00:27]
+03. Frankenstein (Guitar Riff) [00:51]
+04. American Woman (Guitar Riff) [00:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7B5D91BD53C30B30CC7C2118219B93FFE7D314
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641841   (210443) от 26.06.2023
+
+VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaun Murphy - It Won't Stop Raining
+02. Deb Ryder - Bad Bad Dream
+03. Blue Touch - Trouble
+04. Connie Lush - Crying Won't Help You(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F03DB2E33644A9B4FA77E2E1A3CDEDE334B4D29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641020   (210564) от 25.06.2023
+
+MyTones - Ultimate Queen Tones (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Pressure (Tribute in the Style of Queen) [00:29]
+02. Crazy Little Thing Called Love (Tribute in the Style of Queen) [00:29]
+03. We Will Rock You (Tribute in the Style of Queen) [00:29]
+04. Somebody to Love (Tribute in the Style of Queen) [00:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C0E05E5C197550E5FB5E74708921E8DBD6D787
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642023   (210578) от 25.06.2023
+
+VA - Assorted rock, blues rock, ballads part  25 Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Ellison - Loaded Gun Tonight
+02. Scott Ellison - Shakin With the Blues
+03. Paul Mark and the Van Dorens - Don't Get Me Started
+04. Scott Ellison - These Blues Got a Hold on Me(   Читать дальше...   )Жанр: Rock. Ballads, BluesПродолжительность: 02:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA1DE759C21B3414C3E3EDF6E6D39D52BF993C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640763   (211009) от 19.06.2023
+
+MyTones - Ultimate ACDC Tones (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Black (Originally Performed by AC/DC) [00:29]
+02. For Those About To Rock (Originally Performed by AC/DC) [00:29]
+03. Heatseeker (Tribute in the Style of AC/DC) [00:29]
+04. Hell's Bells (Originally Performed by AC/DC) [00:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F135A63809375E7CE61C9696D22CE012CA4FF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640150   (211027) от 19.06.2023
+
+VA - MyTones - Heavy Metal Ringtones (2023) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rock Heroes - Iron Man [00:30]
+02. Jizzy Pearl, Tracii Guns, Gilby Clarke - Sweet Child O' Mine [00:30]
+03. Robert Trujillo, Eric A.K. - Battery [00:30]
+04. L.A. Guns - Pour Some Sugar On Me [00:30](   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414A6F9E552D9E9060A7FE8BBA2717E95571BFA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640295   (237076) от 19.06.2023
+
+Tony Tucker - Compilation (2023) [MP3|320 Kbps] <Rock, Ballads, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Fingers
+02. Here Come 'ole Cottonmouth
+03. Fade
+04. Down the Road of Blues(   Читать дальше...   )Жанр: Rock, Ballads, BluesПродолжительность: 02:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE9AA697170F8F07E295B5AADB87730C08B4CCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640256   (237128) от 19.06.2023
+
+Larry Miller - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Fine Day
+02. Soldier of the Line
+03. The Girl That Got Away
+04. Women and the Blues(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1129C2FED0B4DDE35E00591383B3B82A729CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

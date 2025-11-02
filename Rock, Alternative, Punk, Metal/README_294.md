@@ -1,3 +1,30 @@
+###  Публикация: 1668161   (174836) от 11.10.2023
+
+Bulletbelt - Burn It Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn It Up
+02. Arminius
+03. City of One
+04. No Afterlife(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6BCB4F2F7EBF1CA4DFD24A68507482649990FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595702   (175019) от 06.12.2022
 
 Ломовой - Топ 50 (1993–2023) (2022) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ Vice - For the Fallen (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C0A7FF7D7D785A9C159CD3C2FD14C6D5471EE40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668028   (175440) от 10.10.2023
-
-Resistance - Skulls Of My Enemy (2022) [FLAC|Lossless|image + .cue] <Power, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call To Arms (Intro)
-02. Valhalla Has Locked It's Doors
-03. On Dragon Wings
-04. Earthshaker(   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B756C8D88070206765803329BF7628414463EF7
 ```
 
 

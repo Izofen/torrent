@@ -1,3 +1,219 @@
+###  Публикация: 1657941   (191913) от 06.09.2023
+
+Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Emo, Indie Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunny Day Real Estate (или SDRE) — американская музыкальная группа из Сиэтла, штат Вашингтон.1994 - Diary
+1995 - LP2
+1998 - How It Feels To Be Something On
+2000 - The Rising TideЖанр: Emo, Indie Rock, Post-grungeПродолжительность: 03:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62F6BCFE37E7191B872B26D0435470DB105EF7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657722   (192270) от 05.09.2023
+
+Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лицензия от Virgin Records Ltd [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192270.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Валотт • Valotte
+A2 С Тобой Все В Порядке • O.K. For You
+A3 По Телефону • On The Phone
+A4 Космос • Space(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657623   (192302) от 05.09.2023
+
+Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Alchemist [00:08:38]
+02. Awaken [00:04:34]
+03. Vows of Lies [00:04:03]
+04. Through the Mirror [00:04:33](   Читать дальше...   )Жанр: Symphonic Progressive MetalПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E54D6E8E0F85587C4399E2CF767A6458D2FB77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657591   (192447) от 04.09.2023
+
+Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Glam, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192447.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Will Follow
+A2 Tell Me A Story
+A3 Talking 'Bout A Feeling
+A4 Knee Deep In Sky High(   Читать дальше...   )Жанр: Glam, Classic RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE16C61CBB84414735DA1FBAC1927212DAE29EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657320   (192745) от 03.09.2023
+
+Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cleansed By Fire (10:37)
+02 - Scapegoat (07:11)
+03 - The Devil's Bride (06:08)
+04 - Lament (06:22)(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 01:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657365   (192771) от 03.09.2023
+
+Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Love [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192771.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 With A Song In My Heart
+A2 MacNamara's Band
+A3 Keep Right On To The End Of The Road
+A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657298   (193101) от 02.09.2023
+
+Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
+2002 - Dreamtower
+2004 - Lapse Of Reality
+2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657087   (193139) от 02.09.2023
+
+Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193139.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A-me-ri-ca
+A2 If I Had A Hammer
+A3 Bye Bye Blackbird
+A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657185   (193142) от 02.09.2023
 
 Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Metal>
@@ -241,7 +457,34 @@ magnet:?xt=urn:btih:6A58E6C29AC8EAFA9AB982DB1D4F85700DC5B32F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829272   (202040) от 
+###  Публикация: 1635611   (197985) от 26.05.2023
+
+Mike Oldfield - Tubular Bells (50th Anniversary Edition) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tubular Bells (Pt. I) (25:29)
+02. Tubular Bells (Pt. II) (23:21)
+03. Tubular Bells 4 Intro (Demo / 2017) (8:33)
+04. Tubular Bells / In Dulci Jubilo (London 2012 Olympics Opening Ceremony) (11:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DDAFB6792A2F2587D9ECED213EC1413D541C15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829272   (202040) от 25.10.2025
 
 Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vinyl Rip] <Electronic, Ambient, New Age, Downtempo>
 
@@ -451,248 +694,6 @@ Norther (сильный северный ветер) — мелодик дэт-�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:908F32F299D493744B4B5C15CD5B743391BD093A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655843   (203795) от 28.08.2023
-
-Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ Мелодия, лицензия от Polydor [FLAC|24/192|image + .cue|VinylRip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Score • Счет
-A2 Learning To Fly • Учимся Летать
-A3 The Miracle • Чудо
-B1 Touch And Go • Рискованная Игра(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655542   (204266) от 26.08.2023
-
-Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Sergio Corbucci Is Dead
-A2 - Hate Uber Alles
-A3 - Killer Of Jesus
-A4 - Crush The Tyrants(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8A925B03EC6C3823AA02235C891C97B281DC8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655501   (204295) от 26.08.2023
-
-SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204295.jpg" />
-</div>
-
-
-###  Подробнее
-
-SPAN — норвежская рок-группа, образованная в 2000 году.
-Расформирована в 2005 году.2004 - Mass Distraction
-2005 - Vs. TimeЖанр: Hard RockПродолжительность: 02:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AD5AE651BFC5D0ACB821AB4293C61D6AE00683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655200   (204452) от 25.08.2023
-
-Felix Jaehn - Happy Rave (2023) [FLAC|24/44.1|tracks|WEB-DL] <Electronic, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn - Nonstop (3:03)
-02. Felix Jaehn - Wishlist (2:23)
-03. Jonas Blue - Weekends (2:07)
-04. Butschi - Atme Ein (Atme Rauch Aus) (5:52)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18ECAA31302DF0803FC9012257FD1F4A7AF7E578
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655257   (204462) от 25.08.2023
-
-Игорь Романов и группа «Союз» - Красный Свет (1990) [FLAC|24/192|image + .cue|VinylRip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Осторожней, Сталкер
-A2 Стрелы
-A3 Диктатор
-B1 Племена(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3AE30BC92F8C225A78AD535510DB0078DB00FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655086   (204616) от 24.08.2023
-
-Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crusher Destroyer
-02. March Of The Fire Ants
-03. Where Strides The Behemoth
-04. Workhorse(   Читать дальше...   )Жанр: Progressive, Sludge MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654607   (205122) от 21.08.2023
-
-Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tracks|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Reconquering the Throne
-A2 The Patriarch
-A3 Violent Revolution
-A4 All of the Same Blood(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D634E009E064101BADD89BCC1A58B569E1C50319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654423   (205144) от 21.08.2023
-
-Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Death Tone
-02.Metal Daze
-03.Fast Taker
-04.Shell Shock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C65853B6674537CA4F6CB88939C6F3BF0C3C2C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654445   (205196) от 20.08.2023
-
-Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|24/44.1|tracks|WEB-DL] <Neo-Psychedelia, Dub>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gettin’ to the Point Dub (Adrian Sherwood 'Reset In Dub' Version) [00:03:33]
-02. Go On Dub (Adrian Sherwood 'Reset In Dub' Version) [00:04:48]
-03. Everyday Dub (Adrian Sherwood 'Reset In Dub' Version) [00:03:50]
-04. Edge of the Edge Dub (Adrian Sherwood 'Reset In Dub' Version) [00:05:33](   Читать дальше...   )Жанр: Neo-Psychedelia, DubПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516908C1EEAAD064655C04167C721E7DD1604011
 ```
 
 

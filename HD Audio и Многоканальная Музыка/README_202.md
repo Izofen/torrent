@@ -1,3 +1,57 @@
+###  Публикация: 1665170   (183257) от 29.09.2023
+
+Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Folk, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voluspo (Alternative Mix) (3:43)
+02. Ginnungagap (Alternative Mix) (3:49)
+03. Allfather (Alternative Mix) (2:46)
+04. The Feathered Consort (Alternative Mix) (3:40)(   Читать дальше...   )Жанр: Prog Folk, Progressive RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F389415845233B30C2CAF8C591C59218A8C09FC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665185   (183300) от 29.09.2023
+
+Vera Bloom - It's Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <garage rock, grunge, punk-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183300.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Eyes On You 03:15
+2.Say Goodbye 03:09
+3.Mud 02:40
+4.Boxes 03:35(   Читать дальше...   )Жанр: garage rock, grunge, punk-rockПродолжительность: 00:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B58EF95DE811EC347172E43A12833D6520E951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665254   (183341) от 29.09.2023
 
 Night In Gales - The Black Stream (2023) [FLAC 24/44.1|WEB-DL|tracks] <Death Metal>
@@ -633,60 +687,6 @@ Mortemia — готик-метал сайд-проект Мортена Вела
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D0CD45A1431C2E03A5ADEBD2348E1D64C41CE36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663746   (186451) от 23.09.2023
-
-The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia · Karelia Suite · Valse Triste, etc. (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Symphonic Poem ''Finlandia'', Op. 26
-''Karelia'' Suite, Op. 11
-A2 Intermezzo
-A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663811   (186457) от 23.09.2023
-
-Eva Under Fire - Love, Drugs & Misery (2022) Deluxe Edition, 2023, Better Noise Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal, Female Vocal, Detroit rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blow (feat. Spencer Charnas of Ice Nine Kills) (2:45)
-02. Unstoppable (3:07)
-03. With or Without You (4:05)
-04. Another Shot Through the Heart (3:10)(   Читать дальше...   )Жанр: Alt.Metal, Female Vocal, Detroit rockПродолжительность: 01:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12090CC0F1C4BD100106A1C2BF4FD450252DAD28
 ```
 
 

@@ -348,6 +348,33 @@ magnet:?xt=urn:btih:86B1143EBF96FD5A1E405C988AC27F33010CF203
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593366   (180375) от 27.11.2022
+
+Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Grunge, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Creed — американская рок-группа из Таллахасси, США. Основателями группы стали Скотт Стэпп и Марк Тремонти, которые учились вместе во Флоридском университете. Вскоре к ним присоединились Брайан Маршалл и Скотт Филлипс.1997 - My Own Prison
+1999 - Human Clay
+2001 - Weathered
+2009 - Full CircleЖанр: Post-Grunge, Hard RockПродолжительность: 04:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665828   (180623) от 02.10.2023
 
 Мираж - Не в первый раз... (2004 / 2023) hand made, remastered [FLAC|44/16|tracks|CD-Rip] <Pop, Dance, Disco>
@@ -666,33 +693,6 @@ Fat Freddy's Drop & Kings - Blackbird Returns (2023) [FLAC 24/44.1|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCDAF022DB4A027A504AD33A8ECE9A1A068B0BAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665578   (181566) от 01.10.2023
-
-The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agora [00:03:35]
-02. Otus [00:09:38]
-03. 2054 [00:07:23]
-04. Urian [00:07:28](   Читать дальше...   )Жанр: Mathcore, Progressive MetalПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC273EB87600ACAF799EA0990CD35F1EF0A8AEEF
 ```
 
 

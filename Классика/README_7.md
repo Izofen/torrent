@@ -667,28 +667,28 @@ magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664196   (185935) от 25.09.2023
+###  Публикация: 1592787   (180961) от 26.11.2022
 
-Raphael Feuillatre - Visages Baroques (2023) [FLAC|Lossless|image + .cue] <Classical, guitar>
+J. S. Bach, Frank Peter Zimmermann - Sonatas & Partitas Vol.1 (2021) [FLAC|Lossless|image + .cue] <Classical, violin>
 
 >>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
+>>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Johann Sebastian Bach
-[1] The Well-Tempered Clavier, Book I - Prelude in C major, BWV 846
-Joseph-Nicolas-Pancrace Royer
-[2] Pièces de clavecin, Book I - No.6 L'Aimable(   Читать дальше...   )Жанр: Classical, guitarПродолжительность: 01:02:19
+Sonata No. 2 BWV 1003 In A Minor (21:17)
+01. Grave
+02. Fuga
+03. Andante(   Читать дальше...   )Жанр: Classical, violinПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:061BD3D5E9319B6405B280E44BC833F0F2C5281C
+magnet:?xt=urn:btih:30BA3BEF78651FFC44393AD7A44A1F8754331143
 ```
 
 

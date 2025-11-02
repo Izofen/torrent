@@ -1,3 +1,30 @@
+###  Публикация: 1667246   (177607) от 07.10.2023
+
+Marcel Verand - Memorias De Un Despertar - Reclama Tu Libertad (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soy Tu Creación
+02. Enciende Tu Luz
+03. Vuelve Tus Sueños Realidad
+04. Yo Soy(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B163FB42C1F2CBCF6D34FBE6D03A456AE9F661
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667249   (177619) от 07.10.2023
 
 Rave The Reqviem - EX​-​EDEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Indvstrial Metal>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:118DA451D46B4EA341BA5BBCB8E9EB15B41363A2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD4514B18FFA7D828426640327DCC122C6722BF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594589   (177898) от 01.12.2022
-
-Heathen Foray - Weltenwandel (2020) [FLAC|Lossless|image + .cue] <Melodic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schicksalsknecht
-02. Essenz
-03. Tanz
-04. Verfall(   Читать дальше...   )Жанр: Melodic Viking MetalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1298D6E613769A3EE1E49487C61F45B7C5F5F67
 ```
 
 

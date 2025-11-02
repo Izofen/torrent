@@ -1,3 +1,258 @@
+###  Публикация: 1648503   (195373) от 23.07.2023
+
+Podlodka Crew | Записи Java Crew #2 «Микросервисная архитектура» (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195373.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Доклад "Domain Driven Design и микросервисы на Java": Станислав Кокшаров
+- Интервью "Sage. Observability своими руками": Кирилл Карандин, Роман Щербаков
+- Доклад "Как сохранить контракт, пустившись во все тяжкие": Артем Птушкин, Артём Бояршинов
+- Круглый стол "Микросервисы и места, где они обитают": Даниил Плешков, Андрей (   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 12:18:17Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E617740ECE82BC59634546191DE32CFEE9D3C30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647882   (195381) от 20.07.2023
+
+Udemy, Ali Gelenler | Event-Driven Microservices: Spring Boot, Kafka and Elastic (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195381.jpg" />
+</div>
+
+
+###  Подробнее
+
+In this course, you will focus on the development of microservices. With the help of microservices you can independently develop and deploy your application components . You can also easily scale services according to each service's own resource needs, for example you can scale better and create more instances of a service that requires more requests.
+
+You can always (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A20AE2335E4BB74FB25E11797093AF796689460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647629   (195448) от 19.07.2023
+
+Udemy, Ali Gelenler | Microservices: Clean Architecture, DDD, SAGA, Outbox & Kafka (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195448.jpg" />
+</div>
+
+
+###  Подробнее
+
+In this course, you will focus on architectural aspects of microservices architecture and use Clean & Hexagonal Architecture principles while developing each service. In the implementation of the domain layer you will also apply Domain Driven Design principles.
+
+You can always use the latest versions for spring boot, and other dependencies in this course. I will (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 20:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBA31E123248FA7C23DCFA722E8D33102E5EADF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647515   (195527) от 19.07.2023
+
+FrontendMasters, Jen Kramer | Practical CSS Layouts (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устали от обычных макетов? Неуверены, как сделать их более интересными? Этот семинар именно для вас! Присоединяйтесь к Джен на два насыщенных дня, в ходе которых вы создадите три различных отзывчивых веб-сайта для вымышленной группы Magenta Lime.
+
+Мы начнем с базового веб-сайта, закрепляя шрифты, размеры, цвета, изображения, и основы дизайна. Затем мы перейдем к (   Читать дальше...   )Производство: FrontendMastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED5E9353F1DFC0C2DE72A7E671C66B4FAB40A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647514   (195539) от 19.07.2023
+
+leerob | Mastering Next.js (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый видеокурс по созданию продакшн SSR (на стороне сервера) приложений с помощью Next.js и React.Жанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D325217FD0DC8ADAAC136AC721E096B70B70A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647425   (195576) от 18.07.2023
+
+JUG Ru Group | HolyJS 2023 Spring. Конференция для JavaScript - разработчиков (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195576.jpg" />
+</div>
+
+
+###  Подробнее
+
+HolyJS 2023 Spring - большая конференция для JS-разработчиков. Несколько десятков технических докладов о JavaScript, фронтенде, UI, инструментах и многом другомЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 39:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E9191DC0B1C01A6300219684A1457C2E842992
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646381   (195579) от 16.07.2023
+
+Дмитрий Лаврик | React. Интенсивный курс для программистов. Поток 15.06.23 - 10.07.23 (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучить философию и дух компонентного подхода современных javascript-фреймворков, научиться использовать React для решения практических задач.
+Для новичков React выглядит немного сложнее, чем Vue.js. Но вакансий на нём больше.Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 21:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032B949C20DD0567B8F20D5F66764B6B249C72DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647213   (195607) от 17.07.2023
+
+Udemy, Michael Pogrebinsky | Software Architecture & System Design Practical Case Studies (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Do you want to gainПроизводство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1E4829907BA43BB9DC478CE677A564ACF64669
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644017   (196107) от 04.07.2023
+
+Федор Васильев | Elementor PRO от А до Я (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пошаговый, самый полный видеокурс на Elementor PRO​
+Вы научитесь создавать профессиональные сайты без специальных навыков программирования. С использованием движка WordPress и c плагином Elementor.
+Я предлагаю сэкономить самый драгоценный на сегодняшний день ресурс. Это время!
+На этой страничке я предлагаю вам ознакомиться с моим пошаговым, самым полном видео (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 19:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B775A0F85830993D86A5344F4CD75C78319A012
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643796   (196246) от 03.07.2023
+
+Udemy, David Makowski | Modern Unity UI with UI Toolkit (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196246.jpg" />
+</div>
+
+
+###  Подробнее
+
+This course is a deep dive into Unity's UI Toolkit. You will learn most of the components that make up UI Toolkit and be able to create complex UI Systems for your games or apps.
+
+This course uses a mix of theory and practice. We will create dozens of little UI-Components and examples. Furthermore, we will have a course project on which we will practice what we learned (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DDD296CD1D47747A3CFA37D6566B1527986DD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643133   (196313) от 30.06.2023
 
 Foxford (Фоксфорд), Валерия Савина | Практический курс по созданию презентаций в PowerPoint (2023) WEB-DL [AD] [RU]
@@ -184,6 +439,31 @@ magnet:?xt=urn:btih:F60C38D5173A543F1730B5F6A42CDECB5E12FED5
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635495   (197757) от 29.05.2023
+
+Udemy | Библиотека курсов по Ansys (2018-2023) WEB-DLRip [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека курсов по Ansys, пережатых для максимально-компактного хранения
+Я лишь пережал видеокурсы до более компактного размера, о чем свидетельствуют буквы LQ в названии раздачи. Буквы LQ означают lower quality, но качество сохранено вполне себе терпимым для целей обучения (на мой хохряк)Производство: UdemyЖанр: ОбучениеЯзык озвучки: АнглийскийПродолжительность: 410:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9591B85B2CDB0EE5D0774A2C84BC4982C7F6BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829845   (201799) от 26.10.2025
 
 1С Учебный центр №1, Надежда Стадник | Использование прикладного решения «1С:Розница» [редакция 2.3] (2020) PCRec [RU]
@@ -256,6 +536,136 @@ In this course we will learn FastAPI right from scratch and by then end of the c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEE88421AF186664B45512D25A69B29EC14866FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652316   (206608) от 11.08.2023
+
+Scott Duffy | AZ-104 Microsoft Azure Administrator Exam Prep (2021) WEBRip [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206608.jpg" />
+</div>
+
+
+###  Подробнее
+
+The opportunity in cloud computing is clear. Most companies are implementing or investigating how to implement cloud technologies within their operations. Don't be left behind. Be ahead of the curve by getting Azure certified, and be ready for the opportunity to advance your career.
+
+The next time your resume is on someone's desk—be it a promotion at work or a new (   Читать дальше...   )Жанр: Azure, CloudЯзык озвучки: АнглийскийПродолжительность: 17:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B019EC9FB6F1C58A050826472296DF10BD0060
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651788   (206766) от 09.08.2023
+
+Stephane Maarek | Ultimate AWS Certified Cloud Practitioner - 2023 (2023) WEBRip [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beginners welcome: no need to know anything about AWS!
+
+The AWS Certified Cloud Practitioner certification is a great entry-level certification for AWS. It's great at assessing how well you understand AWS, its services, and its ecosystem.
+(   Читать дальше...   )Жанр: AWS, Cloud, AmazonЯзык озвучки: АнглийскийПродолжительность: 14:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7922665083A9EE667AA8EC06946D366365ACF696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649046   (207989) от 26.07.2023
+
+Udemy, Richard Chesterwood | Docker - Hands On for Java Developers (2021) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207989.jpg" />
+</div>
+
+
+###  Подробнее
+
+A great course if you're a Java developer looking to get started with Docker. On this course, you'll be working with a real Microservice architecture built using Spring Boot. Your job will be to deploy the application as a set of Docker Containers.
+
+Optionally, you'll be able to run the final system in a real cloud environment (AWS), using Docker Swarm.Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B72605F7BAC552065BD57A8B2322F77E518E751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647380   (208660) от 18.07.2023
+
+Udemy, Michael Pogrebinsky | Distributed Systems & Cloud Computing with Java (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Have you always wanted to build software that reaches millions of users and impact people's lives?
+
+Have you been wondering how modern companies
+- HandleПроизводство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E432E435FB075BEFBE8B0B049243465F19E0B469
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647426   (208682) от 18.07.2023
+
+JUG Ru Group | Mobius 2023 Spring. Конференция для мобильных разработчиков (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mobius 2023 Spring - конференция для мобильных разработчиков. Несколько десятков докладов об iOS, Android, кроссплатформенной разработке, инструментах, фреймворках и многом другом.Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 44:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C38EB34A82C06377FFA964A4A66D75BD1F38F6
 ```
 
 

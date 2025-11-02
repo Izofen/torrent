@@ -1,3 +1,289 @@
+###  Публикация: 1667691   (176189) от 09.10.2023
+
+Bad As - Fight the Demons (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy, Prog Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear
+02. You Better Run
+03. The War Is On
+04. Fight the Demons 04:20(   Читать дальше...   )Жанр: Hard 'n' Heavy, Prog MetalПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2B18BED5826D2E40997B0BBCB9357F933EACD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595253   (176190) от 04.12.2022
+
+Korella - Начало (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало [00:05:01]
+02. Саламандра [00:05:46]
+03. Нефилимы [00:04:02]
+04. Ложная слепота [00:04:38](   Читать дальше...   )Жанр: Modern Metal, Melodic Death MetalПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2898B4516AB609E6A3729677A606FDD4E32BAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595249   (176191) от 04.12.2022
+
+Robbie Williams - Escapology (2002) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Peculiar
+02. Feel
+03. Something Beautiful
+04. Monsoon(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DE553A26D6587410930BA7DEBBF1858B6C1D89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595304   (176194) от 04.12.2022
+
+Mercy Shot - Brace for Impact! (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From the Oblivion (01:28)
+02. Brace for Impact (04:21)
+03. Enemy and Ally (04:23)
+04. Arise (03:37)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E230909D0483D43E0FECA1C363F5EBAD2437B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595166   (176198) от 04.12.2022
+
+Nitrate - Real World (2018) Reissue, 2021, MR Records Production [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting On You (5:05)
+02. Crazy (4:27)
+03. Attraction (5:15)
+04. Insane (4:07)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B911B4216B7660A74DCEB983AEAE85CCF203A968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667208   (176200) от 08.10.2023
+
+Искусство по понятиям / The Kill Room (2023) WEB-DL [H.264/1080p] [Line]
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудачливая хозяйка арт-галереи Патрис, киллер Реджи и его босс Гордон ввязываются в опасную авантюру по отмыванию денег. Дело принимает неожиданный оборот, когда Реджи становится восходящей звездой авангардной живописи. Так вдохновенное преступление превращается в настоящее искусство.Производство: США, BKStudios, BondIt, Bradley Pilz Productions, Buffalo 8 Productions, Complex Corp, Cranium Entertainment, Go-T?bun no Hanayome Production CommitteeЖанр: триллер, комедияРежиссер: Николь ПаонАктеры: Ума Турман, Сэмюэл Л. Джексон, Джо Манганьелло, Эми Кым, Деби Мейзар, Николай Цанков, Александр Соковиков, Дженнифер Ким, Майя Хоук, Майк ДойлПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Английские, ИспанскиеПродолжительность: 01:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81612C16E4A7A8025A9D685077856FF8DE4D6EA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595196   (176201) от 04.12.2022
+
+Палишок-Посошок / A kis bice-boca (1964) WEB-DLRip [H.264/720p] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176201.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам произведений Ференца Мора. В фильме показана жизнь сына бедного скорняка, его сердечности и добродушие. Когда на пороге класса появился бедный и голодный мальчик на костылях, он один из первых протянул своему новому однокласснику руку помощи, тем самым подав пример для других. Дети поделились с ним всем тем, что дали на обед родители.Производство: Венгрия | A Magyar TelevizioЖанр: детский, семейный, экранизация, короткометражкаРежиссер: Илона КаткичАктеры: Эндре Кульман, Ференц Мартон, Ференц Хорват, Фэри АндраскаПеревод: Одноголосый любительский (озвучание den904, перевод krisz_tiffany)Субтитры: Русские (krisz_tiffany, Minhers76)Продолжительность: 00:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62118645EEFBBF3BCC96F47B5337A7354FF9AB49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595122   (176206) от 04.12.2022
+
+Behemoth - Opvs Contra Natvram (2022) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176206.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Opvs Contra Natvram:
+01. Post-God Nirvana (3:11)
+02. Malaria Vvlgata (2:18)
+03. The Deathless Sun (4:43)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5938EF5CC7B0A511611D62D4B53AAFE6D6E61E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667289   (176208) от 08.10.2023
+
+Forza Motorsport (2023) [Ru/Multi] (1.488.4138.0/dlc) Repack DjDI [Premium Edition]
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превзойдите конкурентов в совершенно новой карьере. Соревнуйтесь с друзьями в многопользовательских турнирах. Соревнуйтесь на более чем 500 автомобилях на всемирно известных трассах с ультрасовременным искусственным интеллектом, продвинутой физикой и стратегией управления шинами и топливом.Тип издания: RepackРазработчик: Turn 10Жанр: Racing, Arcade, SimulatorЯзык озвучки: Английский, Французский, Немецкий, Китайский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752E1CAE1B4ACC0E645C6CEFEFB1140B958BC91B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595059   (176209) от 04.12.2022
+
+группа Сочи - Делай на Обород (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Соль и сахар [00:02:52]
+02 - 343 536 [00:01:58]
+03 - Красные джинсы [00:02:41]
+04 - Арестуй [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F129883C5663FA7D5776C182F706F7E2A955C202
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667194   (176212) от 08.10.2023
+
+Чудесная история Генри Шугара / The Wonderful Story of Henry Sugar (2023) WEB-DLRip [H.264/1080p] (фильмы 1-4 из 4) [MVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённого сборника рассказов британского писателя Роальда Даля. Летопись содержит множество историй, но главная из них повествует о Генри Шугаре, который способен видеть сквозь предметы и предсказывать будущее с помощью украденной им книги.
+Сборник короткометражных фильмов.Производство: Великобритания, США / American Empirical Pictures, Netflix Studios, NetflixЖанр: короткометражка, драма, комедия, приключенияРежиссер: Уэс АндерсонАктеры: Бенедикт Камбербэтч, Руперт Френд, Рэйф Файнс, Бен Кингсли, Дев Патель, Ричард АйоадиПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 00:41:31+00:18:04+00:18:08+00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872FEA5B2751CCBF7B1EE416C59EB9A85C64465F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626472   (176218) от 08.10.2023
 
 Wall World (2023) [Ru/Multi] (1.2.4.513/dlc) License GOG
@@ -377,294 +663,6 @@ Ron Carter - Finding The Right Notes (2022) In+Out Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F15AAABB154B2AE82C446E987C685926B34AC6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595256   (176264) от 04.12.2022
-
-Devils Paradise - Post Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Common Sense (05:27)
-02. Friend or Foe (03:39)
-03. Ghost (04:46)
-04. Too Blind to See (04:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041AD7F864D96432A1F665B077AC40214ECB706C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595127   (176267) от 04.12.2022
-
-That Joe Payne - Ding Dong (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ding Dong (Merry Me, I'm High) 05:49
-02. Christmas Cheer 04:02
-03. Greatest Gift of All 04:22
-04. Present 4 U 04:01(   Читать дальше...   )Жанр: Progressive Rock, Pop RockПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9370BFE3FEFA08852DFD95CF5ACF8697C8C961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595050   (176270) от 04.12.2022
-
-Kevin DePetrillo - Magic Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Point in Time (05:15)
-02. Life Is Hard (05:28)
-03. Do You Know My Name (07:00)
-04. This Time Away from You (05:37)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F9B99B788333D83D92ABAA35F3CF5EA22833E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667405   (176272) от 08.10.2023
-
-Трансформеры: Восхождение Звероботов / Transformers: Rise of the Beasts (2023) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176272.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1994 году двое археологов, Елена и Ной, вступают в древний конфликт, связанный с максималами, предаконами и террорконами. История происходит в далеком 1994 году. Два археолога, Ной и Елена, уже несколько лет ведут очень интересные и необычные археологические раскопки. Однако раньше они никогда не сталкивались ни с чем подобным. Однажды они оказываются в центре (   Читать дальше...   )Производство: США / Allspark Pictures, Aurum Producciones S.A., Bay FilmsЖанр: фантастика, боевик, приключенияРежиссер: Стивен Кейпл мл.Актеры: Доминик Фишбэк, Энтони Рамос, Луна Лорен Велес, Дин Скотт Васкес, Тобе Нвигве, Сара Стайлс, Лени Паркер, Френсис Ламарр, Эйдан Дивайн, Кервин ДжексонПеревод: Дублированный (Videofilm Ltd, Red Head Sound, Flarrow Films)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13E9B731B6DC70064AF0BB1B53C5FF6DEA085FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595266   (176273) от 04.12.2022
-
-Meteora - …of Shades and Colours (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Downfall (01:07)
-02 - Wings of Rebellion (04:51)
-03 - Danse Macabre (04:45)
-04 - Slave of Creation (05:05)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA36736260D736BF257735B79E57A93DD503CABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595193   (176276) от 04.12.2022
-
-Threshold - Dividing Lines (2022) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted (5:06)
-02. Hall Of Echoes (6:17)
-03. Let It Burn (6:49)
-04. Silenced (4:37)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A341928873C27F6E8F4FEDFE5BF70964DA45F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657768   (176279) от 08.10.2023
-
-Лунный человек / Du xing yue qiu / Moon Man (2022) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы защитить Землю от потока астероидов, в 2033 году на Луне был построен комплекс специальных сооружений. Обычный техник Юэ Дугу прозевал эвакуацию персонала, а когда часть защиты не сработала, и астероиды устроили на Земле глобальный катаклизм, стал свидетелем гибели планеты. Теперь Дугу считает себя последним человеком во Вселенной и не знает, что остатки цивилизации (   Читать дальше...   )Производство: Китай / Alibaba Pictures, Beijing Mahua Funage CompanyЖанр: фантастика, комедия, мелодрамаРежиссер: Чжан ЧиюйАктеры: Шэнь Тэн, Ма Ли, Чан Юань, Ли Чэнжу, Хуан Цайлунь, Джеки Ли, Хуан Цзытао, Хао Хань, Ван Чэнсы, Гао ХайбаоПеревод: Многоголосый профессиональный (Jaskier, TVShows), двухголосый (RealFake, Колобок)Язык озвучки: Русский, китайскийСубтитры: Китайские (hardsub), английские (hardsub)Продолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88003F5E2F99184851D4BCB42EFC3C32DFBE9BBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595255   (176280) от 04.12.2022
-
-Softline - Маяки (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:12]
-02. Огонь [00:03:56]
-03. Обман это ты [00:05:26]
-04. Голоса сердец [00:04:30](   Читать дальше...   )Жанр: Alternative Metal, Melodic MetalcoreПродолжительность: 00:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40AF169C1F808C6B544FED7C6A30A2630E8B58B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667394   (176282) от 08.10.2023
-
-Элементарно / Elemental (2023) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176282.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Городе Стихий обитатели огня, воды, земли и воздуха живут вместе. У сильной и вспыльчивой Эмбер завязывается дружба с расслабленным, плывущим по течению Уэйдом — дружба, которая бросит вызов её представлениям о мире вокруг.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фантастика, фэнтези, драма, комедия, приключенияРежиссер: Питер СонАктеры: Леа Льюис, Мамуду Ати, Роналдо Дель. Кармен Шила, Омми Венди, Маклендон-Кови, Кэтрин О’Хара, Мэйсон Вартхаймер, Ронобир Лахири, Уильма Бонет, Джо ПераПеревод: Дублированный (Red Head Sound, MovieDalen, Flarrow Films, HotVoice 41)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91AA053CFFDA428E077A156413C798D2B53CB5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595135   (176283) от 04.12.2022
-
-Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Maleficium
-2. Burial Hymn (feat. Alan Grnja)
-3. Empyrean Skies (feat. Dan Tucker)
-4. Scarlet Moon(   Читать дальше...   )Жанр: Symphonic Deathcore, MetalcoreПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43A812FCF5024C64A3156186568EAC9503A72CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595314   (176286) от 04.12.2022
-
-Who Dies in Siberian Slush - 4 Albums (2013-2020) [MP3|320 Kbps] <Funeral Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2013 - We Have Been Dead Since Long Ago...
-2014 - The Symmetry of Grief (Split)
-2018 - Intimate Death Experience(   Читать дальше...   )Жанр: Funeral Doom, Death MetalПродолжительность: 4 CD, 02:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AEF70E1C0A99016439B9873C1398F1D2AFC26F
 ```
 
 

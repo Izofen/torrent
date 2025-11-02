@@ -1,3 +1,55 @@
+###  Публикация: 1663727   (186428) от 23.09.2023
+
+A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer (1974) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Choral, Organ>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186428.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hear My Prayer/O For The Wings Of A Dove
+A2 O Sacred Head Surrounded (St Matthew Passion)
+A3 Toccata In F
+A4 I Know That My Redeemer Liveth (From 'The Messiah')(   Читать дальше...   )Жанр: Classical, Choral, OrganПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6908EE3E570286E9AF5439E59B75EFDA1B4603D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663882   (186440) от 23.09.2023
+
+Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mortemia — готик-метал сайд-проект Мортена Веланда, норвежского музыканта, который является одним из основателей Tristania и основателем Sirenia.2010 - Misere Mortem
+2022 - The Pandemic Pandemonium SessionsЖанр: Symphonic Gothic MetalПродолжительность: 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0CD45A1431C2E03A5ADEBD2348E1D64C41CE36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663746   (186451) от 23.09.2023
 
 The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia · Karelia Suite · Valse Triste, etc. (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Romantic>
@@ -47,6 +99,33 @@ A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591175   (187128) от 18.11.2022
+
+Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage Against the Machine (RATM) — американская рок-группа из Лос-Анджелеса, штат Калифорния. Образованная в 1991 году, группа состоит из вокалиста Зака де ла Роча, басиста и бэк-вокалиста Тима Коммерфорда, гитариста Тома Морелло и барабанщика Брэда Уилка.1992 - Rage Against The Machine
+1996 - Evil Empire
+1999 - The Battle Of Los Angeles
+2000 - RenegadesЖанр: Alternative Rock, Funk MetalПродолжительность: 03:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
 ```
 
 
@@ -319,6 +398,33 @@ magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590517   (188658) от 14.11.2022
+
+Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Moon Rising (2:19)
+ 02. Midnight Hour (2:26)
+ 03. I Feel The Earth Move (2:54)
+ 04. Walking The Dog (2:35)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661107   (188800) от 14.09.2023
 
 Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral (1977) A New Recording from the Berlin Philarmonic Hall [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classica ...
@@ -341,6 +447,60 @@ A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590282   (189034) от 13.11.2022
+
+Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Opera, Art Rock, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сторона 1 • «Юнона» И «Авось» • Опера
+02. Сторона 2 • «Юнона» И «Авось» • Опера (Продолжение 1)
+03. Сторона 3 • «Юнона» И «Авось» • Опера (Продолжение 2)
+04. Сторона 4 • «Юнона» И «Авось» • Опера (Окончание)(   Читать дальше...   )Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590260   (189035) от 13.11.2022
+
+Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 48 Crash (3:57)
+ 02. Glycerine Queen (3:52)
+ 03. Shine My Machine (3:54)
+ 04. Official Suburbian Superman (3:10)(   Читать дальше...   )Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
 ```
 
 
@@ -395,6 +555,33 @@ A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, Country
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589844   (189666) от 11.11.2022
+
+Рыбников Алексей - Звезда и смерть Хоакина Мурьеты (1978) 1981 [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Country Rock, Musical, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сторона 1(4)  • Звезда И Смерть Хоакина Мурьеты
+02. Сторона 2(4)  • Звезда И Смерть Хоакина Мурьеты (Продолжение)
+03. Сторона 3(4)  • Звезда И Смерть Хоакина Мурьеты (Продолжение)
+04. Сторона 4(4)  • Звезда И Смерть Хоакина Мурьеты (Окончание)(   Читать дальше...   )Жанр: Country Rock, Musical, Symphonic RockПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF14060D125CA94EFADCD263421BBBF3DCDFB9C
 ```
 
 
@@ -500,195 +687,6 @@ A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658504   (191294) от 08.09.2023
-
-Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various - "Party Time" (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Latin, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191294.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mambo Jambo (Que rico el mambo)/Mambo No. 8
-A2 Siboney/Maria-La-O
-A3 Ay Mama Ines (Mama Ines)/Carioca
-A4 Don Juan/Yira Yira(   Читать дальше...   )Жанр: Latin, Jazz, Easy ListeningПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5279328D692FF53B1057A0E3BF3C053F93BE3F78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658445   (191300) от 08.09.2023
-
-The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191300.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Roses from the South (Gilbert and Sullivan)
-A2 Blue Danube Band (Johann Straus)
-A3 Ave Maria Band (Gounod)
-A4 Poet and Peasant (Suppe)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DAF80379FA5C28AD7548BBFE7D03219D9E6E05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658450   (191320) от 08.09.2023
-
-Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191320.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Suzy Was Her Name
-A2 The More I Gave You
-A3 You Are Love K
-A4 Dance With Me(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E03226C41056FEB0CB904CFB334615685CA32D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657941   (191913) от 06.09.2023
-
-Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Emo, Indie Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunny Day Real Estate (или SDRE) — американская музыкальная группа из Сиэтла, штат Вашингтон.1994 - Diary
-1995 - LP2
-1998 - How It Feels To Be Something On
-2000 - The Rising TideЖанр: Emo, Indie Rock, Post-grungeПродолжительность: 03:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62F6BCFE37E7191B872B26D0435470DB105EF7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657722   (192270) от 05.09.2023
-
-Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лицензия от Virgin Records Ltd [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192270.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Валотт • Valotte
-A2 С Тобой Все В Порядке • O.K. For You
-A3 По Телефону • On The Phone
-A4 Космос • Space(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657591   (192447) от 04.09.2023
-
-Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Glam, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192447.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Will Follow
-A2 Tell Me A Story
-A3 Talking 'Bout A Feeling
-A4 Knee Deep In Sky High(   Читать дальше...   )Жанр: Glam, Classic RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE16C61CBB84414735DA1FBAC1927212DAE29EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657320   (192745) от 03.09.2023
-
-Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cleansed By Fire (10:37)
-02 - Scapegoat (07:11)
-03 - The Devil's Bride (06:08)
-04 - Lament (06:22)(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
 ```
 
 

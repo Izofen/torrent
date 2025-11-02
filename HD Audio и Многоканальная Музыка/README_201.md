@@ -1,3 +1,30 @@
+###  Публикация: 1665578   (181566) от 01.10.2023
+
+The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agora [00:03:35]
+02. Otus [00:09:38]
+03. 2054 [00:07:23]
+04. Urian [00:07:28](   Читать дальше...   )Жанр: Mathcore, Progressive MetalПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC273EB87600ACAF799EA0990CD35F1EF0A8AEEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665532   (181570) от 01.10.2023
 
 Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -314,6 +341,33 @@ Ed Sheeran - Autumn Variations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDF4D5DEE1B9AC1D57B7A923200420D1DB6A629B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592781   (182296) от 24.11.2022
+
+Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Post-Grunge, Heavy/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alter Bridge — американская рок-группа из Орландо, штат Флорида. Группа была создана в 2004 году бывшими участниками группы Creed (которая распалась за год до того из-за внутренних творческих разногласий) вокалистом и гитаристом Майлзом Кеннеди, ведущим гитаристом Марком Тремонти, басистом Брайаном Маршаллом и барабанщиком Скоттом Филлипсом.2004 - One Day Remains
+2007 - Blackbird
+2010 - AB III.5
+2013 - Fortress(   Читать дальше...   )Жанр: Post-Grunge, Heavy/Progressive MetalПродолжительность: 07:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D246219CCD7C28187966639CE45A61F82177B0DE
 ```
 
 
@@ -638,60 +692,6 @@ Black Stone Cherry - Screamin' At The Sky (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:039165348DA3F8BCE53D7677F7A8F396EF3C739B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665170   (183257) от 29.09.2023
-
-Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Folk, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voluspo (Alternative Mix) (3:43)
-02. Ginnungagap (Alternative Mix) (3:49)
-03. Allfather (Alternative Mix) (2:46)
-04. The Feathered Consort (Alternative Mix) (3:40)(   Читать дальше...   )Жанр: Prog Folk, Progressive RockПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F389415845233B30C2CAF8C591C59218A8C09FC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665185   (183300) от 29.09.2023
-
-Vera Bloom - It's Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <garage rock, grunge, punk-rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183300.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Eyes On You 03:15
-2.Say Goodbye 03:09
-3.Mud 02:40
-4.Boxes 03:35(   Читать дальше...   )Жанр: garage rock, grunge, punk-rockПродолжительность: 00:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B58EF95DE811EC347172E43A12833D6520E951
 ```
 
 

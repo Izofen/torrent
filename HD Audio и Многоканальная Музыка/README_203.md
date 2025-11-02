@@ -1,3 +1,57 @@
+###  Публикация: 1663746   (186451) от 23.09.2023
+
+The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia · Karelia Suite · Valse Triste, etc. (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Symphonic Poem ''Finlandia'', Op. 26
+''Karelia'' Suite, Op. 11
+A2 Intermezzo
+A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663811   (186457) от 23.09.2023
+
+Eva Under Fire - Love, Drugs & Misery (2022) Deluxe Edition, 2023, Better Noise Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal, Female Vocal, Detroit rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blow (feat. Spencer Charnas of Ice Nine Kills) (2:45)
+02. Unstoppable (3:07)
+03. With or Without You (4:05)
+04. Another Shot Through the Heart (3:10)(   Читать дальше...   )Жанр: Alt.Metal, Female Vocal, Detroit rockПродолжительность: 01:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12090CC0F1C4BD100106A1C2BF4FD450252DAD28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663804   (186485) от 23.09.2023
 
 Vengeance - Sewer Surge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
@@ -133,6 +187,33 @@ magnet:?xt=urn:btih:C10671E3D34499FBAB2665963230FB4624E2B838
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591676   (186714) от 19.11.2022
+
+Queen - The Miracle (Collectors Edition) (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 Bob Ludwig 2011 Remaster:
+01. Party (Remastered 2011) (2:24)
+02. Khashoggi's Ship (Remastered 2011) (2:49)
+03. The Miracle (Remastered 2011) (5:02)(   Читать дальше...   )Жанр: RockПродолжительность: 03:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0D0526454AAE02687A40EFA5385BAA8A8E56A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663153   (186748) от 21.09.2023
 
 Kim Petras - Problématique (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
@@ -236,6 +317,33 @@ Henry Hall - I Feel Amazing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B7B260C7059EB151A9928AB07E66996FCC4CE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591175   (187128) от 18.11.2022
+
+Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage Against the Machine (RATM) — американская рок-группа из Лос-Анджелеса, штат Калифорния. Образованная в 1991 году, группа состоит из вокалиста Зака де ла Роча, басиста и бэк-вокалиста Тима Коммерфорда, гитариста Тома Морелло и барабанщика Брэда Уилка.1992 - Rage Against The Machine
+1996 - Evil Empire
+1999 - The Battle Of Los Angeles
+2000 - RenegadesЖанр: Alternative Rock, Funk MetalПродолжительность: 03:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
 ```
 
 
@@ -585,113 +693,6 @@ Mark Robert Boals (родился 5 декабря 1958 г.) - американ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E9BF7D6F234F9345E1DB71915500F6983F1995D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661987   (188279) от 16.09.2023
-
-Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vindictiv - прогрессив-метал группа из Стокгольма, Швеция, основанная в 2004 году.2008 - Vindictiv
-2009 - Ground Zero
-2013 - Cage of Infinity
-2015 - World of FearЖанр: Progressive MetalПродолжительность: 03:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661630   (188544) от 15.09.2023
-
-Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave You Or Forsake You
-02. Reason To Rock
-03. It's Not Late For Love
-04. Somebody's Watching You(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661762   (188563) от 15.09.2023
-
-Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Demons & Wizards - сайд-проект вокалиста Ханси Кюрша (Blind Guardian) и гитариста Джона Шаффера (Iced Earth) в жанре пауэр-метал.2000 - Demons & Wizards
-2005 - Touched by the Crimson King
-2020 - IIIЖанр: Power MetalПродолжительность: 03:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661107   (188800) от 14.09.2023
-
-Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral (1977) A New Recording from the Berlin Philarmonic Hall [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classica ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ludvig Van Beethoven (1770 - 1817)
-Symphony No.6 In F Major, Op. 68 "Pastoral"
-A New Recording from the Berlin Philarmonic Hall
-A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
 ```
 
 

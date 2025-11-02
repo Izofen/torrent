@@ -1,3 +1,192 @@
+###  Публикация: 1658504   (191294) от 08.09.2023
+
+Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various - "Party Time" (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Latin, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191294.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mambo Jambo (Que rico el mambo)/Mambo No. 8
+A2 Siboney/Maria-La-O
+A3 Ay Mama Ines (Mama Ines)/Carioca
+A4 Don Juan/Yira Yira(   Читать дальше...   )Жанр: Latin, Jazz, Easy ListeningПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5279328D692FF53B1057A0E3BF3C053F93BE3F78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658445   (191300) от 08.09.2023
+
+The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191300.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Roses from the South (Gilbert and Sullivan)
+A2 Blue Danube Band (Johann Straus)
+A3 Ave Maria Band (Gounod)
+A4 Poet and Peasant (Suppe)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DAF80379FA5C28AD7548BBFE7D03219D9E6E05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658450   (191320) от 08.09.2023
+
+Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191320.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Suzy Was Her Name
+A2 The More I Gave You
+A3 You Are Love K
+A4 Dance With Me(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E03226C41056FEB0CB904CFB334615685CA32D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657941   (191913) от 06.09.2023
+
+Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Emo, Indie Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunny Day Real Estate (или SDRE) — американская музыкальная группа из Сиэтла, штат Вашингтон.1994 - Diary
+1995 - LP2
+1998 - How It Feels To Be Something On
+2000 - The Rising TideЖанр: Emo, Indie Rock, Post-grungeПродолжительность: 03:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62F6BCFE37E7191B872B26D0435470DB105EF7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657722   (192270) от 05.09.2023
+
+Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лицензия от Virgin Records Ltd [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192270.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Валотт • Valotte
+A2 С Тобой Все В Порядке • O.K. For You
+A3 По Телефону • On The Phone
+A4 Космос • Space(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657591   (192447) от 04.09.2023
+
+Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Glam, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192447.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Will Follow
+A2 Tell Me A Story
+A3 Talking 'Bout A Feeling
+A4 Knee Deep In Sky High(   Читать дальше...   )Жанр: Glam, Classic RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE16C61CBB84414735DA1FBAC1927212DAE29EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657320   (192745) от 03.09.2023
+
+Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cleansed By Fire (10:37)
+02 - Scapegoat (07:11)
+03 - The Devil's Bride (06:08)
+04 - Lament (06:22)(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 01:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657365   (192771) от 03.09.2023
 
 Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Love [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Easy Listening>
@@ -214,7 +403,7 @@ magnet:?xt=urn:btih:6A58E6C29AC8EAFA9AB982DB1D4F85700DC5B32F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829272   (202040) от 
+###  Публикация: 1829272   (202040) от 25.10.2025
 
 Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vinyl Rip] <Electronic, Ambient, New Age, Downtempo>
 
@@ -504,141 +693,6 @@ SPAN — норвежская рок-группа, образованная в 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56AD5AE651BFC5D0ACB821AB4293C61D6AE00683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655257   (204462) от 25.08.2023
-
-Игорь Романов и группа «Союз» - Красный Свет (1990) [FLAC|24/192|image + .cue|VinylRip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Осторожней, Сталкер
-A2 Стрелы
-A3 Диктатор
-B1 Племена(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3AE30BC92F8C225A78AD535510DB0078DB00FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655086   (204616) от 24.08.2023
-
-Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crusher Destroyer
-02. March Of The Fire Ants
-03. Where Strides The Behemoth
-04. Workhorse(   Читать дальше...   )Жанр: Progressive, Sludge MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654607   (205122) от 21.08.2023
-
-Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tracks|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Reconquering the Throne
-A2 The Patriarch
-A3 Violent Revolution
-A4 All of the Same Blood(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D634E009E064101BADD89BCC1A58B569E1C50319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654423   (205144) от 21.08.2023
-
-Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Death Tone
-02.Metal Daze
-03.Fast Taker
-04.Shell Shock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C65853B6674537CA4F6CB88939C6F3BF0C3C2C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654042   (205374) от 19.08.2023
-
-Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign Of Satan
-02. After The Bomb
-03. Dark Fade
-04. Homicide Rocker(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC90F74B74782CCCA087D4670E926F780CEF65D
 ```
 
 

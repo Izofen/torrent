@@ -1,3 +1,30 @@
+###  Публикация: 1666985   (178429) от 06.10.2023
+
+Iron Altar - Promethean (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Moderm Metal, Technical Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End [00:05:04]
+02. Hunted [00:05:01]
+03. Mortality [00:05:53]
+04. Path To Empyrean [00:05:19](   Читать дальше...   )Жанр: Groove Metal, Moderm Metal, Technical DeathПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5BCA5ADAB62DFBBC5D0ADFE1863CA33791C945
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666854   (178433) от 06.10.2023
 
 Unheilig - Puppenspiel Live - Vorhang Auf! (2008) 2CD [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
@@ -668,33 +695,6 @@ Mob Rules - Temple Of Two Suns (2000) [FLAC|Lossless|image + .cue] <Melodic Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4651268AE1C3FBD500248260F0AB9B4C5987ECEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666579   (179024) от 05.10.2023
-
-Hanged Ghost - The Attraction of Oblivion (2013) [FLAC|Lossless|image + .cue] <Funeral Doom Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conceived In Pestilent Womb
-02. Death Extraction Methodology
-03. Disastrous Lithomancy
-04. S.I.D.A.Жанр: Funeral Doom Metal, Death MetalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B542A8CAB9B1A3B542AAC289F5B3FA660546137D
 ```
 
 

@@ -322,6 +322,166 @@ magnet:?xt=urn:btih:B368B5A5EADA29BDB9538A65EC5C9E1F2F42CF01
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593070   (181545) от 25.11.2022
+
+Rammstein - Adieu (Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adieu (RMX by Richard Z. Kruspe) [00:04:40]
+02. Adieu (RMX by Andrea Marino) [00:04:04]Жанр: IndustrialПродолжительность: 00:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D18F93A2EFD456C66973026222CC7C03B9D0D01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593149   (181651) от 25.11.2022
+
+Jean-Michel Jarre - The Concerts In China (1982) 2xCD, 40th Anniversary - Remastered Edition (Live), 2022 [FLAC 2.0|48/24|tracks|WEB-DL] <Synth-pop, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181651.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. L'Ouverture / The Overture (Live - Remastered 2022)
+02. Arpegiateur / Arpegiator (Live - Remastered 2022)
+03. Equinoxe, Pt. 4 / Equinoxe Part 4 (Live - Remastered 2022)(   Читать дальше...   )Жанр: Synth-pop, AmbientПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7692C98C3E5A969ECDB07E63966EC2658403C26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593111   (181675) от 25.11.2022
+
+Jean Michel Jarre - The Concerts In China (1982) 2CD, 40th Aniversary – Remastered Edition, 2022 [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orient Express (Live - Remastered 2022) [00:04:21]
+02. Chants Magnetiques, Pt. 1 / Magnetic Fields Part 1 (Live - Remastered 2022) [00:00:27]
+03. Chants Magnetiques, Pt. 3 / Magnetic Fields Part 3 (Live - Remastered 2022) [00:03:45]
+04. Chants Magnetiques, Pt. 4 / Magnetic Fields Part 4 (Live - Remastered 2022) [00:06:45](   Читать дальше...   )Жанр: ElectronicПродолжительность: 2 CD, 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9A7671A5CD1A2B14861003F07FEDA451CA2493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593096   (181713) от 25.11.2022
+
+VA - Beautiful Vocal Trance - Chapter 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa - My Own Way (4:01)
+02. Costa - I See His Eyes (4:17)
+03. Raz Nitzan - Called By A Whisper (4:20)
+04. Raz Nitzan - Unconditional (3:52)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B598F262A052B7930E864959D187925D4D3ADDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593062   (181763) от 25.11.2022
+
+VA - Ministry of Sound - The Annual 2023 (2022) [MP3|320 Kbps] <Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eliza Rose & Interplanetary Criminal - B.O.T.A. (Baddest Of Them All) (Edit)
+02. LF System, Silk - Afraid To Feel
+03. Alok x Ella Eyre x Kenny Dope feat. Never Dull - Deep Down
+04. Nathan Dawe - 21 Reasons (feat. Ella Henderson)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5979E3DCC7BEC52200AFC1179076425E88B20E1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592883   (181777) от 25.11.2022
+
+VA - 100% Club Hits 2023 (2022) [MP3|320 Kbps] <Electro, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Disco Boys - Promised Land
+02. Klaas - Take Me Back
+03. Lo - Angel Eyes
+04. Sam Collins - Hard Feelings(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 01:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0656E69ED4AEA4B14E3BAD915E9511E8CA70E3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593163   (181789) от 25.11.2022
 
 Gilles Peterson & Lionel Loueke - HH Reimagined (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Electronic>
@@ -344,6 +504,33 @@ Gilles Peterson & Lionel Loueke - HH Reimagined (2022) [FLAC 2.0|44/24|tracks|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67A4998E8D6ABE9DC8EF37D7D55DA4186F64BBA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593055   (181804) от 25.11.2022
+
+VA - Best Of FSOE (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omar Sherif & Susie Ledge - Here With Me (Extended Mix)
+02. Aly & Fila x Billy Gillies - Kings (FSOE750 Anthem) (Extended Mix)
+03. Richard Durand - Evolution (Extended Mix)
+04. Bryan Kearney - Kaia (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435836A39030E7665BE7DBA794CEE032A3FA7FD0
 ```
 
 
@@ -506,195 +693,6 @@ VA - Dancing Services, Vol. 2 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:201060555744FA92DE36AB7F7A2B2394B38F29D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665168   (182409) от 30.09.2023
-
-Siskin - We Are Siskin (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always You (Extended Intro Mix) [5:36]
-02. Fly Away (Extended Mix) [7:12]
-03. Let Go (Extended Mix) [6:40]
-04. Deeper Love (Extended Mix) [7:14](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9BD587CB092B5AC9B78423A21F5B7D3037154D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665095   (182418) от 30.09.2023
-
-Trance Wax - Open Up The Night (2023) Extended Versions [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Up The Night (Extended Mix) [6:15]
-02. Dark Space (Extended Mix) [5:15]
-03. Antiga (Extended Mix) [6:37]
-04. Aslan (Extended Mix) [5:22](   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBA9591AB085A71678325BFE989B736E1335C1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592876   (182473) от 24.11.2022
-
-Carrellee - Scale Of Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can’t Explain It (3:13)
-02. Heaven Or (3:00)
-03. Smile (3:19)
-04. Morning Sun (2:56)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B1BD579B5050B8CAA2028788E1E70508ECE7B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665067   (182494) от 30.09.2023
-
-James Hype - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm Controll - My House (In Beginning, There Was Jack... Acappella) w/James Hype - ID
-02. Wildchild - Renegade Master (Acappella) w/Major Lazer & James Hype - Number 1
-03. Raumakustik & Juliet Sikora - Love Shake
-04. Travis Scott ft. Kendrick Lamar - Goosebumps (James Hype Remix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0848AFA5EB4231B2ADE060F2C3ACC5C4D4D6E9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665190   (183077) от 29.09.2023
-
-Gunship - Unicorn (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monster In Paradise (feat. Milkie Way, Dave Lombardo, Tyler Bates)
-02. Taste Like Venom
-03. Empress Of The Damned (feat. Lights)
-04. Tech Noir II (feat. John Carpenter, Charlie Simpson)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3159AFBD9C42765BDD8D1674F2D49A604557E8D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665263   (183226) от 29.09.2023
-
-VA - Ibiza Autumn Mix 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echo Boy - Get Do It (Original Mix) [04:58]
-02. Mike Carry - Disco Luv (Original Mix) [04:44]
-03. Brian Forster - I Like It (Original Mix) [02:40]
-04. Adam Gordon - Lonely Nights (Original Mix) [02:44](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A94F6A3F23D7990ABB6EC9EBAE62C98FE0F84C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592507   (183837) от 22.11.2022
-
-VA - Deep-House World Vol. 3 (2022) CD, Compilation [MP3|320 Kbps] <Deep-House, Soulful, Deep Groove, Beach House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hector Cassanova - My Religion Is... (Dyba's Club Sexy Mix)
-02. The Soul lovers - Relaxed
-03. Mondial Groove - Summer Vibes
-04. Yovann Bleu - Antiflex(   Читать дальше...   )Жанр: Deep-House, Soulful, Deep Groove, Beach HouseПродолжительность: 01:22:02 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD85C644D9F57291EA526FD75AA143300C7D79A
 ```
 
 

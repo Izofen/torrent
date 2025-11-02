@@ -484,6 +484,114 @@ magnet:?xt=urn:btih:E011232BD847D4EECFCCC330A044A1C7F0B8C992
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590512   (188650) от 14.11.2022
+
+VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Afrobeats>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - 2 Be Loved (Am I Ready)
+02. Ed Sheeran - 2step (feat. Lil Baby)
+03. Smyles - Running up That Hill (A Deal with God)
+04. Charlie Puth - Left and Right(   Читать дальше...   )Жанр: Electropop, Dancehall, Synth-pop, AfrobeatsПродолжительность: 02:51:03 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590508   (188754) от 14.11.2022
+
+VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Million Dollar Baby
+02. Lizzo - About Damn Time
+03. Ed Sheeran - 2step (feat. Lil Baby)
+04. Alex Warren - Headlights(   Читать дальше...   )Жанр: Synthpop, Disco, Dance, Hip HopПродолжительность: 01:42:39 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5263B42AA4DFBE986CE2BCAB6A84514F501920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590507   (188790) от 14.11.2022
+
+VA - Totally Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Dance, Rhythm & Blues>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LF SYSTEM - Afraid to Feel
+02. David Guetta - Family Affair (Dance for Me)
+03. Nathan Dawe - 21 Reasons (feat. Ella Henderson)
+04. Tiesto - Hot in It(   Читать дальше...   )Жанр: Electropop, Synthpop, Dance, Rhythm & BluesПродолжительность: 01:21:24 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170C5A3F0207B8238A939CEF986FED743AD8D751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590509   (188804) от 14.11.2022
+
+VA - Let's Dance Baby Vol. 2 (2022) [MP3|320 Kbps] <Dance, Electro Pop, Progressive, Groove>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skuado - Live It Up
+02. Deviz B - Saved Gema (Original Mix)
+03. Fijin - The One (Radio Edit)
+04. Krokodile Kruegel - Fog in the Moonlight (Radio Edit)(   Читать дальше...   )Жанр: Dance, Electro Pop, Progressive, GrooveПродолжительность: 02:01:24 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FFFC67633FF4A86EE84C1539844084680E260B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658342   (191093) от 08.09.2023
 
 VA - The Best Songs of All Time - Greatest Hits (2023) [MP3|320 Kbps] <Dance, Pop, R&B, Rock>
@@ -587,114 +695,6 @@ VA - Лето на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C88E0F6144685F7B1BF16A011DF50759644E8D77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648586   (195353) от 23.07.2023
-
-VA - Summer Hits (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mau P - Drugs From Amsterdam (5:23)
-02. Luis Fonsi - Despacito (4:41)
-03. SZA - Kill Bill (4:35)
-04. Sam Smith - Unholy (feat. Kim Petras) (4:35)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D020CBDE6335B769E9724F50B7EACB1D35FE448
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647493   (195543) от 19.07.2023
-
-VA - Relax FM for a Good Evening 2 (2023) [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lake Street Dive - Rich Girl (5:24)
-02. Ed Sheeran - Thinking out Loud (4:56)
-03. Aly & AJ - Slow Dancing (4:27)
-04. Luke Combs - Fast Car (4:25)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 03:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AA02E1A7C5223084F4B7041E9A4B220C0F68D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645087   (195889) от 11.07.2023
-
-VA - Музыка для машины Vol.30 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aisha - Время Лечит (02:42)
-02. La Zarra Feat. & Katerina Stikoudi - Evidemment (Duet Version) (03:00)
-03. Besomorph Feat. & Mougleta - Heartbreak Fever (03:13)
-04. Rasa Feat. & Nlo - Нагуляться (02:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60C3DC4A38B70FAAB8C4BB1246D884CF9EE915B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644086   (196113) от 04.07.2023
-
-VA - Pop 3 Remix NNM (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia - Moth To A Flame (feat. The Weeknd) - Adriatique Remix (6:30)
-02. Gorillaz - New Gold (feat. Tame Impala and Bootie Brown) - Dom Dolla Remix (6:03)
-03. Bee Gees - More Than A Woman - SG's Paradise Edit (5:57)
-04. Lana Del Rey - Summertime - Imanbek Remix (5:06)(   Читать дальше...   )Жанр: PopПродолжительность: 03:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEBE046AC365B1329D7A38382E5D614B14EC969
 ```
 
 
